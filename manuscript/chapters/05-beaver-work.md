@@ -1,6 +1,6 @@
 # Chapter 5 - Beaver Work
 
-Joel woke to the sound of Will’s zipper.
+Joel woke to the sound of Will's zipper.
 
 Not the tent zipper at first. Smaller. A bag, probably. Then the tent door itself, slow enough that whoever opened it thought slowness made less sound. It did not. The teeth came apart one by one in the gray morning, dry and careful and loud.
 
@@ -10,307 +10,347 @@ The hammock held him in its shallow curve. Above him, the tarp was beaded with d
 
 Will came out of the tent bent over and half-zipped into a fleece. He stood there for a moment, looking at the lake like a man who had expected it to do something overnight and was checking the result.
 
-“You alive?” Joel said.
+"You alive?" Joel said.
 
-Will flinched and looked toward the hammock. “Jesus.”
+Will flinched and looked toward the hammock. "Jesus."
 
-“Good morning.”
+"Good morning."
 
-“You look dead in that thing.”
+"You look dead in that thing."
 
-“That’s the appeal.”
+"That's the appeal."
 
-Will rubbed his face. His hair stood up on one side. “I thought about sleeping in mine.”
+Will rubbed his face. His hair stood up on one side. "I thought about sleeping in mine."
 
-“You thought bravely.”
+"You thought bravely."
 
-“I made a weather-based decision.”
+"I made a weather-based decision."
 
-“You slept in the tent.”
+"You slept in the tent."
 
-“I made a tent-based decision.”
+"I made a tent-based decision."
 
-The fire ring was gray and cold. Mike and Alex’s tent had not moved except for one side panel sagging where Alex had probably pressed into it. The canoes lay above the shoreline, dark with dew, paddles tucked underneath where they had left them. The loose painter rope touched a hull once in the faint breeze. Tap. Then nothing.
+The fire ring was gray and cold. The tent had not moved except for one side panel sagging where Alex had probably pressed into it. The canoes lay above the shoreline, dark with dew, paddles tucked underneath where they had left them. A loose painter rope touched a hull once in the faint breeze.
 
-Joel looked at it and then away.
+Tap.
+
+Then nothing.
+
+Joel looked at it and then away. A rope tapping a hull was a rope tapping a hull. He had been here long enough, in this kind of morning, to know how many objects could become briefly articulate when air moved through camp.
 
 Will had already seen the rods.
 
-“They’re wet,” he said.
+"They're wet," he said.
 
-“Everything’s wet.”
+"Everything's wet."
 
-“Not everything is a precision instrument.”
+"Not everything is a precision instrument."
 
-“Your rod is a stick with jewelry.”
+"Your rod is a stick with jewelry."
 
-Will looked offended but too tired to answer well. “That’s not even worth correcting.”
+Will looked offended but too tired to answer well. "That's not even worth correcting."
 
-Mike’s voice came from the other tent. “If you two are talking about fishing before coffee, I’m leaving you here.”
+Mike's voice came from the tent. "If you two are talking about fishing before coffee, I'm leaving you here."
 
-Alex groaned from inside. “Is the wilderness always this administrative?”
+Alex groaned from inside. "Is the wilderness always this administrative?"
 
 Joel swung his feet out of the hammock and sat up. Cold came through his base layer and made him move faster. He pulled on his fleece, then his wet hiking sandals, grimacing as the straps took hold of his feet. He had camp shoes buried somewhere but did not want to open the pack yet. The first step on granite was sharp and cold.
 
 Morning camp took shape without ceremony. Water first. Stove next. Breakfast by negotiation.
 
-Will wanted pancakes because he had remembered them into existence the night before. Mike wanted bars and coffee because he wanted miles. Alex said he was willing to support pancakes in principle but not if the batter had texture. Joel found instant oats near the top of the food bag and held them up.
+Will wanted pancakes because he had remembered them into existence the night before. Mike wanted bars and coffee because he wanted miles. Alex said he supported pancakes in principle but not if the batter had texture. Joel found instant oats near the top of the food bag and held them up.
 
-“This is the compromise.”
+"This is the compromise."
 
-“That’s not compromise,” Will said. “That’s surrender with raisins.”
+"That's not compromise," Will said. "That's surrender with hot water."
 
-“No raisins.”
+"Brown sugar."
 
-“Worse.”
+"Apology sugar."
 
-Mike was already filling the pot. “Oats.”
+Mike was already filling the pot. "Oats."
 
-Alex sat up in the tent with his hair crushed flat on one side. “Do oats have seasoning?”
+Alex sat up in the tent with his hair crushed flat on one side. "Do oats have seasoning?"
 
-“They have whatever you put in them,” Joel said.
+"They have whatever you put in them," Joel said.
 
-“So no.”
+"So no."
 
-“Brown sugar.”
+"Peanut butter."
 
-“That’s not seasoning. That’s apology.”
+Alex considered that. "That's a condiment with ambition."
+
+"Oats," Mike said again, because repetition was how he ended meetings.
 
 They boiled water and made coffee with Folgers packets. The packets always seemed like a bad idea at home and a good idea in camp. Tear, pour, stir, drink something hot enough to correct the body. Joel ate oats from his mug and watched fog lift from the lake in low pieces. It moved like smoke that had forgotten fire.
 
+The far shore came in and out behind it. Pine, then nothing. Granite, then blank gray. Sound arrived cleanly through the damp: Will's spoon against his mug, Mike folding the map case open, Alex coughing once into his sleeve, the stove valve ticking as it cooled. In the ordinary world, everything announced itself by touching something else.
+
 Mike checked the map while standing. He did not like sitting before the route was decided, even if the route had been decided months ago.
 
-“We want to be moving by eight,” he said.
+"We want to be moving by eight," he said.
 
-Will looked at the sky. “That means nine.”
+Will looked at the sky. "That means nine."
 
-“It means eight.”
+"It means eight."
 
-Alex, still inside the tent, said, “It means someone will be looking for his headlamp at eight-ten.”
+Alex, still inside the tent, said, "It means someone will be looking for his headlamp at eight-ten."
 
-“I know where my headlamp is,” Mike said.
+"I know where my headlamp is," Mike said.
 
 Nobody said anything.
 
-Mike looked up. “I do.”
+Mike looked up. "I do."
 
-Joel sipped coffee. “Then we’re ahead of schedule spiritually.”
+Joel sipped coffee. "Then we're ahead of schedule spiritually."
 
 They broke camp in cold stages. Sleeping bags stuffed. Pads rolled. Tent shaken, fly wet enough to be annoying but not soaked. Joel took down his hammock last because he liked how quickly his whole bedroom became a fist-sized bundle of fabric and straps. Will packed his unused hammock with the expression of a man putting away a tool he had not deserved.
 
 The food barrel latch snapped closed. The stove cooled, clicked once as Mike handled it, and went into its bag. Paddles came out from under the canoes. Wet blades, grit on the shafts. Will wiped his rod guides with a cloth and pretended no one noticed.
 
-“Fishing while we move?” Alex asked.
+"Fishing while we move?" Alex asked.
 
-“In spirit,” Will said.
+"In spirit," Will said.
 
-“No,” Mike said.
+"No," Mike said.
 
-“I said in spirit.”
+"I said in spirit."
 
-“I heard the part you didn’t say.”
+"I heard the part you didn't say."
 
-“You often do, and usually badly.”
+"You often do, and usually badly."
 
-They loaded the boats. The morning light grew cleaner but not warmer. Mosquitoes were thin near shore, slow enough that they seemed confused by their own hunger. The lake held the canoes without wave. Whatever had knocked in the night had left no sign. No shifted hull. No loose paddle. No branch caught on the rocks. Joel checked because checking was easier than wondering.
+They loaded the boats. The morning light grew cleaner but not warmer. Mosquitoes were thin near shore, slow enough that they seemed confused by their own hunger. The lake held the canoes without wave. Whatever had knocked in the night had left no sign. No shifted hull. No loose paddle. No branch caught on the rocks. Joel checked because checking was easier than wondering, and because the body believed a thing more readily when the eyes had done their work.
 
 By a little after eight-thirty they pushed off.
 
-The first part of the morning was easy water. The lake stretched north in a long reach, then narrowed around a low point where black spruce crowded the shore. Mike and Will led. Joel and Alex followed. Alex paddled better after breakfast than he had near the end of the day before. Maybe sleep helped. Maybe the cold made him want to be useful.
+The first part of the morning was easy water. The lake stretched north in a long reach, then narrowed around a low point where black spruce crowded the shore. Mike and Will led. Joel and Alex followed. Alex paddled better after breakfast than he had near the end of the day before. Maybe sleep helped. Maybe the cold made him want to be useful. Maybe he had reached the phase of complaint where the only honorable thing left was competence.
 
-They passed the point and entered a channel not much wider than the one from yesterday, but lower and flatter. Alder came down to the water on both sides. Grass leaned out over mud. The water lost the clean dark of lake depth and turned brown and slow.
+They passed the point and entered a channel not much wider than the one from yesterday, but lower and flatter. Alder came down to the water on both sides. Grass leaned out over mud. The water lost the clean dark of lake depth and turned brown and slow. It smelled of wet bark and old leaves, the sour richness of things busy rotting into something useful.
 
-“Here we go,” Mike called back.
+"Here we go," Mike called back.
 
-“Here we go good or here we go bad?” Alex said.
+"Here we go good or here we go bad?" Alex said.
 
-“Beaver work.”
+"Beaver work."
 
-Will turned his head. “Plural.”
+Will turned his head. "Plural?"
 
-“Could be.”
+"Could be."
 
-“Great.”
+"Great."
 
-Alex looked back at Joel. “Define beaver work.”
+Alex looked back at Joel. "Define beaver work."
 
-Joel said, “Sometimes you get out and drag.”
+Joel said, "Sometimes you get out and drag."
 
-“That’s work for us.”
+"That's work for us."
 
-“Correct.”
+"Correct."
 
-“Misleading name.”
+"Misleading name."
 
-The first dam came twenty minutes later. It crossed the channel in a low brown ridge of sticks and mud, water shining over the top in thin sheets. On one side a narrow chute had been opened by previous travelers. Mike guided his canoe toward it, stepped out in knee-deep water, and held the boat while Will got out and pulled from the front.
+"They did their part."
 
-“Looks simple,” Alex said.
+Alex looked at the low banks sliding past, the cut stems bright as bone near the waterline. "I grew up around animals that could kill you. Beavers feel insulting."
 
-“Don’t say that,” Joel said.
+"Beavers can ruin your day," Will said.
 
-“Why?”
+"Lots of things can ruin my day. Plain oatmeal. Small talk. Men named Todd."
 
-“Because the river hears confidence.”
+Mike looked over his shoulder. "Paddle."
 
-Alex smiled. “That sounds like something from your Wisconsin cult.”
+Alex paddled.
 
-“I’m from St. Louis.”
+The channel kept narrowing. The alders leaned until their upper branches crossed over the water and made a low, jointed roof. The paddles clipped drowned stems. Once Joel's blade struck something under the surface that gave back a hollow wooden note, and Alex looked at him.
 
-“Madison changed you.”
+"Rock," Joel said.
+
+"Rocks don't sound like doors."
+
+"Submerged branch, then."
+
+"Better."
+
+Ahead, Will said something to Mike that Joel could not catch. Mike answered with one hand lifted off the paddle, palm down, the universal sign for enough. Will turned forward again. He had his rod across his lap in a way that pretended not to be ready.
+
+The first dam came twenty minutes later. It crossed the channel in a low brown ridge of sticks and mud, water shining over the top in thin sheets. On one side a narrow chute had been opened by previous travelers and then half-closed again by the animals, as if the dispute were ongoing and neither party had the authority to settle it.
+
+Mike guided his canoe toward it, stepped out in knee-deep water, and held the boat while Will got out and pulled from the front.
+
+"Looks simple," Alex said.
+
+"Don't say that," Joel said.
+
+"Why?"
+
+"Because the river hears confidence."
+
+Alex smiled. "That sounds like something from your Wisconsin cult."
+
+"I'm from St. Louis."
+
+"Madison changed you."
 
 They came in on the right. Joel stepped out first. Cold water went up over his sandal straps and around his calves. The mud under the surface accepted one foot, then the other, and did not want to give them back. Alex got out and immediately sank deeper.
 
-“Oh, come on.”
+"Oh, come on."
 
-“Don’t fight it straight up,” Joel said. “Rock your foot.”
+"Don't fight it straight up," Joel said. "Rock your foot."
 
-“I am negotiating with it.”
+"I am negotiating with it."
 
-“You’re losing.”
+"You're losing."
 
-The canoe slid halfway onto the dam, then stopped. Joel pushed from the back. Alex pulled from the front. The hull rasped over wet sticks. Something under it cracked. Water ran around their legs with more force than it had seemed to have from the boat.
+The canoe slid halfway onto the dam, then stopped. Joel pushed from the back. Alex pulled from the front. The hull rasped over wet sticks. Something under it cracked. Water ran around their legs with more force than it had seemed to have from the boat, all that brown quiet narrowing itself over the dam and remembering it could move.
 
-“Hold up,” Alex said.
+"Hold up," Alex said.
 
 Joel stopped.
 
-Alex bent and freed the painter rope from a branch woven into the dam. He held it up. “See? Useful.”
+Alex bent and freed the painter rope from a branch woven into the dam. He held it up with theatrical patience. "See? Useful."
 
-“I didn’t say otherwise.”
+"I didn't say otherwise."
 
-“You were thinking it.”
+"You were thinking it."
 
-“I was thinking many things.”
+"I was thinking many things."
 
-Mike, already on the far side, called, “You coming?”
+Mike, already on the far side, called, "You coming?"
 
-Alex looked back at him. “We’re preserving infrastructure.”
+Alex looked back at him. "We're preserving infrastructure."
 
-“You’re standing in beaver trash.”
+"You're standing in beaver trash."
 
-Will said, “Technically impressive beaver trash.”
+Will said, "Technically impressive beaver trash."
 
-“That’s your review of everything in nature,” Mike said.
+"That's your review of everything in nature," Mike said.
 
-They got the boat over. It dropped into the water beyond with a hollow slap and a little roll that sent water against Joel’s thighs. Alex made a sound between a laugh and a curse.
+They got the boat over. It dropped into the water beyond with a hollow slap and a little roll that sent water against Joel's thighs. Alex made a sound between a laugh and a curse.
 
-“Refreshing,” he said.
+"Refreshing," he said.
+
+Joel steadied the canoe and let the mud take back the footprints they had made. It closed slowly, dark water filling the shape of their legs. The dam stayed where it was, indifferent to effort, already repairing itself in the mind if not yet in the sticks. Men crossed things and called it progress. Animals crossed them back.
 
 The second dam was worse.
 
-The channel bent left and disappeared behind alder. The dam sat just beyond the bend, higher, newer, still wet with the look of recent labor. Water backed up before it in a shallow pond full of drowned grass. A lodge rose on the left, larger than the one from the day before, sticks piled against a bank where fresh cuts showed pale.
+The channel bent left and disappeared behind alder. The dam sat just beyond the bend, higher, newer, still wet with the look of recent labor. Water backed up before it in a shallow pond full of drowned grass. A lodge rose on the left, sticks piled against a bank where fresh cuts showed pale. The chew marks were clean and angled, each sapling taken down by a mouth that knew its work.
 
-Will said, “Somebody’s active.”
+Will said, "Somebody's active."
 
-Mike said, “Beavers usually are.”
+Mike said, "Beavers usually are."
 
-“I mean recent.”
+"I mean recent."
 
-“Are we filing a complaint?”
+"Are we filing a complaint?"
 
-Alex lifted his paddle. “I support labor.”
+Alex lifted his paddle. "I support labor."
 
 The pull-over took longer. They unloaded a few bags because the boats were catching on the crest. Food barrel out. Day bags out. Rods handed forward like fragile diplomatic gifts. Alex took one rod and held it away from himself.
 
-“This thing makes me feel irresponsible.”
+"This thing makes me feel irresponsible."
 
-“It should,” Will said.
+"It should," Will said.
 
 Joel pushed and slipped. One foot went sideways between two submerged branches. For a second the mud held him and the current leaned against his knees. He caught the gunwale with one hand and steadied.
 
-“You good?” Will called.
+"You good?" Will called.
 
-“Yeah.”
+"Yeah."
 
-“Don’t break Madison,” Alex said.
+"Don't break Madison," Alex said.
 
-“Madison bends,” Joel said.
+"Madison bends," Joel said.
 
-Mike was on top of the dam, pulling his canoe by the front line. “Lift, don’t drag.”
+Mike was on top of the dam, pulling his canoe by the front line. "Lift, don't drag."
 
-“Buy lighter boats,” Joel said.
+"Buy lighter boats," Joel said.
 
-Mike looked over his shoulder. “That line’s less funny when you’re wrong.”
+Mike looked over his shoulder. "That line's less funny when you're wrong."
 
-“It wasn’t meant to be funny.”
+"It wasn't meant to be funny."
 
-“It never is.”
+"It never is."
 
 They got the boats over one by one. By the end, everyone was wet to the knee or higher. Alex had mud up one thigh. Will had a leech on his ankle, which he noticed only after he had already described leech behavior in too much detail.
 
-“No, no, no,” he said, more annoyed than scared. “Absolutely not.”
+"No, no, no," he said, more annoyed than scared. "Absolutely not."
 
-Mike looked down. “It’s tiny.”
+Mike looked down. "It's tiny."
 
-“It’s attached.”
+"It's attached."
 
-“That’s how they work.”
+"That's how they work."
 
-Will flicked at it with a fingernail and missed. “That’s not how I want it to work.”
+Will flicked at it with a fingernail and missed. "That's not how I want it to work."
 
-Alex crouched beside him. “Allow me. I grew up with real parasites.”
+Alex crouched beside him. "Allow me. I grew up with real parasites."
 
-“You grew up in Alaska, not a medieval swamp.”
+"You grew up in Alaska, not a medieval swamp."
 
-Alex pinched the leech off and held it up for half a second before flinging it into the grass. “Nature defeated.”
+Alex pinched the leech off and held it up for half a second before flinging it into the grass. "Nature defeated."
 
-Will stared at his ankle. “I hate that I needed you.”
+Will stared at his ankle. "I hate that I needed you."
 
-“You’ll heal.”
+"You'll heal."
 
 They moved again.
 
 The morning warmed. The chill lifted from their clothes but left them damp. The sun came through breaks in the alder and lit the water in copper patches. Every few bends the channel opened into a marshy pool where lily pads held yellowing edges and dragonflies stitched the air low over the surface. Then it tightened again and made them work.
 
-Joel felt the route changing the men. Not dramatically. It was too early for drama. But the first-day jokes had less gloss on them. Everyone had slept, but not enough to erase the weight of portage and water from their bodies. Mike’s instructions were shorter. Will still talked, but more of it came between breaths. Alex performed, then forgot to perform, then remembered when silence lasted too long.
+Joel felt the route changing the men. Not dramatically. It was too early for drama, and the day was still bright enough to make seriousness feel theatrical. But the first-day jokes had less gloss on them. Everyone had slept, but not enough to erase the weight of portage and water from their bodies. Mike's instructions were shorter. Will still talked, but more of it came between breaths. Alex performed, then forgot to perform, then remembered when silence lasted too long.
+
+The route had its own method. It gave them a clear stretch, then a snag. A little current, then mud. A turn that looked open until the boat entered it and the alder took both sides of the canoe in its hands. Joel began to understand how a map could be true and still leave out the truth. A blue line did not tell you how many times you would step into brown water and feel your foot disappear.
 
 At a shallow gravel bar, Mike stopped to check the map. Will cast once while standing in ankle-deep water, because his body had been waiting for the chance before his mind approved it.
 
-Mike said, “Really?”
+Mike said, "Really?"
 
-“One cast.”
+"One cast."
 
-“You said that yesterday.”
+"You said that yesterday."
 
-“And I have grown as a person.”
+"And I have grown as a person."
 
-The lure landed near a sunken branch with a small plip. Something moved in the shadow. Will’s whole body changed.
+The lure landed near a sunken branch with a small plip. Something moved in the shadow. Will's whole body changed.
 
-“Fish?” Alex said.
+"Fish?" Alex said.
 
-“Maybe.”
+"Maybe."
 
-“Useful fish or emotionally symbolic fish?”
+"Useful fish or emotionally symbolic fish?"
 
-Will reeled slowly. “All fish are both.”
+Will reeled slowly. "All fish are both."
 
 The lure came back clean.
 
-Mike gave him five seconds of silence. “Done?”
+Mike gave him five seconds of silence. "Done?"
 
-Will clipped the lure to a guide. “Done.”
+Will clipped the lure to a guide. "Done."
 
-“Miracles happen,” Mike said.
+"Miracles happen," Mike said.
 
 They ate lunch out of the boats because the ground was mostly mud and grass. Tuna packets, Triscuits, trail mix, jerky already diminished by theft and democracy. Alex examined a salmon packet as if it might argue with him.
 
-“Just eat the crackers,” Mike said.
+"Just eat the crackers," Mike said.
 
-“I’m branching.”
+"I'm branching."
 
-“You branch like a dead tree.”
+"You branch like a dead tree."
 
-Joel handed him a strip of jerky. “Here. Safe food.”
+Joel handed him a strip of jerky. "Here. Safe food."
 
-Alex took it. “Your usefulness continues.”
+Alex took it. "Your usefulness continues."
 
-Will said, “Don’t praise him too much. He’ll dehydrate a whole cow.”
+Will said, "Don't praise him too much. He'll dehydrate a whole cow."
 
-“I’ve considered it,” Joel said.
+"I've considered it," Joel said.
 
-“Of course you have.”
+"Of course you have."
 
 The channel after lunch became less forgiving. Beaver cuts narrowed the turns. Drowned branches reached up from underwater, invisible until a hull scraped them. Mike called back directions in clipped pieces. Left. Stay right. Shallow. Watch the snag. Joel relayed what mattered to Alex when Alex was looking at the wrong thing.
+
+The work made a kind of language: blade drip, hull scrape, breath, boot pulled from mud, branch released and whipping back. A man could listen to it and know where the others were without seeing them. Mike's canoe ahead by the harder knocks. Will's rod tip ticking once against aluminum. Alex's paddle coming out too high and scattering water beside Joel's knee. Their passage entered the channel in pieces and remained there behind them, as if the route kept a memory of touch.
 
 A branch cracked in the alder to their left.
 
@@ -320,87 +360,87 @@ Alex stopped paddling mid-stroke.
 
 The canoe turned slightly.
 
-“Hold up,” he said.
+"Hold up," he said.
 
-Joel put his paddle in to correct. Ahead, Mike’s boat kept moving three more strokes before Will turned.
+Joel put his paddle in to correct. Ahead, Mike's boat kept moving three more strokes before Will turned.
 
-“You guys hear that?”
+"You guys hear that?"
 
-Mike looked toward the alder. “Animal.”
+Mike looked toward the alder. "Animal."
 
-“What kind of animal?” Alex asked.
+"What kind of animal?" Alex asked.
 
-“The kind in bushes.”
+"The kind in bushes."
 
-“That narrows it.”
+"That narrows it."
 
 Will held his paddle across his knees and listened. The brush moved once more, farther back. Leaves shook. Then nothing.
 
-“Beaver?” Joel said.
+"Beaver?" Joel said.
 
-“Could be,” Mike said.
+"Could be," Mike said.
 
-“Could be bear,” Alex said, but lightly.
+"Could be bear," Alex said, but lightly.
 
-Mike turned his head just enough. “Don’t start.”
+Mike turned his head just enough. "Don't start."
 
-“I’m not starting. I’m identifying risk factors.”
+"I'm not starting. I'm identifying risk factors."
 
-“That’s Will’s job,” Joel said.
+"That's Will's job," Joel said.
 
-Will, still listening, said, “Bear would probably sound heavier.”
+Will, still listening, said, "Bear would probably sound heavier."
 
-“Probably,” Mike said. “Everybody paddle.”
+"Probably," Mike said. "Everybody paddle."
 
 The word everybody did its work. They moved.
 
 Joel looked once into the alder as they passed. He saw leaves, mud, the dark arch of roots where the bank had undercut, a few fresh chips on a cut sapling. No animal. No shape. No reason to remember it except the way Alex had stopped before anyone else did, his shoulders tightening under the straps of his PFD, paddle held over water.
 
-A person could grow up in Alaska and still become alert to brush. Maybe especially then.
+A person could grow up in Alaska and still become alert to brush. Maybe especially then. Maybe that was what growing up around larger danger gave you: not bravery, but a better ear for the first small thing before the large thing decided to become visible.
 
 The channel opened after that, though not into easy water. It widened into a marshy run where the current slowed and the wind found them from the side. The sky had changed while they worked the beaver dams. It was still clear overhead, but a smear of cloud sat low in the west. The light had gone flatter. Far ahead, a wider lake showed between low banks.
 
 Mike checked the map without stopping, one hand on the paddle, the case open against his knees.
 
-“Bigger water after this,” he said.
+"Bigger water after this," he said.
 
-“How big?” Alex asked.
+"How big?" Alex asked.
 
-“Big enough.”
+"Big enough."
 
 Will made a sound.
 
-Mike said, “What?”
+Mike said, "What?"
 
-“Nothing.”
+"Nothing."
 
-“Say it.”
+"Say it."
 
-“I’m just saying, ‘big enough’ is not a measurement.”
+"I'm just saying, 'big enough' is not a measurement."
 
-“It’s not the problem lake.”
+"It's not the problem lake."
 
-“That’s not an answer.”
+"That's not an answer."
 
-“It’s the lake before the problem lake.”
+"It's the lake before the problem lake."
 
-Alex turned around. “Do the lakes know which one is the problem lake?”
+Alex turned around. "Do the lakes know which one is the problem lake?"
 
-Joel said, “Mike tells them.”
+Joel said, "Mike tells them."
 
-Mike ignored that. “We get across this, short ugly bit, then camp.”
+Mike ignored that. "We get across this, short ugly bit, then camp."
 
-“Second camp?” Alex said.
+"Second camp?" Alex said.
 
-“No. Lunch two-point-five.”
+"No. Lunch two-point-five."
 
-“Don’t name things.”
+"Don't name things."
 
-“I’ll name whatever I survive.”
+"I'll name whatever I survive."
 
 They paddled into the wider water.
 
-The wind was mild but steady, enough to press Alex’s lazy strokes into consequence. Joel had to correct more often. Mike and Will angled left toward a low shore where the map showed the next narrow exit. Will kept looking back toward the marsh.
+The wind was mild but steady, enough to press Alex's lazy strokes into consequence. Joel had to correct more often. Mike and Will angled left toward a low shore where the map showed the next narrow exit. Will kept looking back toward the marsh.
 
 Joel saw it and did not ask.
 
@@ -410,49 +450,49 @@ Still, for a while no one joked.
 
 That did not last. It never did.
 
-Alex finally said, “For the record, if a beaver kills me, lie.”
+Alex finally said, "For the record, if a beaver kills me, lie."
 
-Will turned in the front of Mike’s canoe. “About which part?”
+Will turned in the front of Mike's canoe. "About which part?"
 
-“All of it.”
+"All of it."
 
-“Say bear?”
+"Say bear?"
 
-“Say moose. Say I fought a moose for the honor of the group.”
+"Say moose. Say I fought a moose for the honor of the group."
 
-Mike said, “I’m saying you fell in mud and got unionized.”
+Mike said, "I'm saying you fell in mud and got unionized."
 
 Alex laughed, and because the water was wider now the laugh carried out from him and came back from nowhere in particular. It skipped once against the low shore and thinned into the marsh behind them.
 
-Joel paddled and watched the widening lake ahead. He could feel the day going long. Not late yet, but moving that way. The first camp was behind them. The second camp was somewhere past work they had not done.
+Joel paddled and watched the lake ahead. He could feel the day going long. Not late yet, but moving that way. The first camp was behind them. The second camp was somewhere past work they had not done.
 
-Mike had rounded the route down. Maybe not by much. Maybe by the exact amount all competent men rounded discomfort down when selling it to themselves first and others second.
+Mike had rounded the route down. Maybe not by much. Maybe by the exact amount all competent men rounded discomfort down when selling it to themselves first and others second. The lie did not have to be large to matter. It only had to be built into the plan so neatly that no one could point to the moment it entered.
 
 They reached the far side later than Mike wanted and earlier than worry required. The exit was a gap in alder, half-hidden by grass. Water moved through it in a narrow brown pull, just enough current to show the way.
 
 Will lifted his rod and looked at the widening water behind them.
 
-Mike said, “No.”
+Mike said, "No."
 
-“I didn’t say anything.”
+"I didn't say anything."
 
-“You thought it loudly.”
+"You thought it loudly."
 
-“There could be pike.”
+"There could be pike."
 
-“There could be time.”
+"There could be time."
 
-Alex looked toward the alder gap. “Does it open up after this?”
+Alex looked toward the alder gap. "Does it open up after this?"
 
 Mike gave him a hard look.
 
-Alex smiled. “Asking for morale.”
+Alex smiled. "Asking for morale."
 
 Mike cleared his throat. The sound was small, almost lost under the wind and water.
 
-“After the next stretch,” he said. “Just keep moving.”
+"After the next stretch," he said. "Just keep moving."
 
-Will glanced at Joel. Not alarmed. Just registering the phrase the way he registered all of Mike’s route talk.
+Will glanced at Joel. Not alarmed. Just registering the phrase the way he registered all of Mike's route talk.
 
 Joel dipped his paddle and followed the first canoe into the gap.
 
