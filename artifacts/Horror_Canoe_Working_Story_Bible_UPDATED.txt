@@ -1,0 +1,429 @@
+# Horror Canoe — Working Story Bible
+
+## Core Premise
+
+Four longtime male friends take a remote canoe trip in the far north near Canada in early September. What begins as a familiar, methodical wilderness trip becomes a study in dread after one of them is found gruesomely dead on the second night. At first the others assume a bear attack or some other natural cause. As the trip continues, they begin to suspect something is following them through the river corridor — something that can mimic voices, phrases, and sounds it has heard, but cannot read minds or invent from nothing.
+
+The horror should remain low-key, ambiguous, and increasingly intimate. The entity is frightening less because it is explained and more because it learns the men through repetition, habit, and weakness.
+
+## Working Genre
+
+Literary wilderness horror / psychological survival horror.
+
+The book should feel grounded before it feels supernatural. Canoeing, portaging, meals, weather, gear, fatigue, mosquitoes, river decisions, and camp routines should carry much of the early texture. The horror emerges from small contradictions: a repeated phrase in the wrong voice, an impossible sound across the water, a friend’s habit appearing where the friend is not.
+
+## Setting
+
+A remote northern river system near Canada in early September.
+
+### Environmental Texture
+
+* Mosquitoes are heavy at dusk.
+* Evenings turn chilly after warm or laborious days.
+* The river corridor alternates between open water, tight bends, marshy stretches, gravel bars, black spruce, alder, and portage trails.
+* The trip should feel far enough from ordinary help that evacuation is difficult but not so fantastical that the men are in another world.
+* Campsites are sparse, practical, sometimes already used by others, sometimes only implied clearings.
+* Weather should matter: wind, damp gear, cold mornings, sudden rain, fog over water, low cloud, and the hard silence after weather moves through.
+
+## Core Cast
+
+### Joel
+
+Primary lens. Quiet, observant, a software developer. Not obviously heroic, but careful, methodical, and attuned to systems. He is the sort of person who notices repeated patterns but may distrust his own conclusions because he knows how easily pattern-seeking can mislead.
+
+#### Function in the story
+
+Joel anchors the book’s restraint. He should not become a horror-movie protagonist too quickly. His fear should build through practical problems: missing gear, contradictory tracks, wrong voices, bad group decisions, and the slow collapse of ordinary explanations.
+
+#### Likely arc
+
+Joel begins as someone who lets the louder personalities define the trip. By the end, he may be the only one capable of recognizing the entity’s limitation: it can only repeat what it has heard. Survival depends less on bravery than on refusing to feed it new language, new signals, or new panic.
+
+### Will
+
+Recently unemployed quality-control engineer for an LED company. Manic, hobby-heavy, talkative, possibly overcompensating for shame or instability. He knows a little about many things and presents that knowledge loudly.
+
+#### Function in the story
+
+Will creates noise: theories, jokes, anxious chatter, false confidence. The entity benefits from people like Will because he gives it material — phrases, emotional tells, nervous repetitions.
+
+#### Likely arc
+
+Will may become more unstable after Alex’s death. His need to explain everything becomes dangerous. He may alternate between useful technical insight and wild speculation.
+
+### Mike
+
+Canoe reseller, financially precarious, sometimes manipulative. Often lives out of other people’s places or a teardrop camper. He knows canoes, deals, routes, gear, and how to talk people into things. He may be the practical reason the trip exists.
+
+#### Function in the story
+
+Mike brings competence and friction. He is not useless or cartoonish; he may know the river best, but he may also hide mistakes, minimize risk, or manage people instead of telling the truth.
+
+#### Likely arc
+
+Mike’s relationship to control should deteriorate. If he chose the route, supplied gear, or exaggerated the safety of the trip, guilt can become part of his unraveling.
+
+### Alex
+
+Pacific Northwest supply-chain worker. Loud in person, high-energy, possibly abrasive but not without warmth. Dies on Night Two in a way that is initially interpreted as a bear attack.
+
+#### Function in the story
+
+Alex’s death is the rupture. Before he dies, he should be vivid enough that his absence leaves pressure in the group. After death, his voice or phrases may become some of the entity’s most effective tools.
+
+#### Important rule
+
+Alex should not be reduced to “the one who dies.” His habits, jokes, complaints, and repeated expressions must be established before Night Two so the mimicry later has emotional weight.
+
+## Group Dynamic
+
+These are men who know each other well enough to have old rhythms, old irritations, and shorthand. They may not all be equally close now. The trip should carry the feeling of a friendship maintained by tradition even as adulthood, resentment, unemployment, distance, and money have changed them.
+
+### Possible tensions
+
+* Joel is quieter and may resent being managed by Mike.
+* Will talks too much, especially when anxious.
+* Mike may be evasive about logistics, cost, route difficulty, or timing.
+* Alex may needle others in ways that seem funny until stress makes them cruel.
+* No one wants to admit the friendship is thinner than it used to be.
+
+## The Entity
+
+The entity remains mysterious. The book should not fully explain what it is.
+
+### Known rules
+
+* It can mimic sounds, voices, and phrases it has heard.
+* It cannot read minds.
+* It does not invent freely from nothing.
+* It becomes more dangerous as it gathers more auditory material.
+* It may use familiar voices to lure, divide, confuse, or freeze the men.
+* Its mimicry may be imperfect early and more convincing later.
+
+### Possible behavioral limits
+
+These are working rules, not necessarily all revealed:
+
+* It may need proximity to hear and learn.
+* It may repeat emotional tones without understanding context.
+* It may use phrases in slightly wrong situations.
+* It may be better at voices than meaning.
+* It may imitate animals, gear noises, paddles, coughing, laughter, zippers, footsteps, or water sounds.
+* It may avoid direct visibility.
+* It may be connected to the river corridor, portage trails, or certain camp areas.
+
+### Horror principle
+
+The entity should be scariest when it uses ordinary human habits. A joke. A cough. A repeated complaint. A phrase someone said while half-asleep. A call from across water.
+
+The more the men talk, argue, shout, theorize, and panic, the more they arm it.
+
+## Point of View
+
+Default: close third person, primarily through Joel.
+
+The narration should remain controlled and concrete. Joel can infer, notice, misread, and doubt. Avoid omniscient explanation of the entity. Avoid telling the reader what the entity wants except through behavior.
+
+Possible limited exceptions:
+
+* Brief sections from another man’s close third before or during a major event.
+* A cold open from Alex before his death, if useful.
+* A final ambiguous scene from no clear human perspective, if earned.
+
+But the safest and strongest default is Joel-centered restraint.
+
+## Style Guide
+
+### Base voice
+
+Low-key, concrete, methodical, understated. A Hemingway/Bukowski-adjacent plainness: short-to-medium sentences, strong nouns and verbs, few decorative abstractions.
+
+### Atmosphere
+
+The prose should dwell on work and process:
+
+* loading boats
+* tying down packs
+* reading water
+* boiling water
+* hanging food
+* filtering water
+* drying socks
+* finding level tent ground
+* dividing chores
+* counting gear
+* listening in the dark
+
+Dread should often arise from practical detail going subtly wrong.
+
+### Avoid
+
+* Over-explaining the entity
+* Purple horror language
+* Characters immediately accepting the supernatural
+* Excessive jump scares
+* Repetitive “something watched him” phrasing
+* Too many cliffhanger chapter endings
+* Making the men stupid to move the plot
+* Making the dead friend disposable
+
+### Use often
+
+* Sound as threat
+* Silence as evidence
+* Repeated phrases
+* Weather pressure
+* Fatigue
+* Small humiliations
+* Male friendship under stress
+* Practical decisions with emotional consequences
+* Ordinary wilderness detail before uncanny disruption
+
+## Structural Shape
+
+Target length: approximately 70,000–100,000 words.
+
+Possible structure: 28–36 chapters, roughly day-by-day.
+
+### Act I — The Trip Before the Rupture
+
+Establish the men, the route, the practical world, the friendship, and the early signs that something is off. The first day should be immersive and largely non-supernatural. Night Two brings Alex’s death.
+
+Key goals:
+
+* Make the trip feel real.
+* Make Alex vivid.
+* Establish repeated phrases and habits.
+* Establish the river as beautiful, indifferent, and difficult.
+* Seed mimicry so subtly it can be dismissed.
+
+### Act II — Natural Explanation Fails
+
+The surviving men attempt to explain Alex’s death and make practical choices: leave, continue, signal, retrieve, wait, or move. Their decisions should be constrained by geography, weather, injuries, missing gear, damaged boats, or uncertainty.
+
+The mimicry escalates. At first it sounds like animals, echoes, or memory. Then it becomes unmistakably personal.
+
+Key goals:
+
+* The men disagree without becoming caricatures.
+* The entity learns them.
+* Speech itself becomes dangerous.
+* The group’s old tensions worsen.
+* Joel begins identifying the entity’s rule set.
+
+### Act III — Silence, Separation, and Recognition
+
+By the final third, survival depends on understanding that the entity uses what it has been given. The men may attempt to travel silently, use written notes, decoys, or controlled phrases. The entity uses Alex’s voice and the voices of the living against them.
+
+Key goals:
+
+* Pay off earlier phrases.
+* Make the final survival strategy practical and emotionally costly.
+* Preserve ambiguity about what the entity is.
+* End with resolution of the immediate survival problem, but not a full cosmic explanation.
+
+## Possible Chapter Spine
+
+This is provisional and should be replaced by a fuller outline later.
+
+1. Packing / departure / old rhythms
+2. Put-in / first paddle / first camp
+3. Day Two travel / Alex vivid / early odd sound
+4. Night Two / Alex dies
+5. Morning after / bear theory / shock logistics
+6. Debating exit / damaged assumptions
+7. First unmistakable mimicry, still deniable
+8. Weather pins them or delays them
+9. Will theorizes; Mike minimizes
+10. Joel notices repetition limits
+11. A voice across water
+12. Portage or difficult carry
+13. Missing gear / wrong placement
+14. Camp under strain
+15. Alex’s voice used badly
+16. Attempt to signal or reach exit
+17. Separation scare
+18. Rules of silence begin
+19. A mistake arms the entity further
+20. One man breaks discipline
+21. Injury, loss, or death
+22. Joel reconstructs what it has heard
+23. Controlled communication strategy
+24. Final travel push
+25. Entity uses living voices
+26. Last camp or last portage
+27. Escape attempt
+28. Aftermath / unresolved echo
+
+## Key Motifs
+
+### Repetition
+
+The entity’s power is repetition. Human friendship is also repetition: old jokes, old phrases, annual trips, fixed roles, stories retold until they are almost rituals. The horror should grow from that overlap.
+
+### Competence under pressure
+
+The men are not helpless. They know some things. They can paddle, pack, fix, cook, navigate, and reason. The horror is more frightening if competent people still make mistakes.
+
+### Male friendship and silence
+
+The story should explore what men say, what they avoid saying, and how their shorthand can both bond and trap them. Silence becomes literal survival later, but emotional silence may have been there from the beginning.
+
+### Nature versus imitation
+
+The wilderness contains real danger. The entity should sit uneasily beside ordinary threats: bears, cold water, injury, bad weather, hunger, panic, and distance.
+
+## Important Continuity Rules
+
+* The entity only repeats or recombines sounds it has actually heard.
+* If it uses a phrase later, that phrase should have appeared earlier.
+* The men should not know the rules too soon.
+* Alex’s voice must be established before it is weaponized.
+* The route must remain geographically plausible.
+* Gear matters. Lost or damaged gear should have concrete consequences.
+* Weather and daylight should constrain decisions.
+* The men should attempt ordinary explanations first.
+
+## Locked Canon Decisions
+
+These decisions are now the working canon for the project unless explicitly revised later.
+
+### River / Region
+
+The river is fictionalized rather than a named real river. It should feel like a remote Canadian Shield / Boundary Waters–adjacent route: a chain of lakes, narrow river runs, portages, black spruce, alder, old logging traces, cold rock, marsh, gravel, and intermittent campsites.
+
+The setting should be recognizable enough to feel researched and physically plausible, but invented enough that the story can control distance, exits, campsites, hazards, and timing.
+
+### Survivor Plan
+
+Joel is the primary planned survivor.
+
+He does not survive by becoming a conventional action hero. He survives because he gradually understands the entity’s limitation: it can mimic sounds, voices, and phrases it has heard, but it cannot read minds or invent freely from nothing.
+
+His survival should feel costly. By the end, speech itself has become contaminated for him. Ordinary sound is no longer trustworthy.
+
+### The Entity’s Physical Nature
+
+The entity is never fully revealed.
+
+The story may show traces and partial impressions:
+
+* a wrong silhouette between spruce trunks
+* wet stones shifted above camp
+* brush parting without a visible body
+* a smell of river mud, old meat, and wet hide
+* tracks that are almost bear, almost human, and not quite either
+* a pale or jointed glimpse Joel cannot fully process
+* sounds moving through spaces too quickly or from impossible positions
+
+The mimicry is the monster more than the body is. Any glimpse should deepen uncertainty, not solve it.
+
+### Alex’s Death
+
+Alex’s death is initially plausible as a bear attack, but later details make that explanation wrong or incomplete.
+
+The scene may include:
+
+* massive trauma
+* disturbed brush
+* blood and mud
+* a dragged body
+* damage that resembles claws or animal violence
+* food-storage suspicion
+* enough wilderness plausibility that the men are not stupid for thinking “bear”
+
+But the details should not quite fit:
+
+* no clear feeding pattern
+* tracks inconsistent, missing, or placed oddly
+* Alex may have left the tent voluntarily before the attack
+* someone may have heard a familiar voice call him out, though no one admits doing it
+* the bear explanation becomes a mask the entity either used, staged, or exploited
+
+### Final Survival Tactic
+
+The final survival strategy should be practical, not a monster fight.
+
+Joel recognizes that the entity can only use what it has heard. By the late book, he and whoever remains must treat speech as dangerous. Silence, written notes, hand signals, and controlled phrases become survival tools.
+
+The preferred climax uses:
+
+* silence
+* written notes
+* refusal to answer disembodied voices
+* one deliberately planted phrase used as bait
+* the entity revealing itself by repeating something in the wrong voice, wrong context, or wrong timing
+
+The entity’s weakness is not stupidity. It is imitation without true human understanding.
+
+### Primary Ending Direction
+
+The primary ending currently favored:
+
+Joel survives and reaches ordinary human help. The official explanation is incomplete, simplified, or wrong. Joel says little. He cannot fully explain what happened without sounding insane, and he no longer trusts speech enough to try.
+
+Later, at home, he hears one phrase or sound in a voice that should not be there.
+
+This should not read as a cheap jump-scare. It should be precise, quiet, and psychologically destabilizing. The reader should not know whether:
+
+* the entity followed him,
+* the entity was never confined to the river,
+* Joel’s trauma has damaged his perception,
+* or ordinary sound has become unbearable because of what he survived.
+
+Immediate survival is resolved. The larger mystery remains unresolved.
+
+### Alternate Ending Variant to Preserve
+
+A darker ambiguous ending remains on the table:
+
+Joel is still in the wilderness, running out of daylight, awake for roughly thirty-six hours, and aware that if he falls asleep he will likely die. The story ends with him trapped between exhaustion, silence, and the need to keep moving.
+
+This ending would be more unresolved and existential. It may work if the book wants to deny the reader full escape. For now, it remains a preserved alternate, while the working default is Joel surviving into a quiet home-based ambiguity.
+
+## Resolved Open Questions
+
+```text
+River: Fictionalized northern Canadian Shield / Boundary Waters-like route.
+Survivor: Joel alone, unless later structural work demands one additional survivor.
+Entity: Never fully revealed; known through mimicry, traces, and partial glimpses.
+Alex’s death: Initially plausible as a bear attack, later revealed as wrong or incomplete.
+Entity rule: It can mimic only what it has heard. It cannot read minds or invent freely.
+Final tactic: Silence, written notes, and a planted phrase used to expose mimicry.
+Ending: Working default is Joel survives, then hears something impossible at home. Alternate preserved: exhausted wilderness ambiguity before sleep/death.
+```
+
+
+### Current Draft Canon Updates — Chapters 1–3
+
+These updates supersede any earlier implied versions in project notes.
+
+* Will and Mike do most of the route planning. Joel is competent and observant, but he is not the main planner.
+* Will’s truck carries the canoes and main gear to the put-in. Mike’s ancient Toyota Highlander is staged at the North Road Bridge / intended take-out. Alex flies in for the trip and has no vehicle present.
+* Will, Mike, and Joel are originally from St. Louis. Joel now lives in Madison, Wisconsin.
+* Alex lives in Seattle and has for a long time, but grew up in Alaska. He is more of a mountain/backpacking guy than a canoe expert.
+* Joel is engaged. No one in the group is divorced. Will has a pattern of mostly 3–9 month relationships, with a couple longer ones. Mike’s relationships are more sporadic, sometimes more serious, and tend to end badly. Alex keeps relationships close to the vest or appears largely unattached.
+* Experience levels: Mike and Will are the most frequent/experienced canoe trippers; Joel is competent but usually does fewer trips; Alex is the least canoe-skilled and is generally fine admitting it.
+* The men usually say “front,” “back,” “left,” and “right,” not formal canoeing terms like “bow” and “stern” in ordinary dialogue.
+* The men say “portage,” not “carry,” when referring to a portage.
+* Default water/portage footwear is hiking sandals unless a scene establishes boots or camp shoes.
+* Will fishes constantly and often wants to fish from camp or during pauses.
+* Mike is more likely than Will to check phone service or worry about communications. Will is not a phone-scroller by default; he is more oriented toward maps, knots, fishing, gear, and technical distinctions.
+* Alex is picky about food, with a sensitive palate and a tendency toward bland foods, though he is trying to branch out.
+* Mike’s signature phrase is: “We’re exactly where we ought to be.”
+
+## Drafting Plan
+
+1. Finalize this story bible.
+2. Create a route/day map.
+3. Create a phrase/mimicry ledger: phrases introduced early and paid off later.
+4. Build rough 30ish chapter outline.
+5. Draft Chapter 1 in close third through Joel.
+6. After each chapter, update continuity notes and phrase ledger.
+7. Complete the full rough draft before heavy line edits.
+
+## Current Best Version of the Book
+
+A restrained literary wilderness horror novel about four men on a remote canoe trip, one brutal death, and an entity that turns friendship itself into a weapon by learning the sounds, jokes, phrases, and evasions that hold the group together.
+
+The central terror is not simply that something in the woods can sound like your friend. It is that it can only sound like your friend because you gave it your friend in pieces.

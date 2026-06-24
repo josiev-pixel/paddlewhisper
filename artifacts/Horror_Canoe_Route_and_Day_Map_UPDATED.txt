@@ -1,0 +1,582 @@
+# Horror Canoe — Route & Day Map
+
+## Purpose of This Document
+
+This document turns the story bible into a physically plausible trip structure. It should answer the practical questions that make the horror believable:
+
+* Where are they?
+* How many days is the trip supposed to take?
+* Why can’t they immediately leave after Alex dies?
+* What are the exits?
+* What gear, weather, injuries, daylight, and terrain constraints shape their choices?
+* Where can the entity hear them, learn from them, separate them, and weaponize the route?
+
+This is a working map, not a literal cartographic document. It should feel coherent enough that a reader believes the men are trapped by distance, weather, fatigue, damaged gear, and bad information rather than by author convenience.
+
+## Overall Trip Shape
+
+### Intended Trip Length
+
+Seven days / six nights.
+
+The men expect a demanding but manageable wilderness canoe route: lakes, short river runs, several portages, old campsites, and one long final exit lake. They have done trips before, but this route is more remote than some of their usual ones.
+
+### Actual Story Length
+
+Approximately seven to eight days, depending on the final structure.
+
+The plot should compress psychologically after Alex’s death, with days blending through fatigue, fear, and bad sleep.
+
+### Region Type
+
+Fictionalized northern Canadian Shield / Boundary Waters-like route.
+
+Key features:
+
+* black spruce and jack pine
+* granite shelves
+* cold lakes
+* narrow tannin-dark river channels
+* beaver dams
+* alder-choked bends
+* old logging traces
+* portage trails of varying quality
+* gravel bars and rock landings
+* scarce campsites
+* patchy or nonexistent cell service
+* early September weather: warm exertion, chilly nights, fog, sudden rain, wind over lakes
+
+## Route Logic
+
+The route should be a partial loop or lollipop route: they begin at a remote put-in, travel through a chain of connected water and portage segments, and are supposed to finish at a different access point where a shuttle or staged vehicle is waiting.
+
+This matters because after Alex dies, they cannot simply paddle back easily. They are already committed past several difficult carries and water sections. Going forward may be shorter on the map, but more uncertain. Going back may be familiar, but physically harder and emotionally horrifying.
+
+## Vehicle / Shuttle Plan
+
+The men stage two vehicles: one at the put-in and one at the intended take-out.
+
+This makes the plan competent and believable. They are not reckless beginners without an exit strategy. The horror comes from the route becoming compromised, not from obvious stupidity.
+
+Mike likely chose or strongly advocated for the route. He may exaggerate its safety and manageability, but probably without consciously lying. His flaw is confidence: he has done enough trips, bought and sold enough canoes, and talked through enough routes that he believes his own smoothing-over. He minimizes uncertainty before he understands how much uncertainty matters.
+
+
+### Current Vehicle / Shuttle Canon — Chapters 1–3
+
+* Will’s truck is the main gear and boat vehicle. It carries both canoes and most of the gear to the South Access / Old Landing.
+* Mike’s ancient Toyota Highlander is staged at the North Road Bridge / intended take-out.
+* Alex flies in and has no vehicle present. He drives an old Civic in ordinary life, but it is not on this trip.
+* Joel drives an old Acura in ordinary life / to Will’s house, but it is not used for route staging.
+* Will’s truck is left at the put-in. Mike’s Highlander is left at the take-out.
+* Will’s truck key is sealed in a dry pouch in Will’s pack after launch. Mike’s Highlander key should be established/tracked separately, ideally in Mike’s PFD or dry pouch.
+* The morning schedule is realistic rather than military: they may say “seven,” but Day 1 departure reality is closer to eight.
+
+### Current Boat / Portage Conventions
+
+* The group says “portage,” not “carry,” when referring to the trail between waters.
+* They use “front,” “back,” “left,” and “right” in normal dialogue rather than formal canoeing terms.
+* Default water/portage footwear is hiking sandals unless boots or camp shoes are specifically established.
+* Day 1 launch assignments: Mike in back / Will in front; Joel in back / Alex in front. Assignments can change later, but should be discussed on-page if they do.
+
+## Access Points
+
+### Put-in: South Access / Old Landing
+
+A remote gravel landing reached by a rough forest road. The men leave one vehicle or are dropped by a shuttle.
+
+Characteristics:
+
+* old signboard
+* muddy parking area
+* blackflies/mosquitoes near brush
+* faint cell service on the drive in, none at the water
+* evidence of other human presence, but not recent enough to feel safe
+
+### Intended Take-out: North Road Bridge / Final Landing
+
+A small bridge or landing near a logging road, reachable after several days of travel.
+
+Characteristics:
+
+* easier vehicle access than the put-in, but still remote
+* the planned endpoint
+* may be unreachable on foot from where the crisis begins without following the route
+* a staged vehicle, shuttle pickup, or agreed extraction time can add time pressure
+
+### Emergency Exit Possibilities
+
+There should be possible exits that are technically real but practically bad.
+
+1. **Old Fire Road**
+
+   * Crosses near one portage but is overgrown.
+   * Might be marked on Mike’s map.
+   * Could be impassable or much farther than expected.
+
+2. **Ranger / Maintenance Cabin**
+
+   * Possibly exists on an older map.
+   * May be abandoned, locked, burned, or not where expected.
+   * Useful as a goal that fails.
+
+3. **Long Backtrack to Put-in**
+
+   * Familiar route, but requires reversing portages and possibly crossing wind-exposed water.
+   * After death, fear makes revisiting sites unbearable.
+
+4. **Push Forward to Take-out**
+
+   * Shorter in theory.
+   * Requires unknown water, hard carries, and at least one dangerous crossing.
+
+## Why They Can’t Just Leave After Alex Dies
+
+The story needs several overlapping constraints. No single reason should feel contrived; together they trap the survivors plausibly.
+
+### 1. Distance
+
+By Night Two, they are far enough in that the put-in is not a quick paddle back. Reversing the route would mean a full day or more under good conditions, with shock, body recovery questions, and portages.
+
+### 2. Terrain
+
+The route is not a simple downstream float. It includes lake crossings, portages, shallow channels, beaver obstructions, and confusing marsh sections.
+
+### 3. Weather
+
+Wind rises after Alex’s death, making the obvious lake crossing unsafe. Rain and fog reduce visibility. Cold nights worsen exhaustion.
+
+### 4. Communication Failure
+
+No reliable cell service. They do not bring a satellite messenger or emergency beacon. This is not because they are reckless beginners: they have two vehicles staged, paper maps, ordinary wilderness competence, and a route that Mike has framed as remote but manageable. After Alex dies, the lack of an emergency device becomes one of the first practical realities they cannot undo. They have to reach help physically.
+
+### 5. Body / Duty / Shock
+
+They cannot emotionally or morally treat Alex as a lost backpack. They argue about whether to recover the body, secure the site, wait for help, mark the location, or move immediately.
+
+### 6. Group Conflict
+
+Mike may insist he knows the fastest way out. Will may panic and over-theorize. Joel may want caution. Their disagreement costs daylight.
+
+### 7. Damaged or Missing Gear
+
+The attack or aftermath may damage one tent, a food bag, a paddle, a pack, a thwart, a map case, or a communication device. Nothing should be so convenient that it feels authored, but enough should be compromised to narrow options.
+
+## Day-by-Day Map
+
+## Day 0 — Arrival / Drive / Put-in Staging
+
+### Story Function
+
+Establish friendship rhythms, logistics, old jokes, gear competence, and the first small hints of friction.
+
+### Location
+
+Drive north. Cheap motel or campground near the access road, or very early morning departure directly to the put-in.
+
+### Key Events
+
+* Will and Mike manage route talk, maps, gear logic, and planning arguments.
+* Will talks too much about gear, weather, or unemployment-adjacent distractions.
+* Alex is loud, funny, physical, maybe needling everyone.
+* Joel observes rather than leads.
+* Establish repeated phrases and vocal habits.
+
+### Possible Mimicry Seeds
+
+* Alex: “Quit mothering me.”
+* Mike: “We’re fine. We’re exactly where we ought to be.”
+* Will: nervous laugh/cough, gear jargon, “That’s not how that works.”
+* Joel: says little; maybe one dry phrase the others later recognize.
+
+### Practical Notes
+
+This may be Chapter 1 or folded into the first chapter. Do not rush it. The friendship must feel old before it breaks.
+
+## Day 1 — Put-in to First Camp
+
+### Story Function
+
+Ground the reader in canoe process and establish the wilderness as beautiful but indifferent.
+
+### Route
+
+Old Landing → narrow lake → short portage → winding river section → First Camp on granite shelf or pine point.
+
+### Conditions
+
+Mild day, bugs at dusk, chilly after sunset.
+
+### Key Events
+
+* Boats loaded.
+* First paddle rhythm established.
+* Joel notices Mike’s confidence and small evasions.
+* Alex makes the trip feel alive.
+* Will over-documents or over-explains gear.
+* First camp is ordinary: tents, water, stove, food hang/canister, fire if allowed.
+
+### Entity Presence
+
+Almost none. A distant sound could be mistaken for a bird, fox, loon, or echo. It should not yet feel like a monster.
+
+### Mimicry Seeds
+
+* Paddle knocks.
+* Tent zipper.
+* Alex laughing from shore.
+* Someone calling “coming through” or “hold up.”
+* Mike using a route phrase repeatedly.
+
+## Day 2 — Deeper Route / Second Camp / Alex Dies at Night
+
+### Story Function
+
+Make Alex vivid, deepen group tension, then rupture the book.
+
+### Route
+
+First Camp → beaver-dam pullovers → longer lake → rougher portage → Second Camp near a constricted channel or marsh edge.
+
+### Conditions
+
+Warmer exertion by day. Mosquito-heavy evening. Wind shifts late. Night gets cold.
+
+### Key Events Before Night
+
+* Alex has strong page presence: jokes, complaints, small generosity, old grievance, physical confidence.
+* Mike minimizes route difficulty.
+* Will needles Mike or spirals into theories about something practical.
+* Joel notices a phrase repeated oddly across water but dismisses it.
+* Camp placement may be imperfect: too close to brush, poor sightlines, uneven ground.
+
+### Night Event
+
+Alex dies just outside of camp, beyond the reliable edge of firelight/headlamp light.
+
+He should not die far away in a way that feels logistically random. He is close enough that the others feel they should have been able to help, but far enough that confusion, darkness, brush, panic, and sound distort what happened.
+
+Possible sequence:
+
+* Alex hears or thinks he hears someone just beyond camp.
+* He steps out to check, piss, retrieve something, or answer a voice.
+* The men hear movement, a phrase, Alex swearing, an animal-like impact, and then violence.
+* By the time they reach him, the scene supports a bear-like explanation but feels subtly wrong.
+
+### Initial Explanation
+
+Bear or large animal attack.
+
+### Wrong Details to Seed
+
+* The body position is wrong.
+* Tracks are incomplete or strange.
+* Alex seems to have moved voluntarily before violence.
+* A phrase may have been heard in a voice that does not make sense.
+* Food-storage evidence is suggestive but not conclusive.
+
+## Day 3 — Morning After / First Failed Exit Decision
+
+### Story Function
+
+Shock, responsibility, logistics, denial. The survivors try to restore the world to ordinary categories.
+
+### Route
+
+Second Camp remains the center for much of the day. Depending on decisions, they may attempt to move late or fail to move.
+
+### Conditions
+
+Cold gray morning. Fog or rain possible. Wind increasing over the lake they would need to cross.
+
+### Key Events
+
+* They argue about what happened.
+* They debate whether to activate emergency device, move, stay, mark the site, recover the body, or backtrack.
+* Mike may overcontrol.
+* Will may talk too much because silence is unbearable.
+* Joel starts noticing contradictions but does not yet know what they mean.
+
+### Practical Constraint
+
+Wind or weather prevents a safe lake crossing. They lose daylight through argument and shock.
+
+### Entity Development
+
+First mimicry after death. It should be deniable but wrong.
+
+Possible example: Alex’s laugh or a phrase from the previous day heard from brush, water, or across camp.
+
+### Mimicry Ledger Importance
+
+This is where the story establishes that the entity can now use Alex.
+
+## Day 4 — Attempted Movement / Weather Pins Them
+
+### Story Function
+
+They try to act rationally and discover the route is now hostile.
+
+### Route
+
+Second Camp → attempted crossing or backtrack → forced landing / emergency camp.
+
+### Conditions
+
+Wind, rain, low visibility. Cold hands. Wet gear.
+
+### Key Events
+
+* They attempt to move because staying feels impossible.
+* A canoe may be damaged or a pack lost during a bad landing.
+* Someone hears a voice from a direction no one should be.
+* Will gives the entity more material by shouting, arguing, or calling names.
+* Joel begins to suspect repetition, not intelligence.
+
+### Practical Problem
+
+One of the following:
+
+* damaged paddle
+* wet sleeping bag
+* lost food bag
+* cracked canoe rib/thwart
+* lost map case
+* no emergency beacon or satellite messenger; they must physically reach help
+
+### Entity Development
+
+Mimicry becomes more targeted but still imperfect. It uses phrases from Day 1 or 2 in slightly wrong contexts.
+
+## Day 5 — The Bad Exit / Abandoned Ranger Cabin
+
+### Story Function
+
+Give them hope of a practical escape, then let ordinary wilderness reality and the entity undermine it.
+
+### Route
+
+Forced Camp → portage toward old fire road / cabin spur / maintenance trace.
+
+### Conditions
+
+Clearing weather but wet underbrush. Bugs return. Exhaustion sharpens conflict.
+
+### Key Events
+
+* Mike points to an old map feature as emergency exit.
+* Joel distrusts the certainty but cannot offer better.
+* They leave the water route partially or fully.
+* The woods make sound direction unreliable.
+* The entity uses voices to separate or delay them.
+
+### Practical Problem
+
+The ranger cabin exists, but it is abandoned and useless: empty, partially collapsed, stripped, burned out, locked with nothing functional inside, or too old to help. It may contain evidence that people have been there before, but not recently enough to save them.
+
+This failure should damage Mike’s authority. He was not malicious, but his confidence has now cost them precious time, strength, and daylight.
+
+### Entity Development
+
+The entity uses living voices now, not just Alex. It may imitate Mike to Will, or Will to Joel.
+
+### Possible Major Turn
+
+The men realize visual confirmation matters. Hearing a friend is no longer enough.
+
+## Day 6 — Speech Becomes Dangerous
+
+### Story Function
+
+The survivors begin developing rules. The book shifts from “what is happening?” to “how do we survive what we now partly understand?”
+
+### Route
+
+Return from failed exit to water route, or push through a hard portage toward the final exit chain.
+
+### Conditions
+
+Physically draining. Sleep deprivation beginning to matter. Food and dry clothing compromised.
+
+### Key Events
+
+* Joel articulates the mimicry rule, maybe not perfectly.
+* They test it or argue about it.
+* Written communication begins.
+* They establish a rule: do not answer voices unless you can see the person.
+* Someone violates the rule under emotional pressure.
+
+### Practical Problem
+
+They must still travel. Silence makes practical canoeing and portaging much harder.
+
+### Entity Development
+
+The entity starts exploiting silence itself: using small sounds, coughs, gear noises, paddle knocks, and remembered phrases instead of full sentences.
+
+### Possible Death or Loss
+
+Mike dies second, after Alex.
+
+His death should grow from his core flaw: overconfidence, route control, or the need to fix what his certainty helped break. He may die trying to prove the cabin/exit route still matters, retrieve gear, correct a mistake, or physically lead the group out of a bad decision.
+
+His death should not make him a fool. It should feel like a capable man finally reaching the limit of competence in a place where confidence has become dangerous.
+
+## Day 7 — Final Push / Planted Phrase
+
+### Story Function
+
+Joel uses understanding, not force, to create a narrow chance of survival.
+
+### Route
+
+Last lake chain / final portage / road-bridge approach.
+
+### Conditions
+
+Running out of daylight. Wind over open water. Severe fatigue. Joel may have been awake for thirty-plus hours by late day.
+
+### Key Events
+
+* Will dies third, after Mike.
+* Joel plants a phrase or sound intentionally, or realizes too late that Will has given the entity one final devastating piece of material.
+* He uses writing or hand signals to avoid giving the entity more material.
+* The entity repeats something in the wrong context, exposing itself or confirming a false voice.
+* Joel makes the final choice to move, stay silent, abandon gear, or leave another man.
+
+### Practical Problem
+
+Exhaustion. Diminishing daylight. Need to cross or portage before dark. Risk of sleep.
+
+### Entity Development
+
+The entity is at its most convincing, but also most clearly limited. It can sound human but does not understand human context fully.
+
+## Day 8 / Aftermath — Exit or Ambiguous Continuation
+
+### Primary Ending Route
+
+Joel reaches the final landing, road, cabin, truck, ranger, logging crew, or some form of human help. The rescue is not clean. Authorities simplify the story. Joel says little.
+
+Later, home.
+
+He hears one phrase or sound in a voice that should not be there.
+
+The ending remains ambiguous:
+
+* entity followed him
+* trauma altered him
+* ordinary sound has become unbearable
+* the world was never as safely divided as he believed
+
+### Alternate Ending Route
+
+Joel never fully exits. The book ends with him awake for roughly thirty-six hours, running out of daylight, knowing sleep may mean death. He has enough understanding to survive one more hour, but not enough certainty to survive the night.
+
+This version is bleaker and more unresolved. Preserve as alternate until the final third reveals what the book wants.
+
+## Proposed Physical Route Summary
+
+```text
+Day 0: Drive / staging near remote access.
+Day 1: Put-in → first lake → short portage → First Camp.
+Day 2: First Camp → beaver obstructions → rough portage → Second Camp. Alex dies at night.
+Day 3: Second Camp. Shock, body, bear theory, failed exit decision. Weather blocks movement.
+Day 4: Attempted movement. Forced landing or emergency camp. Gear damage/loss.
+Day 5: Attempted emergency exit via old fire road/cabin. Fails.
+Day 6: Return/push forward. Speech rules begin. Possible separation/death.
+Day 7: Final push toward take-out. Planted phrase. Last major confrontation.
+Day 8: Exit/aftermath or alternate unresolved wilderness ending.
+```
+
+## Key Practical Constraints to Track
+
+### Boats
+
+Four men likely travel in two tandem canoes.
+
+After Alex dies, three men remain with two canoes. This creates awkward logistics but not impossibility.
+
+Possible effects:
+
+* one canoe is now soloed badly or loaded awkwardly
+* wind makes solo control difficult
+* portages become slower
+* if one canoe is damaged, options collapse quickly
+
+### Communication
+
+They do not bring a satellite messenger or emergency beacon.
+
+This should feel plausible rather than stupid. They have two vehicles staged, one at the put-in and one at the take-out. They have paper maps, prior trip experience, ordinary wilderness competence, and Mike’s confident assurance that the route is remote but manageable. The group has likely done prior trips without needing emergency technology, and early September does not feel to them like true shoulder-season danger.
+
+This absence becomes part of Mike’s tragic overconfidence. He did not consciously endanger them. He simply rounded the risk down until it looked acceptable.
+
+After Alex’s death, the lack of a satellite device becomes one of the first practical realities they cannot undo. They have to reach help physically.
+
+### Maps
+
+They should have paper maps. Mike may also have GPS or downloaded maps. Battery, water, broken case, or outdated map information can create tension.
+
+### Food
+
+Enough for the planned trip plus small margin. After Alex dies, food is not the main early problem, but lost food or contaminated storage can increase pressure.
+
+### Shelter
+
+One tent may be damaged during Alex’s death. This makes cold, rain, and sleep more dangerous.
+
+### Weapons / Defense
+
+They may have bear spray, knives, hatchet, paddle, maybe no firearm. Bear spray can be used or lost early, reinforcing the bear theory while failing to solve the real threat.
+
+### Sleep
+
+Sleep should become a major late-book threat. The entity is sound-based, but fatigue makes judgment collapse. Joel being awake for thirty-six hours near the end is a strong preserved element.
+
+## Mimicry Route Opportunities
+
+### Across Water
+
+Sound carries strangely over lakes. A voice can seem closer, farther, or directionless.
+
+### Portage Trails
+
+Single-file movement, limited sightlines, brush noise, gear noise. Easy to separate men without fully showing anything.
+
+### Camp Edge
+
+The threshold between firelight/tent space and brush. The entity should often work this boundary.
+
+### Fog / Rain
+
+Dampens some sounds, exaggerates others. Makes visual confirmation harder.
+
+### Night Water
+
+Paddle drips, fish jumps, loon calls, distant knocks, something entering or leaving the water.
+
+## Route Questions Still to Refine
+
+Most major route questions are now answered.
+
+Resolved:
+
+1. They stage two vehicles: one at the put-in, one at the take-out.
+2. They do not bring a satellite messenger or emergency beacon.
+3. Mike chooses or strongly advocates for the route and exaggerates its safety, probably without realizing it.
+4. Alex dies just outside camp, beyond reliable light.
+5. The abandoned ranger cabin is the major failed exit attempt.
+6. Mike dies second, after Alex.
+7. Will dies third, after Mike.
+8. The entity is never seen clearly; Joel never gets true visual confirmation.
+9. The final home sound remains undecided and should be chosen later based on emotional resonance and terror.
+
+Still to decide:
+
+1. What exact mistake or emotional pressure leads to Mike’s death?
+2. What exact mistake or emotional pressure leads to Will’s death?
+3. Does Joel reach help on Day 8, or does the alternate wilderness-exhaustion ending become stronger during drafting?
+
+## Current Best Route Version
+
+The men begin a seven-day remote northern canoe route with two vehicles staged: one at the put-in and one at the intended take-out. They do not bring a satellite messenger or emergency beacon because the route feels manageable to them, especially to Mike. Mike chose or strongly advocated for the route and has exaggerated its safety, probably without realizing it. By Night Two, they are deep enough that returning is physically and emotionally hard. Alex dies just outside camp in a bear-plausible attack that may have begun with mimicry. With no way to call for emergency extraction, they have to reach help physically. Weather, damaged gear, a failed attempt to use an abandoned ranger cabin, and group conflict force the survivors deeper into the route. Mike dies second, undone by confidence and the need to recover control. Will dies third, after giving the entity more language, panic, or emotional material. The entity is never seen clearly. As it gathers their voices, Joel learns that speech itself is the danger. The final escape depends on silence, written communication, and exploiting imitation without understanding. The final home sound remains undecided until the emotional shape of the ending is clearer.

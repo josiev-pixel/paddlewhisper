@@ -1,0 +1,630 @@
+# Horror Canoe — Mimicry Ledger
+
+## Purpose of This Document
+
+The entity can mimic only sounds, voices, phrases, and patterns it has heard. It cannot read minds. It cannot invent freely from nothing. Therefore, every major act of mimicry needs a prior seed.
+
+This ledger tracks what the entity hears, when it hears it, who originally produces it, and how the sound or phrase returns later in a more frightening context.
+
+The goal is to make the horror feel inevitable in retrospect: the men arm the thing by being themselves.
+
+## Core Rule
+
+If the entity uses a voice, phrase, joke, cough, gear sound, or repeated pattern later, that material must appear earlier in the manuscript.
+
+The reader does not need to consciously notice every seed. Some should be obvious. Some should sit quietly in ordinary scenes and only become frightening when repeated later.
+
+## Types of Mimicry
+
+### 1. Voice Mimicry
+
+The entity imitates a man’s spoken voice. This is the most obvious and dangerous form, but it should not be overused early.
+
+### 2. Phrase Mimicry
+
+The entity repeats exact or near-exact phrases it has heard. These become more frightening when used in the wrong emotional or practical context.
+
+### 3. Habit Mimicry
+
+The entity imitates repeated nonverbal habits:
+
+* Will’s cough or nervous laugh
+* Alex’s bark of laughter
+* Mike’s throat clear before making a decision
+* Joel’s soft “yeah” or silence before answering
+
+### 4. Gear / Camp Sound Mimicry
+
+The entity repeats ordinary trip sounds:
+
+* tent zipper
+* paddle knock against gunwale
+* water bottle crinkle
+* dry bag buckle
+* stove click
+* boot scrape on rock
+* canoe hull bumping stone
+* bear canister / food barrel latch
+* hatchet tap
+
+These should become especially useful once the men stop trusting voices.
+
+### 5. Environmental Mimicry
+
+The entity may imitate or exploit natural sounds:
+
+* loon call
+* fox bark
+* branch crack
+* fish jump
+* beaver tail slap
+* rain on tarp
+* wind through spruce
+* water dripping from a paddle
+
+This should remain ambiguous. Sometimes the woods are just the woods.
+
+## Escalation Principle
+
+The entity’s mimicry should develop in stages:
+
+1. **Pre-death ambiguity** — sounds that could be animals, echoes, or men mishearing each other.
+2. **Post-Alex wrongness** — Alex’s voice, laugh, or phrases appear after death, but in brief and deniable ways.
+3. **Living voice confusion** — the entity uses Mike and Will’s voices while they are still alive.
+4. **Tactical mimicry** — the entity uses sound to separate, delay, lure, or make the men violate their own rules.
+5. **Silence-phase mimicry** — once the men stop speaking, the entity uses smaller sounds: gear, coughs, footsteps, paddle knocks.
+6. **Final misuse** — the entity repeats a planted phrase or emotionally loaded line in the wrong context, exposing its limitation.
+
+## Character Sound Profiles
+
+## Joel
+
+### Baseline
+
+Quiet, restrained, observant. Joel does not give the entity as much material as the others. His silence becomes an advantage later, but also isolates him.
+
+### Vocal Habits
+
+* short answers: “yeah,” “no,” “hold on,” “wait”
+* dry, understated remarks
+* low voice, not theatrical
+* may repeat practical confirmations rather than emotional phrases
+
+### Possible Signature Line
+
+“Wait. Just wait.”
+
+This can begin as a practical line during paddling or loading, then return later as a terrifying command from the dark.
+
+### Entity Use
+
+The entity should use Joel’s voice sparingly. Because Joel speaks less, his voice is rarer and therefore more frightening when it appears.
+
+Possible late use: Joel hears his own voice from beyond visual range saying something he said only once, forcing him to realize the thing heard him when he thought it was not near.
+
+## Mike
+
+### Baseline
+
+Confident, managerial, route-focused. He uses reassurance as control. His phrases often smooth over risk.
+
+### Vocal Habits
+
+* clears his throat before making a plan
+* speaks in route certainties
+* minimizes difficulty
+* uses phrases that sound practical but become ominous later
+
+### Signature Lines / Seeds
+
+1. “We’re fine.”
+2. “We’re exactly where we ought to be.”
+3. “It opens up after this.”
+4. “Map says there’s a cabin.”
+5. “Just keep moving.”
+
+### Entity Use
+
+Mike’s voice should become associated with false certainty. The entity can use him to lure others into wrong movement.
+
+Examples:
+
+* A Mike-voice from ahead on a portage: “It opens up after this.”
+* A Mike-voice near the abandoned cabin: “Map says there’s a cabin.”
+* After Mike’s death: “Just keep moving,” from somewhere the trail does not go.
+
+### Emotional Damage
+
+Mike’s repeated phrases should become indictments of his overconfidence. After he dies, his voice continues managing them, but now management itself is predatory.
+
+## Will
+
+### Baseline
+
+Talkative, anxious, technical, recently unemployed. Will explains because silence makes him uncomfortable. He gives the entity the most raw material.
+
+### Vocal Habits
+
+* nervous laugh
+* dry cough or throat tick
+* starts sentences with “No, no, no—”
+* gear explanations
+* says “That’s not how that works”
+* repeats himself when frightened
+
+### Signature Lines / Seeds
+
+1. “That’s not how that works.”
+2. “No, no, no.”
+3. “I’m just saying.”
+4. “There’s a difference.”
+5. “You guys hear that?”
+
+### Entity Use
+
+Will’s voice should be the entity’s easiest living voice because he speaks constantly. It can imitate him early and imperfectly.
+
+Examples:
+
+* A Will-cough from the wrong side of camp.
+* “You guys hear that?” from the trees while Will is visibly beside Joel.
+* “No, no, no,” repeated after Will dies, perhaps too evenly, without panic.
+
+### Emotional Damage
+
+Will’s need to explain becomes a liability. After his death, the entity may use his anxious phrases in a flattened way, making his fear feel preserved but emptied.
+
+## Alex
+
+### Baseline
+
+Loud, physical, teasing, alive in the group. He should be vivid before death so that his voice afterward hurts.
+
+### Vocal Habits
+
+* loud bark of laughter
+* mock complaint
+* teasing insults
+* says things with physical bravado
+* may call others by nicknames
+
+### Signature Lines / Seeds
+
+1. “Quit mothering me.”
+2. “You coming or writing a poem?”
+3. “Jesus, listen to this guy.”
+4. “I’m taking a piss. Nobody panic.”
+5. “Hold up.”
+
+### Entity Use
+
+Alex’s voice is the first dead voice and should be the major rupture.
+
+Examples:
+
+* Morning after his death, a low laugh from the brush.
+* “Quit mothering me,” from near the blood site.
+* “I’m taking a piss. Nobody panic,” late at night, turning a funny ordinary line into a lure.
+* “Hold up,” from behind them on a portage.
+
+### Emotional Damage
+
+Alex’s mimicry should be grief before it is fear. The men should hate that part of them wants to answer him.
+
+## Nonverbal Sound Bank
+
+These sounds should be established early as normal camp/trip texture. Later they can become predatory.
+
+### Canoe / Water
+
+* paddle knock on gunwale
+* hull scraping gravel
+* canoe bumping rock at night
+* water dripping from lifted paddle
+* dry bag sliding in canoe
+* thwart creak
+* painter rope tapping hull
+
+### Camp
+
+* tent zipper
+* stove clicking before flame
+* food barrel latch
+* bear rope sliding over branch
+* mug set on granite
+* hatchet biting wood
+* tarp line snapping in wind
+* sleeping pad squeak
+
+### Body / Habit
+
+* Will’s cough
+* Alex’s laugh
+* Mike clearing his throat
+* Joel’s quiet “wait”
+* boot scrape on stone
+* someone spitting toothpaste
+* someone pissing just beyond camp
+
+### Woods / Waterline
+
+* beaver slap
+* loon call
+* fox bark
+* branch crack
+* alder brush moving
+* fish jump
+* rain ticking on tarp
+* wind through spruce
+
+## Day-by-Day Mimicry Plan
+
+## Day 0 — Drive / Staging
+
+### Purpose
+
+Establish ordinary human sounds and group language before the entity is obviously present.
+
+### Seeds to Introduce
+
+| Source | Sound/Phrase                         | Context                                          | Later Use                                             |
+| ------ | ------------------------------------ | ------------------------------------------------ | ----------------------------------------------------- |
+| Alex   | “Quit mothering me.”                 | Someone warns him about gear, food, or drinking. | Heard after death near camp edge or blood site.       |
+| Mike   | “We’re fine.”                        | Reassuring someone about route or timing.        | Used later from wrong direction to make someone move. |
+| Mike   | “We’re exactly where we ought to be.” | Said while checking map.                         | Returns after the men are clearly lost or trapped.    |
+| Will   | “That’s not how that works.”         | Correcting someone about gear/weather/GPS.       | Used later with no understanding, in wrong context.   |
+| Alex   | loud laugh                           | Van, motel, landing.                             | First post-death mimicry may be laugh-like.           |
+| Will   | nervous cough/laugh                  | During route talk or awkward silence.            | Heard from wrong side of camp.                        |
+
+### Notes
+
+These must feel like normal friend-group rhythms, not obvious setup.
+
+## Day 1 — Put-in / First Camp
+
+### Purpose
+
+Add gear and wilderness sounds. The entity may be near enough to hear but should not be identified.
+
+### Seeds to Introduce
+
+| Source | Sound/Phrase                    | Context                                             | Later Use                                              |
+| ------ | ------------------------------- | --------------------------------------------------- | ------------------------------------------------------ |
+| Mike   | “It opens up after this.”       | Describing a channel, portage, or route difficulty. | Used as false guidance near the failed cabin route.    |
+| Joel   | “Wait. Just wait.”              | Practical caution during loading or landing.        | Late mimicry in Joel’s own voice.                      |
+| Alex   | “You coming or writing a poem?” | Teasing Joel for observing instead of moving.       | Later used to lure Joel or hurt him emotionally.       |
+| Group  | paddle knock                    | Normal canoe handling.                              | Later as location bait in fog/night.                   |
+| Camp   | tent zipper                     | Ordinary first night camp sound.                    | Later imitated outside the wrong tent.                 |
+| Camp   | food barrel latch               | Food routine.                                       | Later suggests animal/bear activity or human presence. |
+
+### Possible First Wrongness
+
+A distant paddle knock after the canoes are pulled well above shore. Joel notices but dismisses it as wood shifting or water against hull.
+
+## Day 2 — Deeper Route / Alex Dies
+
+### Purpose
+
+Strengthen Alex’s voice before removing him. Give the entity enough material to weaponize him.
+
+### Seeds to Introduce
+
+| Source | Sound/Phrase                       | Context                                            | Later Use                                         |
+| ------ | ---------------------------------- | -------------------------------------------------- | ------------------------------------------------- |
+| Alex   | “I’m taking a piss. Nobody panic.” | Before stepping away from camp earlier in evening. | Repeated later from dark after his death.         |
+| Alex   | “Hold up.”                         | Portage, paddling, or camp chore.                  | Used from behind them on trail.                   |
+| Mike   | “Map says there’s a cabin.”        | Discussing backup route before crisis.             | Becomes grimly ironic at abandoned cabin.         |
+| Will   | “You guys hear that?”              | First odd sound or ordinary animal noise.          | Used later by entity to make them listen/respond. |
+| Mike   | throat clear                       | Before decisive route talk.                        | Later precedes a false Mike-voice.                |
+| Woods  | branch crack / brush movement      | Normal animal possibility.                         | Used during Alex’s death and later lures.         |
+
+### Alex Death Sound Design
+
+Alex dies just outside camp.
+
+Possible sequence:
+
+1. Ordinary camp quiet.
+2. A voice or sound near the edge.
+3. Alex says something ordinary: “What?” or “Hold up.”
+4. Brush movement.
+5. Alex swears.
+6. A heavy impact or animal-like force.
+7. Confused yelling from the men.
+8. Silence, then an ordinary sound repeated wrong: zipper, cough, laugh, or phrase.
+
+### Important Constraint
+
+The scene should not reveal the entity. It should plausibly read as animal attack plus confusion.
+
+## Day 3 — Morning After / First Dead Voice
+
+### Purpose
+
+Introduce post-death mimicry in a way that could still be grief, shock, echo, animal, or mishearing.
+
+### Mimicry Events
+
+| Entity Uses          | Original Source | Immediate Effect                             | Later Meaning                       |
+| -------------------- | --------------- | -------------------------------------------- | ----------------------------------- |
+| Alex’s laugh         | Alex Day 0/1    | Stops the men cold; one denies hearing it.   | Establishes dead voice possibility. |
+| “Quit mothering me.” | Alex Day 0      | Heard near blood site or brush.              | Turns old joke into violation.      |
+| food barrel latch    | Camp Day 1      | Reinforces bear theory.                      | May be staged misdirection.         |
+| Will’s cough         | Will Day 0/1    | Makes Joel look for Will in the wrong place. | First living-habit mimicry.         |
+
+### Notes
+
+Do not let everyone agree immediately. One man should deny it. One should rationalize it. Joel should remember the exact phrase but distrust himself.
+
+## Day 4 — Attempted Movement / Forced Camp
+
+### Purpose
+
+Move from dead mimicry to tactical mimicry.
+
+### Mimicry Events
+
+| Entity Uses                     | Original Source  | Immediate Effect                             | Later Meaning                                     |
+| ------------------------------- | ---------------- | -------------------------------------------- | ------------------------------------------------- |
+| Mike: “It opens up after this.” | Mike Day 1       | Suggests false direction or false safety.    | Mike’s confidence becomes weaponized.             |
+| Alex: “Hold up.”                | Alex Day 2       | Makes someone turn back on portage.          | Dead friend used as command.                      |
+| paddle knock                    | Day 1 camp/water | Suggests canoe or person near shore.         | Sound becomes location bait.                      |
+| tent zipper                     | Day 1 camp       | Heard while all tents are visible or packed. | Camp safety compromised.                          |
+| Will: “You guys hear that?”     | Will Day 2       | Draws attention, invites response.           | The entity learns that questions make men answer. |
+
+### Notes
+
+This is where Joel may begin thinking in terms of repetition rather than intention.
+
+## Day 5 — Abandoned Ranger Cabin / Mike’s Collapse
+
+### Purpose
+
+Use Mike’s voice and phrases against the group. Break his authority before killing him.
+
+### Mimicry Events
+
+| Entity Uses                           | Original Source | Immediate Effect                       | Later Meaning                             |
+| ------------------------------------- | --------------- | -------------------------------------- | ----------------------------------------- |
+| Mike: “Map says there’s a cabin.”     | Mike Day 2      | Heard near or beyond the failed cabin. | Cruel echo of his wrong certainty.        |
+| Mike throat clear                     | Mike Day 2      | Precedes false instruction.            | The entity mimics decision-making rhythm. |
+| Will cough/laugh                      | Will Day 0/1    | Separates attention in brush.          | Living voices are no longer safe.         |
+| Alex: “You coming or writing a poem?” | Alex Day 1      | Aimed at Joel.                         | Grief and mockery fused.                  |
+| food barrel latch / dry bag buckle    | Camp Day 1      | Suggests gear or animal disturbance.   | Pulls Mike toward retrieval/control.      |
+
+### Mike Death Possibility
+
+Mike dies trying to restore control:
+
+* retrieving gear he believes they need
+* checking the abandoned cabin again
+* following what he thinks is Will’s voice
+* trying to prove the route still works
+* going ahead on trail because “it opens up after this”
+
+His death should be rooted in capability and overconfidence, not foolishness.
+
+## Day 6 — Speech Rules / After Mike
+
+### Purpose
+
+The survivors recognize the rule more clearly. Speech becomes dangerous. Written notes begin.
+
+### Mimicry Events
+
+| Entity Uses               | Original Source  | Immediate Effect                              | Later Meaning                      |
+| ------------------------- | ---------------- | --------------------------------------------- | ---------------------------------- |
+| Mike: “Just keep moving.” | Mike earlier     | Tempts them into motion without confirmation. | Dead authority keeps commanding.   |
+| Will: “No, no, no.”       | Will panic habit | Causes Joel to break silence or look back.    | Will’s fear becomes bait.          |
+| Joel: “Wait. Just wait.”  | Joel Day 1       | Terrifies Joel because his own voice is rare. | Confirms the entity heard him too. |
+| boot scrape / pack shift  | Normal travel    | Makes silence unsafe too.                     | The entity adapts to their rules.  |
+| paddle drip / hull bump   | Water travel     | Suggests impossible nearby movement.          | Geography becomes uncertain.       |
+
+### Notes
+
+This day should make clear that silence helps but does not fully save them. The entity still has the world’s sounds.
+
+## Day 7 — Will’s Death / Final Push
+
+### Purpose
+
+Will’s talkativeness, panic, or need to explain gives the entity one final tool. Joel becomes alone or effectively alone.
+
+### Mimicry Events
+
+| Entity Uses                                | Original Source | Immediate Effect                                           | Later Meaning                              |
+| ------------------------------------------ | --------------- | ---------------------------------------------------------- | ------------------------------------------ |
+| Will: “That’s not how that works.”         | Will Day 0      | Used in wrong context; uncanny because semantically empty. | Imitation without understanding.           |
+| Will: “There’s a difference.”              | Will earlier    | Repeated as if meaningful, but wrong.                      | Shows the entity has tone but not thought. |
+| Mike: “We’re exactly where we ought to be.” | Mike Day 0      | Heard when Joel is lost/exhausted.                         | Final indictment of the trip’s premise.    |
+| Alex: “I’m taking a piss. Nobody panic.”   | Alex Day 2      | Used as grotesque lure or memory.                          | Ordinary line becomes unbearable.          |
+| Joel’s planted phrase                      | Joel Day 7      | Entity repeats it incorrectly.                             | Exposes limitation.                        |
+
+### Will Death Possibility
+
+Will dies because he cannot stop engaging with the voice. His tragedy is not stupidity; it is the human need to explain, answer, correct, and be heard.
+
+Possible sequence:
+
+* Will hears Mike or Alex.
+* Joel warns him in writing not to answer.
+* Will tries to test the thing verbally.
+* The entity repeats him back, almost right.
+* Will becomes convinced he can prove something or force a contradiction.
+* He gives it more language and then follows a sound.
+
+## Day 8 / Aftermath — Home Sound Possibilities
+
+The final home sound is undecided and should be chosen after drafting the emotional arc.
+
+### Candidate Final Sounds
+
+## Option A — Alex
+
+### Sound
+
+Alex’s laugh, then a soft version of “Quit mothering me.”
+
+### Effect
+
+Most grief-heavy. Brings the first rupture back into Joel’s ordinary life.
+
+### Risk
+
+May feel like a familiar horror stinger if too direct.
+
+## Option B — Mike
+
+### Sound
+
+Mike clearing his throat, then: “We’re exactly where we ought to be.”
+
+### Effect
+
+Thematically strong. Turns the whole trip’s false confidence into the last line of terror.
+
+### Risk
+
+More cerebral than visceral.
+
+## Option C — Will
+
+### Sound
+
+Will’s cough/laugh from another room, then: “That’s not how that works.”
+
+### Effect
+
+Uncanny and sad. The phrase points directly to the entity’s limitation and Joel’s inability to explain what happened.
+
+### Risk
+
+May be less emotionally devastating than Alex or Mike.
+
+## Option D — Joel Himself
+
+### Sound
+
+Joel hears his own voice say, “Wait. Just wait.”
+
+### Effect
+
+Most psychologically destabilizing. Raises the possibility that trauma, mimicry, and selfhood have collapsed.
+
+### Risk
+
+More ambiguous, less concrete grief.
+
+## Option E — Nonverbal Only
+
+### Sound
+
+Tent zipper, paddle knock, or food barrel latch in his house.
+
+### Effect
+
+Subtler, less jump-scare. Suggests the wilderness has entered domestic space without needing a voice.
+
+### Risk
+
+May not deliver enough final emotional force.
+
+## Current Preferred Final Sound Candidates
+
+Do not decide yet. Strongest candidates for now:
+
+1. Mike: “We’re exactly where we ought to be.”
+2. Joel’s own voice: “Wait. Just wait.”
+3. A nonverbal wilderness sound inside the house, followed by silence.
+
+The final choice should depend on what the completed draft makes most painful.
+
+
+## Drafted Chapter Seeds — Chapters 1–3
+
+These are now established in the manuscript draft and should be treated as available to the entity later, subject to proximity.
+
+### Chapter 1 — Day 0 / Drive and motel
+
+* Alex: “Quit mothering me.”
+* Alex’s hard bark of laughter.
+* Mike: “We’re fine.”
+* Mike: “We’re exactly where we ought to be.”
+* Will: “That’s not how that works.”
+* Will: “I’m just saying.”
+* Will’s dry cough / cough-laugh.
+* Food barrel latch.
+* Canoe strap buckle click and strap hum.
+* Paddles knocking together under the truck cap.
+* Motel door latch / muffled room sounds.
+
+### Chapter 2 — Day 1 / Two vehicles and launch
+
+* Joel: “Wait. Just wait.” Seeded during practical canoe unloading.
+* Mike: “We’re exactly where we ought to be.” Repeated at the put-in threshold.
+* Mike: “We’re fine.” Used around vehicle / communication concern.
+* Alex’s laugh echoes under North Road Bridge.
+* Food barrel latch.
+* Paddle knock against gunwale.
+* Loon call and raven call.
+* Truck hatch / door / engine ticking sounds.
+
+### Chapter 3 — Day 1 / First water and first portage
+
+* Hollow paddle/gunwale/wood knock heard twice, still deniable.
+* Painter rope tapping hull.
+* Food barrel knocking against a tree on the portage.
+* Will’s fishing sounds: rod, reel, lure, casting.
+* Mud suction around Alex’s hiking sandal.
+* Kingfisher rattle, loon call, branch/alder movement.
+* Mike route calls: “Stay left,” “Come right,” “Shallow middle.”
+* Will: “There is a difference.”
+
+### Still needed soon
+
+* Alex: “You coming or writing a poem?” Best in Chapter 4 while Joel pauses to observe camp/water/light.
+* Mike: “It opens up after this.” Use soon in harmless route context.
+* Alex: “Hold up.” Best on Day 2 travel, portage, or camp chore.
+* Alex: “I’m taking a piss. Nobody panic.” Save for Second Camp before his death.
+* Will: “You guys hear that?” Use on Day 2 after an ambiguous branch/animal sound.
+* Mike: “Map says there’s a cabin.” Use when the old maintenance cabin becomes a practical backup topic.
+* Mike’s throat clear before decisions. Reinforce in Chapters 4–6.
+* Tent zipper, stove click, hatchet tap, mug on granite, and camp-edge body sounds. Seed heavily at First Camp.
+
+## Master Ledger Table
+
+| ID | Source | Seed Sound/Phrase                    | First Appearance | Entity First Uses It | Later Payoff                  | Emotional Function              |
+| -- | ------ | ------------------------------------ | ---------------- | -------------------- | ----------------------------- | ------------------------------- |
+| A1 | Alex   | “Quit mothering me.”                 | Day 0            | Day 3                | Possible final/home candidate | Grief violation                 |
+| A2 | Alex   | loud laugh                           | Day 0/1          | Day 3                | Recurs after death            | Dead friend impossible presence |
+| A3 | Alex   | “You coming or writing a poem?”      | Day 1            | Day 5                | Aimed at Joel                 | Mockery/intimacy                |
+| A4 | Alex   | “I’m taking a piss. Nobody panic.”   | Day 2            | Day 7                | Grotesque lure                | Ordinary becomes horrific       |
+| A5 | Alex   | “Hold up.”                           | Day 2            | Day 4                | Portage lure                  | Dead friend as command          |
+| M1 | Mike   | “We’re fine.”                        | Day 0            | Day 4/5              | False reassurance             | Overconfidence weaponized       |
+| M2 | Mike   | “We’re exactly where we ought to be.” | Day 0            | Day 7                | Final/home candidate          | Thematic indictment             |
+| M3 | Mike   | “It opens up after this.”            | Day 1            | Day 4/5              | Leads toward danger           | False route confidence          |
+| M4 | Mike   | “Map says there’s a cabin.”          | Day 2            | Day 5                | Cabin failure                 | Authority collapse              |
+| M5 | Mike   | throat clear                         | Day 2            | Day 5                | Precedes false orders         | Habit as authority              |
+| W1 | Will   | “That’s not how that works.”         | Day 0            | Day 7                | Possible final/home candidate | Imitation without understanding |
+| W2 | Will   | nervous cough/laugh                  | Day 0/1          | Day 3/5              | Possible final/home candidate | Living habit stolen             |
+| W3 | Will   | “No, no, no.”                        | Day 3/6          | Day 6/7              | Panic bait                    | Fear preserved                  |
+| W4 | Will   | “You guys hear that?”                | Day 2            | Day 4                | Makes men listen/respond      | Invitation to engage            |
+| J1 | Joel   | “Wait. Just wait.”                   | Day 1            | Day 6/7              | Possible final/home candidate | Self made alien                 |
+| G1 | Camp   | tent zipper                          | Day 1            | Day 4+               | Home/nonverbal candidate      | Camp boundary violated          |
+| G2 | Camp   | food barrel latch                    | Day 1            | Day 3/5              | Bear misdirection             | Animal/human ambiguity          |
+| G3 | Water  | paddle knock                         | Day 1            | Day 4+               | Navigation bait               | Sound across water              |
+| G4 | Body   | boot scrape on stone                 | Day 1/2          | Day 6+               | Silence-phase threat          | Presence without voice          |
+| G5 | Water  | hull bump / rope tap                 | Day 1            | Day 6+               | Night-water dread             | Impossible proximity            |
+
+## Drafting Instructions for Mimicry
+
+1. Do not over-highlight seeds when first introduced.
+2. Use exact repetition sparingly; near-repetition can be more unsettling.
+3. Let characters rationalize early mimicry.
+4. Do not make the entity too verbally clever.
+5. The entity may reproduce tone better than meaning.
+6. The scariest uses should be emotionally correct but contextually wrong.
+7. Once the men understand the voice danger, shift to nonverbal mimicry.
+8. Every major mimicry payoff should be traceable to a prior seed.
+9. Avoid making the entity omnipotent. Its limits are what make it interesting.
+10. The final mimicry should feel like the book folding back on itself.
