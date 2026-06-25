@@ -1,6 +1,6 @@
 # Chapter 1 - The Old Landing
 
-Joel reached Will’s house a little after nine, late by the version of the morning Mike had imagined and early by the version everyone else would actually live through.
+Joel reached Will’s house a little after nine, late by the morning Mike had imagined and early by the morning the rest of them would actually live through.
 
 Will’s truck sat in the driveway with the tailgate down and two canoes already on sawhorses in the grass. Packs, paddles, dry bags, fishing rods, a food barrel, and three milk crates of loose gear covered the concrete. Mike was standing over a roll-top dry bag with both hands on his hips, looking at it as if it had lied to him.
 
@@ -22,9 +22,9 @@ Mike looked up. “Do you hear yourself?”
 
 Joel parked along the curb and shut off his old Acura. For a moment he stayed where he was, hands resting on the wheel. The morning had the clean September look that always made him mistrust the forecast. Blue sky, dry pavement, a small bite under the sun. St. Louis had heat banked in the sidewalks by now, but under Will’s maples the air still felt usable. A strap buckle ticked against the truck rack. A paddle knocked once under the cap, hollow and neat, and then the driveway went back to voices.
 
-He had driven in from Madison the day before and slept badly on Will’s couch, half under a dog blanket Will insisted was clean. The others had started the old argument before coffee. They could argue over rope, fuel, order of departure, whether a cooler counted as a food-management system, whether a seven-day route meant six dinners or seven, whether a man approaching forty should still own a foam sleeping pad from college.
+He had driven in from Madison the day before and slept badly on Will’s couch, half under a dog blanket Will insisted was clean. The others had started the old argument before coffee. They could argue over rope, fuel, departure time, whether a cooler counted as a food-management system, whether a seven-day route meant six dinners or seven, whether a man approaching forty should still own a foam sleeping pad from college.
 
-This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions and the sense that if they could get the first load tied down, the rest of their lives might also become manageable. The illusion was old and useful. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. Pretend the knot was the same as order.
+This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions, four men making order by touching every object once and arguing over half of them. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. Pretend the knot was order because the knot held.
 
 Joel got out.
 
@@ -86,7 +86,7 @@ Alex pointed at him. “And this is why Joel’s engaged. Cruel but attentive.�
 
 “Mostly available,” Joel said.
 
-Alex laughed, a hard bark of sound that bounced off Will’s garage door. The neighbor’s dog answered from behind a fence.
+Alex laughed, a hard bark of sound that bounced off Will’s garage door. The neighbor’s dog answered from behind a fence, then thought better of it.
 
 Mike bent over the duffel and unzipped it before Alex could stop him.
 
@@ -111,6 +111,8 @@ Will coughed into his coffee. “That’s a generous name for it.”
 “I’m branching out.”
 
 “You brought unseasoned noodles.”
+
+Alex turned to Joel. “Jesus, listen to this guy.”
 
 “Branching is a process.”
 
@@ -232,6 +234,14 @@ Joel was engaged, which in the group made him both suspect and useful. Someone h
 
 That future had a name, a house list, a guest list, dates held and released. The trip had none of that density yet. It was still clean on paper. Seven days, six nights. A blue line through old green, two vehicles at either end, men he knew by sound before sight.
 
+At the front rack, Alex stopped joking long enough to put one hand under the canoe while Mike worked the strap through the buckle. He had bad boat habits but good hands. When the hull shifted, he caught the weight and held it without calling attention to himself.
+
+“Now?” he asked.
+
+“Now,” Mike said, and pulled the webbing tight.
+
+Joel saw the small exchange and filed it with the other things about Alex that were easy to forget once he started asking the world to look at him.
+
 They finished loading close to noon.
 
 Mike looked at the truck. “We should have left an hour ago.”
@@ -294,7 +304,7 @@ Mike said, “I’m not giving you that.”
 
 At the edge of the lot Mike unfolded one of the maps on the hood. Will stood beside him with a pen. Joel drank bad coffee and watched the two of them bend over the paper. The route was a line of blue and green and little black warnings. South Access at the bottom. A chain of narrow lakes, a river section, several portages, a larger lake, a constricted channel, another portage. North Road Bridge at the top, where Mike’s Highlander would wait if the old thing agreed to start again after a week alone.
 
-On paper the trip had manners. The portage lines were short enough to look polite. The lakes lay flat and obedient inside their shorelines. The old road crossings were thin black promises, not mud, alder, wind, or daylight. Joel knew better than to trust a map as a picture, but he still trusted it as an agreement. Someone had gone first. Someone had named the trouble.
+On paper the trip had manners. The portage lines were short enough to look polite. The lakes lay flat and obedient inside their shorelines. The old road crossings were thin black promises, not mud, alder, wind, or daylight. Joel knew better than to trust a map as a picture, but he still trusted it as an agreement. Someone had gone first. Someone had found enough order to name the trouble.
 
 “First day is easy if we get on the water early enough,” Mike said.
 
@@ -348,7 +358,7 @@ Will said, “That cabin could be gone.”
 
 Joel looked at the square. It was printed with the same confidence as the lakes and roads, but it felt different. Human marks aged badly in wild country. A lake could move at the edges, a channel could choke with beaver work, but it remained itself. Cabins became rumors. Roads became brush. Names stayed longer than things.
 
-He did not like that. He did not have a reason to dislike it, and reason was the tool he trusted. Still, his eye kept returning to the square after Mike folded the paper, as if the mark had stayed visible through the creases.
+He did not like that. He did not have a reason to dislike it, and reason was the tool he trusted. Still, his eye kept returning to the square after Mike folded the paper. The mark seemed to stay visible through the creases, a little human request the woods had never agreed to honor.
 
 Mike folded the map hard. “We’re exactly where we ought to be.”
 
@@ -506,6 +516,8 @@ Will nodded, not satisfied but finished. “I’m just saying.”
 
 Joel let the subject close with the others. It was easy to do because the absence had no weight yet. It was not like forgetting a paddle or a stove. There was nothing to point to, no empty hook in the truck bed, no missing case on the motel floor. It was a small blank place in the plan, and blank places were invisible until something needed to occupy them.
 
+Besides, they had done versions of this before. They had been wet before, late before, turned around before, stupid before, and the world had let them come home with better stories than sense. Experience was useful. It was also a way of teaching a man which warnings he could ignore.
+
 The rooms went quiet by eleven, late for the plan and early for them. Joel shared with Will. Alex and Mike took the other room, though Mike left once more to check the truck and came back smelling of cold air.
 
 Will sat on the edge of the bed tying a leader onto a lure by the weak yellow light of the lamp.
@@ -536,10 +548,22 @@ Will trimmed the line with nail clippers. The little piece fell somewhere onto t
 
 Joel closed his eyes.
 
-Outside, a truck went by on the road and faded north. The canoes rested on Will’s truck under the security light. The Highlander sat beside it, ancient and square and waiting to be abandoned at the far end of the route. In the morning they would put a vehicle in the future and then drive back toward the beginning. It was a practical thing. A normal thing. The sort of thing men did when they trusted maps and weather and one another enough.
+Mike knocked once and opened the door before either of them answered. He had Will’s rod tubes under one arm.
+
+“These were wedged against the cap hinge,” he said. “You want to snap a guide before we see water?”
+
+Will took them from him. “Thank you for your service.”
+
+“I hate your rods,” Mike said.
+
+“That’s why they know you care.”
+
+Mike looked at Joel, as if Joel might provide a better species of man to travel with, then shut the door with a soft click.
+
+Outside, a truck went by on the road and faded north. The canoes rested on Will’s truck under the security light. The Highlander sat beside it, ancient and square and waiting to be abandoned at the far end of the route. In the morning they would put a vehicle in the future and then drive back toward the beginning. It was practical. It was normal. It was the sort of thing men did when they trusted maps and weather and one another enough.
 
 Through the wall, Alex laughed once more. The sound came through plaster changed but still his: hard, bright, wanting an answer. After that came Mike’s lower voice, indistinct, then the click of a door latch somewhere down the row, then the building settling into its cheap nighttime silence. The sounds were ordinary because everyone who made them was accounted for.
 
-Joel listened until the sounds separated into ordinary parts.
+Joel listened until the sounds separated into their ordinary parts: road, wall, latch, men in the next room, a cheap building cooling around them.
 
 Then he slept.

@@ -1,12 +1,12 @@
 # Chapter 20 - His Own Voice
 
-After Joel heard himself, there was no part of the route left outside it.
+After Joel heard himself, there was no part of the trip left outside it.
 
 Before that, some private part of him had believed the thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. A man could bear almost anything if he could make it begin after his own innocence.
 
 His voice proved otherwise.
 
-It had been near from the beginning, or near enough. At the landing. At the first water. At the places they had felt almost safe because nothing had yet happened. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it, or the woods had kept it, or whatever moved through the woods had no useful difference between hearing and keeping.
+It had been near from the beginning, or near enough. At the landing. At the first water. At the places they had felt almost safe because nothing had yet happened. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it, or the woods had kept it, or whatever moved through the woods had no useful difference between hearing and keeping. The week did not begin with Alex stepping past the light. It reached back and put a hand on the first boat, the first strap, the first harmless correction.
 
 Will kept looking at him as if Joel might explain what a man was supposed to do with the sound of himself.
 
@@ -14,7 +14,7 @@ Joel had no explanation. He had the notebook, the pencil, the Highlander key zip
 
 They stayed crouched at the bad fork for too long. The lower path shone with water through alder. The higher trace vanished and returned in pieces. Behind them, uphill, his own voice had gone quiet. That did not help. Silence after a voice was no longer absence. It was only the place a voice might return from.
 
-Will took the pencil carefully, the way a man might take a blade from a child. His injured hand made his grip awkward. He wrote on the damp page:
+Will took the pencil carefully, the way a man might take a blade from a child. His injured hand made his grip awkward. He wanted to comfort; Joel could see it in the way he leaned toward the page before he had words. Then he wrote:
 
 NOT YOU.
 
@@ -48,7 +48,7 @@ The rain had taken most of yesterday. Their tracks had come down this way or not
 
 The feather made him remember the raven at the put-in, its call breaking off over the trees while Alex snapped a strap and said something ugly about wilderness ambiance. Had the thing heard the motel ice machine and the room door and Will coughing behind the wall? Had it heard Mike clearing his throat before he was even in the woods? Joel hated the thought because it made the trip infected backward. The old landing, the first portage, the joke about poems, the food barrel latch, the hollow knock they had blamed on rope: all of it rearranged itself under the pressure of his voice from the trees.
 
-Nothing had changed in the past.
+Nothing in the past had changed.
 
 Everything had.
 
@@ -222,9 +222,9 @@ STAY VISIBLE.
 
 Will nodded.
 
-They made a pile of what would go. Food barrel, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. Alex's cracked headlamp, less an object now than a debt. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
+They made a pile of what would go. Food barrel, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. The small blue dry bag with the emergency paddle stayed lashed under the front seat, more fixture than cargo. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
 
-They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. They left Alex's hot sauce bottle in the cracked headlamp bag because neither of them could decide to carry it and neither could throw it away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to things two men could not lift.
+They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left the extra cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. They left Alex's cracked headlamp and hot sauce bottle in the small bag where his remaining things had stayed, because neither man could decide to carry them and neither could throw them away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to things two men could not lift.
 
 Will picked up the rod tube last.
 
@@ -244,7 +244,7 @@ Will closed the rod tube.
 
 He did not ask.
 
-He laid the rods under the damaged canoe they were abandoning and covered them with the same boughs that had been moved aside. His hand worked slowly because of the bandage. He put one spruce bough, then another, then corrected the first because a tip still showed. The care did more damage than a sob would have. Will could leave them, but he could not leave them uncovered.
+He laid the rods under the damaged canoe they were abandoning and covered them with the same boughs that had been moved aside. His hand worked slowly because of the bandage. He put one spruce bough, then another, then corrected the first because a tip still showed. The care did more damage than a sob would have. Will could leave them, but he could not leave them exposed.
 
 When he finished, he stayed crouched.
 
@@ -300,7 +300,7 @@ NOT JOEL.
 
 Joel stared at the second line.
 
-Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without pretending fact was repair.
+Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without pretending fact was repair. It could stand beside damage and not make a speech over it.
 
 Joel tapped both lines.
 

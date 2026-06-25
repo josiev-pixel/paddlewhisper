@@ -1,14 +1,14 @@
 # Chapter 25 - Will Answers
 
-Joel reached him before the trees took him, but not before Will spoke again.
+Joel reached him before the trees took him, but not before Will gave the woods one more thing.
 
 "Say something new," Will called into the brush.
 
-His voice cracked on new. It was not a shout exactly. The trail swallowed any full shout before it could travel. It was a harsh, carrying thing, thrown ahead into young spruce and alder and the low black spaces between trunks.
+His voice cracked on new. It was not a shout exactly. The trail swallowed any full shout before it could travel. It came out harsh and carrying, thrown ahead into young spruce and alder and the low black spaces between trunks.
 
 "Come on," Will said. "If you understand, say something new."
 
-Joel had one hand on the back of Will's vest and the other on the notebook inside his own jacket. For a second he was absurdly aware of the small arrangement of facts against his body: the notebook damp at the edges, the Highlander key zipped in the inner pocket, the hatchet at his belt, his own pulse beating against the key as if the car were already trying to start.
+Joel had one hand on the back of Will's vest and the other on the notebook inside his own jacket. For a second he was absurdly aware of the small arrangement of facts against his body: the notebook damp at the edges, the Highlander key zipped in the inner pocket, the hatchet at his belt, the key hard under his pulse as if the car were already trying to start.
 
 From the brush ahead, Mike's voice said, "We're fine."
 
@@ -30,7 +30,7 @@ From the left, Alex said, "Hold up."
 
 Will turned his face toward the voice and said, "Old."
 
-It was worse than if he had believed it. Joel could have fought belief. He could have put his hand over Will's mouth and hauled him bodily back, could have written ALEX DEAD until the pencil tore through the page. But Will knew. That was the terrible clarity of it. He was not following Alex. He was following the failure in the imitation, the way the phrase had been placed wrong, the way the woods could put a friend's voice in the air and still miss the person inside it.
+It was worse than if he had believed it. Joel could have fought belief. He could have put his hand over Will's mouth and hauled him bodily back, could have written ALEX DEAD until the pencil tore through the page. But Will knew. That was the terrible clarity of it. He was not following Alex. He was following the failure in the imitation, the phrase set down in the wrong place, the friend's voice with the friend missing from it.
 
 Joel pulled the notebook out and opened it against his forearm.
 
@@ -48,7 +48,7 @@ MOVE NOW.
 
 From ahead, in Will's own voice, came: "There is a difference."
 
-The sentence had Will's dry weight, his exact little lift on difference, the mild irritation of a man correcting a term no one else cared about. But it did not belong to the moment. It answered nothing. It made no distinction. It was a hinge with no door on either side.
+The sentence had Will's dry weight, his exact little lift on difference, the mild irritation of a man correcting a term no one else cared about. But it did not belong to the moment. It answered nothing. It made no distinction. It was a hinge with no door.
 
 Will's face changed.
 
@@ -72,7 +72,7 @@ Joel shook his head.
 
 "No, listen. It can't answer the question."
 
-The whisper was almost nothing, but it was air. It was material. Joel felt it leave Will's mouth and become part of the place.
+The whisper was almost nothing, but it was air. It was material. Joel felt it leave Will's mouth and enter the wet brush with the ticks of water and the scrape of packs and all the other things they could no longer take back.
 
 From behind them, near the landing they could no longer see, Mike cleared his throat.
 
@@ -100,7 +100,7 @@ From ahead, in Joel's voice, came: "Wait. Just wait."
 
 Both men froze.
 
-The sound of Joel's own voice did not feel like hearing another person. It felt like finding a handprint on the inside of his chest. Low, flat, nearly embarrassed by its own urgency. The phrase he had given the water days ago without ceremony. The practical phrase. The little restraint that had become the thing's piece of him.
+The sound of Joel's own voice did not feel like hearing another person. It felt like finding a handprint on the inside of his chest. Low, flat, nearly embarrassed by its own urgency. The phrase he had given the water days ago without ceremony. The practical phrase. The small restraint that had become the thing's piece of him.
 
 Will turned toward him at once. Not toward the sound. Toward the living Joel.
 
@@ -122,7 +122,7 @@ He wrote:
 
 IT DOES NOT NEED WHY.
 
-Will stared at the line. Around them the portage held its breath in the ordinary way of wet woods. Water ticked from spruce tips. A mosquito moved near Joel's ear with a thin almost electric whine. Somewhere close, a branch settled under its own wet weight. The world kept producing sound without choosing to. That was the unfairness of it. Men could discipline their voices, ration words, turn friendship into marks on paper, but a pack still creaked and water still dropped and a hurt man still breathed.
+Will stared at the line. Around them the portage held its breath in the ordinary way of wet woods. Water ticked from spruce tips. A mosquito moved near Joel's ear with a thin almost electric whine. Somewhere close, a branch settled under its own wet weight. The world kept producing sound without choosing to. Men could discipline their voices, ration words, turn friendship into marks on paper, but a pack still creaked and water still dropped and a hurt man still breathed through his teeth.
 
 Will touched the line Joel had written.
 
@@ -134,9 +134,11 @@ From the right, Alex's hard laugh broke once. It had all of Alex's surface in it
 
 Then Alex said, "Quit mothering me."
 
+After it, softer and farther right, Alex said, "Nobody panic."
+
 Will closed his eyes.
 
-Joel saw the voice enter him. Not as belief. As memory. Alex in the old light at First Camp, making a face over bland food. Alex on the beaver dam, strong and annoyed and funny. Alex at Second Camp, half outside the firelight, wanting everyone to notice his exit. Every dead use of him was crude and exact. The thing did not understand grief and did not need to. It only had to strike the shape grief had left.
+Joel saw the voice enter him. Not as belief. As memory. Alex in the old light at First Camp, making a face over bland food. Alex on the beaver dam, strong and annoyed and funny. Alex at Second Camp, half outside the firelight, wanting everyone to notice his exit. Every dead use of him was crude and exact. The thing did not understand grief. It only had to strike the shape grief had left.
 
 Will opened his eyes and said to the trees, "That's not new."
 
@@ -160,7 +162,7 @@ Will's eyes went wide. Not because Joel had spoken, but because of what the word
 
 From the trees to their left, Joel said, "Stop."
 
-The false voice had no breath on Will's cheek. That was the difference. It could place the word but not the warmth. It could make Joel into air without making him present.
+The false voice had no breath on Will's cheek. That was the difference. It could place the word but not the warmth. It could make Joel into air and leave the body out.
 
 Will turned his head slowly toward the left.
 
@@ -196,7 +198,7 @@ Will pressed down.
 
 "It's association," Will said. "Not meaning. Maybe not. But close."
 
-His voice had changed. Less wild now. More himself. That was worse. This was the voice Joel had heard over gear spread on garage floors, over maps in bad motel light, over broken stoves and fishing reels and Mike's cheap canoe straps. Will explaining because explanation kept shame out of the room. Will correcting because precision made him useful. Will saying, no, no, no, this part matters.
+His voice had changed. Less wild now. More himself. That was worse. This was the voice Joel had heard over gear spread on garage floors, over maps in bad motel light, over broken stoves and fishing reels and Mike's cheap canoe straps. Will explaining because explanation kept shame out of the room. Will correcting because precision made him useful. Will saying, no, no, no, this part matters, and for a while they had all been glad that he could say it.
 
 "Will," Joel said.
 
@@ -252,7 +254,7 @@ The copy came again, slightly to the right.
 
 "Say something you didn't steal."
 
-It was exact enough to hurt and wrong enough to be clear. The first sentence carried Will's crack on new. The second had no understanding of accusation. It made steal into a shape, not a charge.
+It was exact enough to hurt and wrong enough to be clear. The first sentence carried Will's crack on new. The second had no understanding of accusation. It made steal into a sound, not a charge.
 
 Will laughed once.
 
@@ -266,7 +268,7 @@ The opening ahead was no more than a wet place where two old trees had fallen an
 
 Something moved there.
 
-Joel did not see a body. He saw a pale angle between trunks, lower than a standing man and higher than a crawling animal. He saw a dark wet shoulder or flank, if shoulder and flank were words that could be trusted. He saw limbs, or branches, crossing where no branch should have crossed. The mind tried to make the pieces useful and failed. Bear. Moose. Man. None of the words held. Each one touched part of it and came away dirty.
+Joel did not see a body. He saw a pale angle between trunks, lower than a standing man and higher than a crawling animal. He saw a dark wet shoulder or flank, if shoulder and flank were words that could be trusted. He saw limbs, or branches, crossing where no branch should have crossed. The mind tried to make the pieces useful and failed. Bear. Moose. Man. None of the words held.
 
 Will saw it too.
 
@@ -296,7 +298,7 @@ Then Will's legs kicked once in the moss and vanished sideways.
 
 The alder closed.
 
-Joel stood with the hatchet raised and understood, with a clarity that would never forgive him, that the part of him that loved Will was not stronger than the part that understood the rule.
+Joel stood with the hatchet raised. The hand with the hatchet did not go forward. That was what he would have afterward instead of an explanation.
 
 He backed away.
 
@@ -320,7 +322,7 @@ This time it came from the portage behind him, ahead of where the living Will ha
 
 Joel backed to the trail.
 
-The notebook lay in the mud where it had fallen. He wanted it with an intensity that surprised him. Not for the rules. Not only for the rules. It had become the last place where two men had still been two men. A shared page. A little roof made of paper.
+The notebook lay in the mud where it had fallen. He wanted it with an intensity that surprised him. Not for the rules. Not only for the rules. It had become the last place where two men had still been two men. A shared page. A little roof made of paper, already leaking.
 
 Will's voice said, from the brush, "Joel."
 
@@ -338,7 +340,7 @@ From the alder: "No, no, no."
 
 Joel put the hatchet back at his belt. His hand did not want to let go of it. He had to open each finger.
 
-The heavy pack was gone with Will. Food barrel, paddles, some of the food, some of the gear. The loss moved through Joel practically before it moved through him morally. That also would not forgive him. He had the canoe. He had the hatchet. He had the notebook. He had the key. He had whatever was still in his jacket pockets and the small dry bag he had lashed under the canoe seat before the portage. He did not have Will.
+The heavy pack was gone with Will. Food barrel, proper paddles, most of the remaining food, the repair kit, some cord, the dense small odds they had kept because weight had not yet become impossible enough. The loss moved through Joel practically before it moved through him morally. That also would not forgive him. He had the canoe. He had the small pack still cinched against his back. He had the hatchet, the mud-smeared notebook, the key, whatever was still in his jacket pockets, and the blue dry bag with the emergency paddle lashed under the front seat. He did not have Will.
 
 Will laughed from somewhere to the right.
 
@@ -364,7 +366,7 @@ Mike cleared his throat ahead.
 
 Joel stopped.
 
-The phrase moved through the hull and into the small chamber around his head. It filled the canoe's interior like breath. Mike's certainty. Mike's old managerial lie. The whole trip reduced to one sentence the woods could now speak better than the living man ever had, because the woods did not have to believe it. It only had to know when it hurt.
+The phrase moved through the hull and into the small chamber around his head. It filled the canoe's interior like breath. Mike's certainty. Mike's old managerial mercy, the kind that asked evidence to lower its voice. The woods did not have to believe it. It only had to know when it hurt.
 
 Joel lowered his head under the hull until his forehead almost touched the yoke.
 
@@ -386,7 +388,7 @@ Mike: "Just keep moving."
 
 Joel's own voice: "Wait. Just wait."
 
-The words came from wrong distances, wrong heights, wrong sequences. They made arguments without meaning to. They contradicted and instructed and pleaded. They were almost human because humans had made them.
+The words came from wrong distances, wrong heights, wrong sequences. They made arguments without meaning to. They instructed and pleaded and corrected one another in the damp green air. They were almost human because humans had made them.
 
 Joel kept his mouth shut.
 
@@ -406,7 +408,7 @@ Then again from ahead, too clean.
 
 The copy held no discovery. No end of argument. Only the vowel, lifted and placed.
 
-Joel understood then that Will had been right about the limit and wrong about what a limit offered. The thing did not understand. It did not need to. It could fail at meaning and still kill men who needed meaning to save them.
+Joel understood then that Will had been right about the limit and wrong about what a limit offered. The thing did not understand. It did not need to. It could fail at meaning and still kill a man who had gone looking for it.
 
 He walked.
 

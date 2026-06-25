@@ -40,6 +40,18 @@ Joel looked back at the water.
 
 They unloaded because unloading was what came next. That was the mercy of trips like this, before the mercy ended: the body could be given orders. Pull the boat higher. Put packs above the wet line. Take the rods away from where they could be stepped on. Find the stove bag. Find the filter. Find a place to sleep. The work did not require anyone to decide whether the site was bad. It only required hands.
 
+They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, the whole camp shaped less like shelter than a pause in something larger.
+
+"This is what there is," Mike said.
+
+"A ringing endorsement," Will said.
+
+"You want to paddle back in the dark?"
+
+Will looked toward the channel. The west wind had begun to move down it in short, colder pushes. "I want reality to improve its offerings."
+
+"File a complaint."
+
 The flat ground above the landing was smaller than it had looked from the water. One tent would fit near the fire ring if its corners were staked into roots and old ash. The second could be forced between two spruce where the ground rose and fell in slow damp lumps. Joel's hammock needed two trees far enough apart and not already claimed by brush. There were jack pines at the back of camp, but their trunks were narrow, and one of them bent when he put his weight into the strap.
 
 He stepped back and watched it.
@@ -152,6 +164,16 @@ Will tied it. The barrel went up awkwardly, swinging once into the trunk with a 
 
 Joel looked toward the water. The channel held evening in pieces: black water, green alder, a pale strip of sky caught between leaves. The canoes had been pulled high. The paddles lay crossed near the packs. Nothing there had answered anything.
 
+The barrel hung lower than anyone would have liked. It was off the ground and away from the tents, but not by much, and the branch sagged under the weight with a green patience Joel did not trust.
+
+"Good enough," Mike said.
+
+"That's two words doing a lot of work," Will said.
+
+"The bears can fill out an evaluation."
+
+Alex looked up at the blue barrel rocking in the dim. "I hope they write legibly. I have notes."
+
 They put the tents where they would fit. Mike and Will took the one near the fire ring after three minutes of argument about slope, roots, and whether condensation was a solvable problem or a moral condition. Alex claimed the lumpy second site with the casual martyrdom of a man who expected witnesses.
 
 "I get the bad ground," he said.
@@ -257,6 +279,8 @@ Alex raised his voice. "We're discussing brand identity."
 The moment closed. Maybe it had never opened much. Joel handed him a full bottle and took the next empty one. The small exchange left him irritated in a different way. He had wanted Alex to keep joking so his irritation could remain clean. Instead Alex had, for a second, stepped out of the role Joel had assigned him. It made Joel feel ungenerous, which was worse than feeling annoyed.
 
 Dinner was rice, chicken packets, Will's vegetable pouch, and the peanut butter noodles Alex made with the solemnity of a private religion. Steam lifted from the pots and held the smell of salt, garlic powder, fuel, and wet wool. They ate sitting on packs, rocks, and exposed roots around the fire. No one bothered with plates longer than necessary. The sun went behind the trees before it went down, and the camp entered an early, local dark.
+
+Mike set his bear spray upright beside his pack before he sat to eat. It was an ordinary gesture, almost fussy, the same way he kept the map case zipped and the canoe painters tied off where he could see them. The orange canister stood in the firelight like a tool waiting for a task no one wanted to name.
 
 Will tried to defend his vegetable pouch.
 
@@ -428,6 +452,8 @@ Mike stood. "Enough."
 
 He took his headlamp and walked to the back of camp. Not far, only to the first screen of spruce. He shone the light between trunks, then left, then right. The beam caught old needles, root, a dead branch polished by old weather. It caught two pale moths and made them into white flecks. It caught nothing with eyes.
 
+Joel watched the light instead of the dark beyond it. That was the more useful thing, he told himself. The beam showed what could be known. Everything outside it could remain unsorted for another minute.
+
 "It's camp noise," Mike said.
 
 "Camp noise from outside camp," Will said.
@@ -487,6 +513,20 @@ Will made a small delighted sound. "Documented."
 "Care is harassment with better marketing."
 
 He came back for the lamp from the top of his pack. The strap had twisted. He untangled it with more force than required and settled it on his forehead. When he clicked it on, the beam jumped across Joel's face, then Will's, then Mike's sandals, then the brush.
+
+"Spray," Mike said.
+
+Alex looked down at himself. "For pissing?"
+
+"For walking out of camp."
+
+"I am not walking out of camp. I am visiting the suburbs."
+
+"Spray."
+
+Alex held Mike's stare for one beat, then made a show of sighing. "The suburbs are dangerous."
+
+His bear spray was in the side pocket of his pack. He clipped the canister to his belt with exaggerated care, then patted it twice. The plastic buckle made a small, tidy click. Joel did not like that the sound made him look toward the food barrel first.
 
 "Don't piss on anything we're eating," Will said.
 

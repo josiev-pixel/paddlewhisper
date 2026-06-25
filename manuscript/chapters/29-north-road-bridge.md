@@ -4,11 +4,11 @@ The Highlander opened with a tired chirp.
 
 Joel nearly dropped the key.
 
-The sound was too domestic, too obedient. A machine answering a signal. He stood beside the driver's door with water running from his clothes onto road gravel and waited for the answer to become something else.
+The sound was too domestic, too obedient. A machine answering a signal. He stood beside the driver's door with water running from his clothes onto road gravel and waited for the answer to become something else. The bridge held behind him. The canoe was below. The key lay in his hand, still warm from being gripped too hard.
 
 Nothing spoke.
 
-The dome light came on when he opened the door. It showed the old interior exactly as Mike had left it: gas receipts in the console, a fleece hat on the passenger seat, a paper coffee cup collapsed in the cup holder, road dust filmed across the dashboard.
+The dome light came on when he opened the door. It showed the old interior exactly as Mike had left it: gas receipts in the console, a fleece hat on the passenger seat, a paper coffee cup collapsed in the cup holder, road dust filmed across the dashboard, an empty gum sleeve wedged beside the shifter.
 
 The smell hit him hard. Upholstery, stale coffee, cold plastic, Mike's particular mix of old smoke and gum and damp gear. The smell was not a voice, but it brought Mike closer than the voices had.
 
@@ -56,7 +56,7 @@ He held it above the steering wheel, then near the windshield, then toward the d
 
 Joel put the phone in the passenger seat.
 
-The Highlander's headlights showed the road as two pale tunnels between black spruce. Gravel, puddle, washboard, a road marker leaning away from winter, alder crowding the ditch. Behind him the bridge held the dark gap where he had landed. Below it the canoe lay half out of the water, the small pack on the passenger floor now, the notebook inside it, the blue bag still down by the hull because he had not had enough hands or mind to gather every fact.
+The Highlander's headlights showed the road as two pale tunnels between black spruce. Gravel, puddle, washboard, a road marker leaning away from winter, alder crowding the ditch. Behind him the bridge held the dark gap where he had landed. Below it the canoe lay half out of the water, the emergency paddle inside it and the blue bag still under the front seat. The small pack was on the passenger floor now. The notebook was inside it. He had not had enough hands or mind to gather every fact.
 
 He almost went back for it.
 
@@ -100,7 +100,7 @@ He tried again.
 
 This time a woman answered.
 
-"Nine-one-one, what is the address of your emergency?"
+"Nine-one-one. What is the location of your emergency?"
 
 Joel closed his eyes.
 
@@ -110,11 +110,11 @@ Her voice was flat with training, cleanly transmitted, edged with static. A stra
 
 His own voice came out wrong. Rough, small, unused.
 
-"North Road where, sir?"
+"Where on North Road?"
 
 He looked through the windshield. The road marker leaned at the edge of the headlights, green paint scratched pale. He read it once and could not keep the numbers in his head. He opened the door and cold came in. Gravel under one foot. Engine idle. Heater ticking. He leaned out and read the marker again.
 
-"Mile eleven," he said. "Maybe eleven-point-two. North Road Bridge road. I came from the bridge."
+"Mile eleven," he said. "Maybe eleven-point-two. North Road. North of the bridge. I came from the bridge."
 
 "What is the callback number you're calling from?"
 
@@ -134,17 +134,17 @@ Joel looked at the passenger seat. Mike's fleece hat. His small pack. The phone 
 
 "No."
 
-"What happened?"
+"Tell me what happened."
 
 He could hear keys clicking on her end. A room somewhere. A headset. A person entering fields into a system that would send other people toward him.
 
 Fields. Boxes. Nature of incident.
 
-"Canoe accident," Joel said. "Animal attack. Three men dead or missing."
+"Remote canoe trip," Joel said. "Animal attack. Canoe accident. Three men dead or missing."
 
 The words did not belong together. Accident softened attack. Attack made missing a lie. Dead sounded too complete for men whose voices had kept crossing water after their bodies were gone. But the operator took them. The system had places for them.
 
-"How many men total?"
+"How many in your party?"
 
 "Four."
 
@@ -152,7 +152,7 @@ The words did not belong together. Accident softened attack. Attack made missing
 
 "Yes."
 
-"Are you safe where you are?"
+"Are you in immediate danger?"
 
 Joel looked at the spruce beyond the road. He looked at the rearview mirror, where the road fell away toward the unseen bridge. He looked at the locked doors and the lit dashboard and his own face in the dark glass, hollow-eyed and unfamiliar.
 
@@ -160,11 +160,11 @@ Joel looked at the spruce beyond the road. He looked at the rearview mirror, whe
 
 There was a short pause. Not fear. Adjustment.
 
-"Are you in the vehicle now?"
+"Are you inside a vehicle now?"
 
 "Yes."
 
-"Can you keep the doors locked and stay on the line?"
+"Can you keep the doors locked, put your hazard lights on, and stay on the line?"
 
 "Yes."
 
@@ -174,9 +174,9 @@ Stay where you are.
 
 The phrase had no malice. It was a procedure, not a lure. It still reached the same place in him as every voice from the trees that had wanted his body held in one place long enough for something else to arrive.
 
-He put the Highlander in park, set the parking brake because Mike would have, and stayed.
+He put the Highlander in park, set the parking brake because Mike would have, found the hazard button on the second try, and stayed.
 
-The road emptied around the idling car. He watched the mirror. He watched the trees. The operator asked questions in a careful order. Names. Ages. Vehicle description. Last known locations. Weapons. Bear spray. Weather. Food. Water. Whether he had slept. Whether the animal was still present.
+The road emptied around the idling car. He watched the mirror. He watched the trees. The operator asked questions in a careful order. Names. Ages. Vehicle description. Last known locations. Weapons. Bear spray. Weather. Food. Water. Whether he had slept. Whether the animal was still present. Whether he could see blood. Whether anyone else might walk out to the road.
 
 "I don't know," he said, and "yes," and "no," and "I don't know."
 
@@ -198,7 +198,7 @@ The sound of his name struck him like cold water.
 
 He nodded.
 
-"I'm Deputy Harris. I'm going to open the door, all right? Medics are behind me."
+"I'm Deputy Harris. County sheriff's office. Keep your hands where I can see them. I'm going to open the door, all right? Medics are behind me."
 
 All right. A question that was also a plan.
 
@@ -216,9 +216,9 @@ Cold air entered. Joel stepped down and nearly fell. Harris caught his elbow. Jo
 
 Joel was not good. The phrase passed over him and failed to attach.
 
-An ambulance came next, then a conservation officer in a green truck, then another deputy. Men and one woman moved around him with radios, gloves, flashlights, clipboards, questions. Harris asked where the canoe was, and Joel pointed back down the road. He could not say under the bridge. He pointed until Harris understood and sent the second deputy to look.
+An ambulance came next, then a conservation officer in a green truck, then another deputy. Men and one woman moved around him with radios, gloves, flashlights, clipboards, questions. Harris asked where the canoe was, and Joel pointed back down the road. He could not say under the bridge. He pointed until Harris understood and sent the second deputy to check the landing without moving anything unless he had to.
 
-A thermal blanket went over Joel's shoulders. It made a dry plastic crackle like a cheap tarp. He tried to pull it off and a paramedic named Elise told him she needed him to keep it on.
+A foil blanket went over Joel's shoulders. It made a dry plastic crackle like a cheap tarp. He tried to pull it off and a paramedic named Elise told him she needed him to keep it on.
 
 "It's just a blanket," she said.
 
@@ -228,7 +228,7 @@ The word belonged to every failed explanation.
 
 He kept the blanket on.
 
-They sat him on the rear bumper of the ambulance. Someone put a blood pressure cuff on his arm. Someone shone light in his eyes. Someone asked if he had struck his head. Someone asked again how many in the party. The conservation officer unfolded a map on the hood of Harris's truck and weighted the corners with a radio, a flashlight, a coffee mug, and a box of nitrile gloves.
+They sat him on the rear bumper of the ambulance. Someone put a blood pressure cuff on his arm. Someone clipped a pulse oximeter to one finger. Someone shone light in his eyes. Someone asked if he had struck his head. Someone asked again how many in the party. The conservation officer unfolded a map on the hood of Harris's truck and weighted the corners with a radio, a flashlight, a coffee mug, and a box of nitrile gloves.
 
 A map on a hood.
 
@@ -240,7 +240,7 @@ He was older than Harris, square-faced, with gray in his mustache and black dirt
 
 Joel made himself stand.
 
-The map was not their map. Different scale, clean paper, official markings. Lakes named with names he had never learned because Mike and Will had spoken mostly in shapes and sequence: first lake, rough carry, the big one, the bad channel, final portage. The official map had certainty printed all over it. Roads in black, water in blue, contour lines thin and confident. It looked like a document from a world that had not gone in.
+The map was not their map. Different scale, clean paper, official markings. Lakes named with names he had never learned because Mike and Will had spoken mostly in shapes and sequence: first lake, rough portage, the big one, the bad channel, final portage. The official map had certainty printed all over it. Roads in black, water in blue, contour lines thin and confident. It looked like a document from a world that had not gone in.
 
 Joel put a shaking finger on South Access.
 
@@ -276,7 +276,7 @@ Joel felt the road under his boots. Gravel, not mud. He pressed one heel down un
 
 Reardon nodded once, as if not knowing could be entered somewhere if handled carefully enough.
 
-They moved north on the map. Weather delay. Bad crossing. Emergency camp. Old cabin. Mike. Return. Will. The route became a confession made with a dirty fingernail. Joel gave them enough to find bodies and not enough to explain why there were rules in a notebook against answering sound. He did not take the notebook out of his pack. He could feel it there against the ambulance bumper when he sat down again, damp and swollen and more accurate than anything he said aloud.
+They moved north on the map. Weather delay. Bad crossing. Emergency camp. Old cabin. Mike. Return. Will. The route became a confession made with a dirty fingernail. Joel gave them enough to launch people toward the right water and not enough to explain why there were rules in a notebook against answering sound. He did not take the notebook out of his pack. He could feel it there against the ambulance bumper when he sat down again, damp and swollen and more accurate than anything he said aloud.
 
 "You left notes?" Reardon asked.
 
@@ -284,17 +284,17 @@ They moved north on the map. Weather delay. Bad crossing. Emergency camp. Old ca
 
 "What did they say?"
 
-"Names. Date. Bear attack. Direction of travel."
+"Names. Date. Suspected bear attack. Direction of travel."
 
 "Good," Reardon said.
 
 Joel almost laughed. The sound caught behind his teeth and stayed there.
 
-Search teams assembled while morning became a colorless noon. A helicopter was requested and then delayed by ceiling. Ground teams staged at both access roads because nobody liked trusting one route in and one route out. Deputies drank coffee from paper cups. Radios spoke in clipped phrases. Units, last known, shoreline, grid, possible remains. Each message came from a body Joel could see or from a speaker clipped to a shoulder. Source, then sound. Source, then sound. He watched for it with the devotion of prayer.
+Search teams assembled while morning became a colorless noon. A helicopter was requested and then delayed by ceiling. Ground teams staged at South Access and North Road because nobody liked trusting one route in and one route out. A volunteer coordinator arrived with orange vests and a clipboard. Deputies drank coffee from paper cups. Radios spoke in clipped phrases. Units, last known, shoreline, grid, possible remains. Each message came from a body Joel could see or from a speaker clipped to a shoulder. Source, then sound. Source, then sound. He watched for it with the devotion of prayer.
 
 No one noticed the rule they were obeying for him.
 
-The second deputy came back from the bridge with mud to his knees and said there was a canoe below, half pulled out. Blue dry bag in it. Small paddle. No one else. He said it gently, as if the canoe might count as a kind of witness.
+The second deputy came back from the bridge with mud to his knees and said there was a canoe below, half pulled out. Blue dry bag in it. Small paddle. No one else. He had photographed it first. He said this gently, as if the canoe might count as a kind of witness.
 
 Joel nodded once. The bag had stayed where he left it. That should have eased something. It only proved that objects could be faithful and still fail.
 
@@ -314,11 +314,11 @@ The deputy's face changed. He was trying to be gentle and had stepped on somethi
 
 "Before Alex was injured," Harris said. "Anything that might help searchers. Brush. Animal noise. Him calling out."
 
-Joel closed his hands around the thermal blanket. The plastic whispered under his fingers.
+Joel closed his hands around the foil blanket. The plastic whispered under his fingers.
 
 He could have told the truth.
 
-Hold up. What. Alex answering something at the edge. Food barrel latch where no barrel was. Laughter after the body was covered. Will's cough from the wrong place. Mike's throat clearing without Mike. His own voice on water. The planted phrase returned perfectly and emptily from shore to shore. He could have filled the ambulance with it until every person there looked at him with pity first and then caution, until the true parts of the story spoiled the useful parts.
+Hold up. What. Alex answering something at the edge. Food barrel latch where no barrel was. Laughter after the body was covered. Will's cough from the wrong place. Mike's throat clearing without Mike. His own voice on water. The planted phrase returned perfectly and emptily from shore to shore. He could have filled the ambulance with it until every person there looked at him with pity first and then caution, until the true parts of the story spoiled the usable parts.
 
 "Brush," Joel said. "Alex. Then impact."
 
@@ -338,7 +338,7 @@ Joel thought of Alex's mouth forming old jokes, complaints, bids for audience. H
 
 By late afternoon the ceiling had lifted enough for the helicopter to work low, and a team reached Second Camp because Joel could mark it.
 
-No one told him the details. Reardon came into the hospital room two towns south with his hat in his hands, and Joel knew from the careful way he closed the door.
+No one told him the details at first. Reardon came into the hospital room two towns south with his hat in his hands, and Joel knew from the careful way he closed the door.
 
 "We located your friend Alex," he said.
 
@@ -350,7 +350,7 @@ Joel nodded.
 
 Good, Joel thought again, and hated the use of it.
 
-They had moved him to the hospital after the ambulance crew won the argument he had not had strength to continue. He had been undressed by strangers and dressed in paper and cotton. Warm fluids entered his arm. A nurse cleaned grit from his palms with gauze. Someone photographed bruises. Someone bagged his clothes. He asked for the small pack until they brought it in and set it on the chair where he could see it.
+They had moved him to the hospital after the ambulance crew won the argument he had not had strength to continue. He had been undressed by strangers and dressed in paper and cotton. Warm fluids entered his arm. A nurse cleaned grit from his palms with gauze. Someone photographed bruises. Someone bagged his clothes. He asked for the small pack until they brought it in and set it on the chair where he could see it. A deputy signed a property receipt before leaving it there. Another official phrase over an object that had already carried more than anyone knew.
 
 The room had a window that did not open. A television mounted high in the corner. A sink. A sharps container. A clock whose second hand moved without sound. The hallway outside carried ordinary distress: carts, soft shoes, a child crying and stopping, a man coughing, a nurse laughing once at something said at the desk. Human sounds, sourced and unsourced as people passed out of sight.
 
@@ -362,7 +362,7 @@ Then he asked for it open again.
 
 The nurse did not comment.
 
-Harris came back before dark with another officer whose name Joel immediately lost. They asked for a formal statement. Not all of it now, they said. Enough now. More when he was medically cleared. They used words like preliminary and timeline and incident. The words were clean tools. They did what they could.
+Harris came back before dark with another officer whose name Joel immediately lost. They asked for a recorded preliminary statement. Not all of it now, they said. Enough now. More when he was medically cleared. They used words like timeline and incident and best recollection. The words were clean tools. They did what they could.
 
 "Do you want to call someone first?" Harris asked.
 
@@ -378,7 +378,7 @@ That was one mercy.
 
 The official story began forming while the search teams moved through the route.
 
-Bear. Panic. Separation. Exposure. Possible drowning. Survivor shock. Incomplete recollection under trauma. Decisions made in weather. Men leaving camp when they should not have. A route more remote than expected. Gear lost. Communication absent. It was not malicious. It was not even stupid. It was what people did with facts too large and strange to carry whole. They cut them down until the pieces fit into reports, then passed the reports from hand to hand.
+Suspected bear. Panic. Separation. Exposure. Possible drowning. Survivor shock. Incomplete recollection under trauma. Decisions made in weather. Men leaving camp when they should not have. A route more remote than expected. Gear lost. Communication absent. It was not malicious. It was not even stupid. It was what people did with facts too large and strange to carry whole. They cut them down until the pieces fit into reports, then passed the reports from hand to hand.
 
 Joel helped them.
 
@@ -406,7 +406,7 @@ Joel looked at the sheet over his knees.
 
 "And Will?"
 
-Reardon took a breath through his nose. "Pack and gear near the final portage. Visual only so far. Search is ongoing."
+Reardon took a breath through his nose. "Pack and gear near the final portage. Visual only so far. Search is ongoing. We don't have a confirmation yet."
 
 Will had hated imprecision unless it was his own. Search is ongoing would have made him sit up, ask what grid, what conditions, what exact confidence interval lay behind ongoing. Joel heard the correction in memory and did not let it reach his mouth.
 

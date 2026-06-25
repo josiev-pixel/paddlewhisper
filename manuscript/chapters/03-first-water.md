@@ -2,13 +2,13 @@
 
 The first lake was narrow enough that it never let them forget shore.
 
-Spruce leaned over the right side, black at the waterline and green where the sun struck the higher limbs. To the left, granite shelves came down in pale steps, some dry and white, some dark with old water marks. Small cedars had found cracks in the rock and grown there crookedly, as if the place had allowed them but had not made room. Fog lifted in torn strips ahead of the canoes and broke apart when the sun touched it.
+Spruce leaned over the right side, black at the waterline and green where the sun struck the higher limbs. To the left, granite shelves came down in pale steps, some dry and white, some dark with old water marks. Small cedars had found cracks in the rock and grown there crookedly, as if the place had allowed them but had not made room. Fog lifted in torn strips ahead of the canoes and came apart when the sun reached it. Each cleared patch showed another bend, another short reach of black-green water, another promise that the route would explain itself if they kept moving.
 
 Joel paddled from the back and let Alex set whatever rhythm he could manage in front.
 
-Alex was strong. That helped. He was also uneven, which did not. He would paddle hard for thirty strokes, shoulders and back doing more than skill required, then look off toward a bird or a snag or some imagined thing in the trees and let the blade rest on the gunwale until the canoe began to yaw. Joel corrected without saying much. A quiet draw. A little push on the left. A stroke held longer than it needed. The boat came back.
+Alex was strong. That helped. He was also uneven, which did not. He would paddle hard for thirty strokes, shoulders and back doing more than skill required, then look off toward a bird or snag or some imagined thing in the trees and let the blade rest on the gunwale until the canoe began to yaw. Joel corrected without saying much. A quiet draw. A little push on the left. A stroke held longer than it needed. The boat came back.
 
-That was the arrangement in more than the canoe. Alex made weather in front of him, and Joel corrected from behind. He had been doing some version of it for years now: letting the louder men fill the air, then trimming the consequence. He did not hate Alex for it. That would have been cleaner. He liked him in pieces and resented him in waves, which was the less useful shape for friendship.
+That was the arrangement in more than the canoe. Alex made weather in front of him, and Joel corrected from behind. He had been doing some version of it for years now: letting louder men fill the air, then trimming the consequence. He did not hate Alex for it. That would have been cleaner. He liked him in pieces and resented him in waves, which was the less useful shape for friendship.
 
 After ten minutes Alex glanced over his shoulder.
 
@@ -21,6 +21,16 @@ After ten minutes Alex glanced over his shoulder.
 "That's steering."
 
 "Same vibe."
+
+"Paddle on the left."
+
+Alex switched sides with a small flourish and dipped the blade too far forward, splashing his own knee.
+
+"Was that wrong?"
+
+"It moved us."
+
+"Spoken like a man protecting morale."
 
 Ahead of them, Mike and Will moved cleaner. Mike was in back, compact and economical, doing less than he seemed to. Will sat up front with a rod laid along the side of the canoe and kept turning his head toward shadows near shore. He paddled well when he remembered paddling was the point. Every patch of downed wood, every dark pocket under alder, every ring on the surface took part of his attention.
 
@@ -50,7 +60,7 @@ He had heard his own paddle drip behind him before. He had heard ducks sound lik
 
 The woods were not quiet. They only made you listen harder.
 
-They kept to the right side because Mike had said the first portage would be easier to find from that shore. The lake ran long and crooked, more like a widened river than open water. Twice they passed narrow cuts that looked like routes until they drew close and saw deadfall and shallow weeds. A beaver lodge rose on the left bank, sticks piled high and silvered at the tips. The water around it held a scum of chewed bark.
+They kept to the right side because Mike had said the first portage would be easier to find from that shore. The lake ran long and crooked, more like a widened river than open water. Twice they passed narrow cuts that looked like routes until they drew close and saw deadfall and shallow weeds. A beaver lodge rose on the left bank, sticks piled high and silvered at the tips. The water around it held a scum of chewed bark. A row of peeled sticks floated near the entrance like something sorted by small hands.
 
 Alex pointed with his paddle.
 
@@ -84,19 +94,29 @@ Joel watched the bird go. For one clean second he wanted nothing from the trip e
 
 Joel dipped his paddle. "Waiting for you to remember yours."
 
-"See, that's the kind of wounded quiet-guy thing I'm talking about."
+"See, that's the wounded quiet-guy thing I'm talking about."
 
 "Paddle."
 
 Alex laughed and paddled. The canoe straightened.
 
-For the first hour Joel felt the old pleasure return in the muscles before it reached the mind. The pull of the blade. The little shift of weight in the hips. The corrected angle. The canoe sliding as if the effort were being translated into something cleaner than effort. In Madison, his days had become too square. Rooms, screens, calendar blocks, errands fitted between calls, wedding decisions that seemed small until there were fifty of them. Here the work was dumb and whole. Push water. Move north. Avoid rock. Keep gear dry. Watch the weather. Eat when possible.
+For the first hour Joel felt the old pleasure return in the muscles before it reached the mind. The pull of the blade. The little shift of weight in the hips. The corrected angle. The canoe sliding as if the effort were being translated into something cleaner than effort. In Madison, his days had become too square. Rooms, screens, calendar blocks, errands fitted between calls, wedding decisions that seemed small until there were fifty of them. Here the work was dumb and whole. Push water. Move north. Avoid rock. Keep gear dry. Watch weather. Eat when possible.
 
-That was why he came. Or part of why. The rest was harder to name and therefore easier to ignore.
+That was why he came. Or part of why. The rest was harder to name and therefore easier to ignore. The trip let the old group exist in the tense it understood. Present work. Present weather. Present jokes. A man could become useful without saying what ordinary life had made of him.
 
 Mike raised his paddle ahead and pointed left.
 
-Will said something Joel could not hear. Mike pointed again, sharper this time.
+Will said something Joel could not hear. Mike pointed again, sharper this time. Then he cleared his throat, small and official even across the water.
+
+"Portage is after the bend," Mike called. "Stay right until the dead pine. It opens up after this first tight stretch."
+
+Will turned partway. "Define opens up."
+
+"Bigger water."
+
+"That's a description, not a definition."
+
+"It's water. It does not need a glossary."
 
 Alex turned. "What's the verdict, back there?"
 
@@ -104,15 +124,15 @@ Alex turned. "What's the verdict, back there?"
 
 "Like portage portage?"
 
-"No. The decorative kind."
+"No. Decorative kind."
 
-"I'm asking because backpacking has made me emotionally prepared for carrying things, but not boats."
+"I'm asking because backpacking made me emotionally prepared for carrying things, but not boats."
 
 "You'll be fine."
 
 "I love when people lie gently."
 
-They followed Mike and Will toward a low opening in the shore that did not look like a portage until they were almost on it. A strip of mud, two rocks placed by human hands, alder pressed back enough to suggest a path. There was an old blaze on a spruce trunk, nearly healed over. The landing smelled of muck and wet leaves.
+They followed Mike and Will toward a low opening in the shore that did not look like a portage until they were almost on it. A strip of mud, two rocks placed by human hands, alder pressed back enough to suggest a path. There was an old blaze on a spruce trunk, nearly healed over. The mark had not disappeared, but the tree had been working on it for years. The landing smelled of muck and wet leaves.
 
 Mike got out first in calf-deep water and held the canoe. Will stepped into the shallows, slipped once in his hiking sandals, recovered, and swore with unnecessary precision.
 
@@ -142,6 +162,8 @@ Will looked over. "That's optimistic."
 
 "Emotionally dry."
 
+The first landing took their voices and lowered them. Alder crowded the shore, and the lake behind them was already partly hidden by leaves. Mud took their footprints and filled them with shining brown water. A few dragonflies moved low over the surface, bright-bodied and mechanical.
+
 They unloaded enough for the portage. Mike did not want to double back more than necessary. Will did not want to overload the boats on the trail and crack something. This produced ten minutes of argument beside the water while mosquitoes found them in the alder shade.
 
 "We single portage if we're not stupid about it," Mike said.
@@ -154,7 +176,7 @@ Joel lifted one pack and weighed it by feel. "How long is it?"
 
 "Quarter mile," Mike said.
 
-Will made a small sound.
+Will made a small dry cough into his shoulder.
 
 Mike turned. "What?"
 
@@ -173,6 +195,22 @@ Joel looked at the path. It rose almost immediately from the landing, muddy at f
 Mike gave him a look that asked whether he was taking Will's side. Joel ignored it and pulled his pack from the canoe.
 
 They decided on a modified double portage, which meant everyone pretended compromise had occurred. First trip: heavy packs, rods, paddles, map case, the food barrel carried between Mike and Alex on a strap because neither trusted the other with it alone. Second trip: canoes and whatever had been left to punish them for optimism.
+
+The food barrel latch snapped when Mike checked it, one clean plastic click under the alder.
+
+"Still closed?" Will asked.
+
+"It was closed before," Mike said.
+
+"That is often when things stop being closed."
+
+"Stop helping."
+
+Alex slipped one end of the barrel strap over his shoulder. "I want the record to show I am carrying group food and therefore group morale."
+
+Mike took the other end. "It's mostly tortillas and oats."
+
+"Exactly. Fragile morale."
 
 The trail was worse than it had looked and better than it could have been. Mud at the start, then roots, then a rise over granite where the moss had been scraped by other sandals and boots and never quite recovered. Spruce branches brushed their shoulders. A few birches leaned pale and thin among the darker trees. The air inside the portage held less wind and more insect.
 
@@ -212,7 +250,7 @@ Alex said, "The tree attacked me."
 
 "Tree had right of way."
 
-Joel walked with his head slightly down, watching footing. Mud took the tread of his hiking sandals and gave back a sucking sound. The pack straps bit into the muscle above his collarbones. Sweat started under his fleece despite the cool morning. His body had not yet accepted the trip. It was still negotiating.
+Joel walked with his head slightly down, watching footing. Mud took the tread of his hiking sandals and gave back a sucking sound. His heel scraped once on stone, a dry little slip under the wet noise. The pack straps bit into the muscle above his collarbones. Sweat started under his fleece despite the cool morning. His body had not yet accepted the trip. It was still negotiating.
 
 Halfway through the portage, the trail crossed an open patch of rock. Sun came down clean there. Joel stopped and shifted the pack to ease one shoulder. From the rock he could see a narrow piece of the lake behind them through black trunks, bright where the fog had burned off. Their canoes were hidden by alder at the landing. The water looked empty.
 
@@ -228,9 +266,11 @@ There had been no wind strong enough to move anything heavy. The men ahead were 
 
 Will stopped ahead of him. "What?"
 
+Joel listened. Mike and Alex kept moving ahead, still arguing about whether rice was a side dish or a failure of imagination.
+
 "You hear that?"
 
-Will listened. Mike and Alex kept moving ahead, still arguing about whether rice was a side dish or a failure of imagination.
+Will held still. His face changed into the attentive blank he used when listening for a small mechanical fault or a fish taking line. The woods gave them insects, breath, the soft movement of water too far behind them to see.
 
 "Hear what?" Will asked.
 
@@ -252,7 +292,7 @@ Joel smiled faintly. "That's your job."
 
 They moved on.
 
-He expected the sound to come again. It did not. That should have settled it. One sound was not a pattern. One sound in the woods was nothing unless a person decided to make a shrine of it.
+He expected the sound to come again. It did not. That should have settled it. One sound was not a pattern. One sound in the woods was nothing unless a person decided to build a little house around it and live there.
 
 At the far end, the portage dropped to a second landing, better than the first. Flat rock sloped into a narrower piece of water that ran north between alder and low marsh. The lake they had crossed was behind them now. Ahead, the route tightened into something that might be called a creek if no one wanted to sound grand.
 
@@ -272,11 +312,11 @@ They drank water and went back for the boats.
 
 The return trip felt shorter because their bodies knew the path and because nothing heavy sat on their backs. The sound of their own steps changed after they had walked a trail once. Joel noticed this each year. First pass, every root was a question. Second pass, the body had made a rough map. Step here. Duck there. Mud on the left. Rock on the right. Branch at eye level if you stopped paying attention.
 
-At the first landing, the two canoes lay where they had left them, half-hidden in alder and shadow. Water lapped softly against one hull. A painter rope tapped once against the bow, light and quick.
+At the first landing, the two canoes lay where they had left them, half-hidden in alder and shadow. Water lapped softly against one hull. A painter rope tapped once against the front of it, light and quick.
 
 Joel looked at it longer than necessary.
 
-There was your sound, he told himself. Rope. Water. Boat shifting. The answer was so available that it seemed almost rude not to accept it.
+There was the sound. Rope. Water. Boat shifting. The answer was so available that it seemed almost rude not to accept it.
 
 Mike took the first canoe with Will. They lifted it, rolled it up, and set the center yoke on Will's shoulders. Will adjusted under the weight and took a few testing steps.
 
@@ -292,7 +332,17 @@ Mike took the first canoe with Will. They lifted it, rolled it up, and set the c
 
 "I have a canoe on my head."
 
-Alex watched him go. "That looks bad."
+Mike reached up anyway and moved one loose strap so it would not swing into Will's face.
+
+"Better?" he asked.
+
+Will stood still under the boat, surprised into honesty. "Yeah."
+
+"Try not to die before lunch."
+
+"That's the warmth I came for."
+
+Alex watched them go. "That looks bad."
 
 "It is," Joel said.
 
@@ -300,7 +350,7 @@ Alex watched him go. "That looks bad."
 
 "Mostly."
 
-Joel and Alex carried the second canoe. Alex wanted to try the yoke and lasted thirty yards before admitting that backpacking had not prepared him for carrying a boat upside down while blind to the sky and personally hated by every branch in Canada. Joel took over without comment.
+Joel and Alex carried the second canoe. Alex wanted to try the yoke and lasted thirty yards before admitting that backpacking had not prepared him for carrying a boat upside down while blind to the sky and personally hated by every branch on the route. Joel took over without comment.
 
 Alex did not make a production of surrendering it, which Joel appreciated despite himself. He simply stopped, braced the canoe with both hands, and said, "This is stupid in a way I respect." Then he let Joel step under the yoke as if they had planned the exchange. That was the other thing about Alex. He could demand the room and still know when to hand over weight.
 
@@ -333,6 +383,8 @@ Alex waited until the trail widened by a foot, then reached up and lifted the fr
 "Specialized field."
 
 At the far landing they set the boats down and loaded again. This took longer than unloading because the order now mattered. Will's fishing rods had to be accessible without becoming spears. Alex's food could not be buried under the first-aid kit because he claimed low blood sugar made him philosophical. Rain gear near the top. Map case where Mike could reach it from the back. Joel's day bag behind his seat. Spare paddle along the left side.
+
+Mike crouched by his canoe and pressed the Highlander key pouch inside his PFD as if the key might have become wet through suspicion alone. Joel saw the gesture and then looked away. The key belonged to another day, and another shore. Thinking of it here made the present route feel thinner, as if the whole week were a line stretched between two locked vehicles.
 
 They pushed off into the narrow water just before noon.
 
@@ -378,6 +430,18 @@ Joel corrected their angle around a half-submerged log. Alex's strokes had grown
 
 The channel bent right, then left, then right again. Mike called back directions in ordinary language. "Stay left." "Come right." "Shallow middle." Will argued with some of them and obeyed most. Joel followed their line when it made sense and chose his own when it did not. He liked being in back because the back let him see the whole boat's mistake before it arrived.
 
+Once, the channel pinched so tight that both canoes had to wait while Mike and Will scraped through a slot between a drowned log and a mat of grass. The hull made a low rasp against hidden gravel. Mike leaned right, then corrected.
+
+"Slow," he called back.
+
+Alex looked over his shoulder. "Slow like cautious or slow like we're about to learn something?"
+
+"Just slow."
+
+"I hate the minimalist school of instruction."
+
+Joel let the current take them a foot, then stopped the canoe with a brace. The branch tips ticked against Alex's sleeve. The sound was small and close. Behind them, somewhere back in the alder, water dropped from a lifted branch in a neat series of taps.
+
 Alex turned once and saw Joel looking past him.
 
 "You always this serious on water?"
@@ -410,7 +474,7 @@ Will had a line in the water before Mike had opened the food barrel.
 
 "That's a logistical arrangement, not a moral framework."
 
-Alex sat on a rock and opened his private bag of bland food. He pulled out tortillas, peanut butter, and a packet of tuna he regarded with uncertainty.
+Mike opened the food barrel. The latch snapped up, then the second one. Two small sounds, useful and exact. Alex sat on a rock and opened his private bag of bland food. He pulled out tortillas, peanut butter, and a packet of tuna he regarded with uncertainty.
 
 "Branching out?" Joel asked.
 
@@ -464,7 +528,7 @@ Will reeled in. "He's right, unfortunately."
 
 "I said unfortunately."
 
-They packed lunch, refilled bottles through the filter, checked the boats, and pushed on.
+They packed lunch, refilled bottles through the filter, checked the boats, and pushed on. The food barrel latch clicked shut again. Nobody noticed except Joel, and Joel noticed only because he had noticed himself noticing too much already.
 
 The afternoon became more physical. The channel twisted and shoaled. Twice they had to get out and walk the canoes through ankle-deep gravel. Once Alex stepped into mud up to mid-calf and came out missing a sandal for two dramatic seconds before the suction gave up with an obscene sound.
 
@@ -534,7 +598,7 @@ Joel looked toward the widening water. The wind touched it lightly. Not enough t
 
 They paddled out of the channel and into the next lake.
 
-It opened slowly, not all at once. First a widening, then a view past a point, then water running north in a long dark reach with granite rising on the left and low spruce on the right. Far ahead, too far to matter yet, a bird lifted from shore and crossed low over the lake.
+It opened slowly, not all at once. First a widening, then a view past a point, then water running north in a long dark reach with granite rising on the left and low spruce on the right. Far ahead, too far to matter yet, a bird lifted from shore and crossed low over the lake. The canoes separated a little in the larger water. Mike and Will moved toward the left-hand point, and Joel let their boat run in the small wake.
 
 Alex rested his paddle across the canoe.
 
@@ -562,7 +626,7 @@ Mike and Will were ahead, their canoe moving toward the point. Will had his padd
 
 "Probably a branch," Joel said.
 
-Alex waited, listening.
+Alex waited, listening. For once he did not improve the silence.
 
 The sound did not come again.
 

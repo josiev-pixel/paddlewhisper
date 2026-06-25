@@ -38,7 +38,11 @@ Tap.
 
 Then nothing.
 
-Joel looked at it and then away. A rope tapping a hull was a rope tapping a hull. He had been here long enough, in this kind of morning, to know how many objects could speak once when air moved through camp and then give no testimony.
+Joel pushed the bug net aside and leaned out far enough to see the landing clearly. No paddle had shifted. No hull had slid. No branch had lodged under the stone lip. The shoreline gave him the same objects in the same positions and asked him to make a sensible man of himself.
+
+He stayed there with one cold hand on the hammock edge while the rope touched the hull again, softer this time, almost private.
+
+A rope tapping a hull was a rope tapping a hull. He had been here long enough, in this kind of morning, to know how many objects could speak once when air moved through camp and then give no testimony.
 
 Will had already seen the rods.
 
@@ -96,6 +100,20 @@ Will looked at the sky. "That means nine."
 
 "It means eight."
 
+"Map agrees with eight?" Alex said.
+
+Mike tapped the plastic case with one finger. "Map doesn't care."
+
+Will leaned close enough to see the blue line under the cloudy plastic. "Map also doesn't show beavers."
+
+"It shows water," Mike said.
+
+"That's my point."
+
+"Your point is always that maps have betrayed you personally."
+
+Will's dry cough came once, more irritation than illness. "I'm just saying a line can be right and still not tell you what kind of day you're about to have."
+
 Alex, still inside the tent, said, "It means someone will be looking for his headlamp at eight-ten."
 
 "I know where my headlamp is," Mike said.
@@ -122,7 +140,9 @@ The food barrel latch snapped closed. The stove cooled, clicked once as Mike han
 
 "You often do, and usually badly."
 
-They loaded the boats. The morning light grew cleaner but not warmer. Mosquitoes were thin near shore, slow enough that they seemed confused by their own hunger. The lake held the canoes without wave. Whatever had knocked in the night had left no sign. No shifted hull. No loose paddle. No branch caught on the rocks. Joel checked the landing while Mike tightened straps and Will repacked his rod case, because checking was easier than wondering, and because the body believed a thing more readily when the eyes had done their work.
+They loaded the boats. The morning light grew cleaner but not warmer. Mosquitoes were thin near shore, slow enough that they seemed confused by their own hunger. The lake held the canoes without wave. Mike checked the zip pocket on his PFD where the Highlander key lived, then checked the front strap on the food barrel as if both objects belonged to the same future.
+
+Whatever had knocked in the night had left no sign. No shifted hull. No loose paddle. No branch caught on the rocks. Joel checked the landing while Mike tightened straps and Will repacked his rod case, because checking was easier than wondering, and because the body believed a thing more readily when the eyes had done their work.
 
 By a little after eight-thirty they pushed off.
 
@@ -164,6 +184,8 @@ Mike looked over his shoulder. "Paddle."
 
 Alex paddled.
 
+That was the thing about him that made Joel's irritation unreliable. Alex made every instruction into a small public trial, but he did the work. He complained, translated discomfort into theater, and then put his blade in the water with the rest of them. The performance was not fraud. It was weather over something more durable.
+
 The channel kept narrowing. The alders leaned until their upper branches crossed over the water and made a low, jointed roof. The paddles clipped drowned stems. Once, Joel's blade struck something under the surface that gave back a hollow wooden note, and Alex looked at him.
 
 "Rock," Joel said.
@@ -177,6 +199,18 @@ The channel kept narrowing. The alders leaned until their upper branches crossed
 Ahead, Will said something to Mike that Joel could not catch. Mike answered with one hand lifted off the paddle, palm down, the universal sign for enough. Will turned forward again. He had his rod across his lap in a way that pretended not to be ready.
 
 The first dam came twenty minutes later. It crossed the channel in a low brown ridge of sticks and mud, water shining over the top in thin sheets. On one side a narrow chute had been opened by previous travelers and half-closed again by the animals. The dispute looked current.
+
+"This on the map?" Alex asked.
+
+Will gave the kind of laugh that had no pleasure in it. "No. The map people neglected to consult the beavers."
+
+"It's normal," Mike said.
+
+"Normal is not the same as fast."
+
+"Nobody promised fast."
+
+Joel looked at the dam, at the water seeping through it in several patient places. Somebody had promised something, if only by drawing a line and letting four men believe it meant passage.
 
 Mike guided his canoe toward it, stepped out in knee-deep water, and held the boat while Will got out and pulled from the front.
 
@@ -237,6 +271,8 @@ Joel steadied the canoe and let the mud take back the footprints they had made. 
 The second dam was worse.
 
 The channel bent left and disappeared behind alder. The dam sat just beyond the bend, higher, newer, still wet with the look of recent labor. Water backed up before it in a shallow pond full of drowned grass. A lodge rose on the left, sticks piled against a bank where fresh cuts showed pale. The chew marks were clean and angled, each sapling taken down by a mouth that knew its work.
+
+There was nothing mysterious about it. That almost made it worse. No malice, no warning, no intention toward them at all. Just another creature improving its house by making their route harder. Human plans kept finding themselves inside other appetites.
 
 Will said, "Somebody's active."
 
@@ -308,6 +344,8 @@ They moved again.
 
 The morning warmed. The chill lifted from their clothes but left them damp. The sun came through breaks in the alder and lit the water in copper patches. Every few bends the channel opened into a marshy pool where lily pads held yellowing edges and dragonflies stitched the air low over the surface. A beaver slapped somewhere ahead once, flat and hard, and the sound crossed the channel like a board dropped on water. Then the route tightened again and made them work.
 
+Mike did not say they were behind. He did not have to. He checked the map case more often and put it away more quickly each time, as if the blue line might change if anyone looked at it too long. When Will asked once whether the next lake was the long one or the before-the-long-one, Mike said, "After this," and kept paddling.
+
 Joel felt the route changing the men. Not dramatically. It was too early for drama, and the day was still bright enough to make seriousness feel theatrical. But the first-day jokes had less gloss on them. Everyone had slept, but not enough to erase the weight of portage and water from their bodies. Mike's instructions were shorter. Will still talked, but more of it came between breaths. Alex performed, forgot to perform, then remembered when silence lasted too long.
 
 The route had its own method. It gave them a clear stretch, then a snag. A little current, then mud. A turn that looked open until the boat entered it and the alder took both sides of the canoe in its hands. Joel began to understand how a map could be true and still leave out the truth. A blue line did not say how many times a man would step into brown water and feel his foot disappear.
@@ -364,7 +402,7 @@ The work made a kind of language: blade drip, hull scrape, breath, boot pulled f
 
 A branch cracked in the alder to their left.
 
-Not loud. A clean snap, followed by brush moving low and fast, not through the tops but under them.
+Not loud. A clean snap, followed by brush moving low and fast, not through the tops but under them. It had a body in it, or suggested one well enough that Joel's own body answered first: shoulders tightening, paddle stopping half out of the water, breath held because breath was suddenly another sound.
 
 Alex stopped paddling mid-stroke.
 
@@ -386,6 +424,8 @@ Mike looked toward the alder. "Animal."
 
 Will held his paddle across his knees and listened. The brush moved once more, farther back. Leaves shook. A thin stem kept trembling after the rest went still. Then nothing.
 
+The nothing lasted longer than it should have. No splash. No grunt. No second branch. The channel kept moving under them with small brown sounds, and the alder bank offered the exact shape of concealment without the courtesy of an animal.
+
 "Beaver?" Joel said.
 
 "Could be," Mike said.
@@ -404,7 +444,9 @@ Will, still listening, said, "Bear would probably sound heavier."
 
 The word everybody did its work. They moved.
 
-Joel looked once into the alder as they passed. He saw leaves, mud, the dark arch of roots where the bank had undercut, a few fresh chips on a cut sapling. No animal. No shape. No reason to remember it except the way Alex had stopped before anyone else did, shoulders tightening under the straps of his PFD, paddle held over water so no drop fell.
+Joel looked once into the alder as they passed. He saw leaves, mud, the dark arch of roots where the bank had undercut, a few fresh chips on a cut sapling. No animal. No shape. No proof of anything except movement.
+
+No reason to remember it except the way Alex had stopped before anyone else did, shoulders tightening under the straps of his PFD, paddle held over water so no drop fell.
 
 A person could grow up in Alaska and still become alert to brush. Maybe especially then. Maybe that was what larger country gave you: not bravery, but a better ear for the small thing before the large thing chose to show itself.
 
@@ -450,7 +492,7 @@ Mike ignored that. "We get across this, short ugly bit, then camp."
 
 They paddled into the wider water.
 
-The wind was mild but steady, enough to press Alex's lazy strokes into consequence. Joel had to correct more often. Mike and Will angled left toward a low shore where the map showed the next narrow exit. Will kept looking back toward the marsh.
+The wind was mild but steady, enough to worry the surface and press Alex's lazy strokes into consequence. Joel had to correct more often. The canoe showed him every small failure in the front. Mike and Will angled left toward a low shore where the map showed the next narrow exit. Will kept looking back toward the marsh.
 
 Joel saw it and did not ask.
 
@@ -506,8 +548,4 @@ Will glanced at Joel. Not alarmed. Just registering the phrase the way he regist
 
 Joel dipped his paddle and followed the first canoe into the gap.
 
-The alder closed around them. The light narrowed. Water slid under the boats with a dark, steady pull, and from somewhere ahead came the faint sound of it dropping over stones.
-
-Not danger. Not yet.
-
-Just the route, doing what routes did after men had described them too easily.
+The alder closed around them. The light narrowed. Water slid under the boats with a dark, steady pull, and from somewhere ahead came the faint sound of it dropping over stones. Not danger, not in any form a man could name from the back of a canoe. Only current. Only rock. Only the route continuing to be itself after men had described it too easily.

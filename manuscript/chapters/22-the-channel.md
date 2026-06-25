@@ -12,6 +12,8 @@ For a while Joel did nothing but look at it.
 
 The boat had not moved. That was fact. The rope had not been cut. The knot had not slipped. The food barrel stood under the tarp between them, black ring closed. Will was visible. Joel was visible to himself in pieces: hand, sleeve, wet pant leg stiff with cold, the dark crescents under his nails from mud he had stopped noticing.
 
+He pressed two fingers to the inside of his jacket and felt the hard nub of the Highlander key without opening the zipper.
+
 Sight first. Then thought.
 
 Across the channel, something small moved in the alder and stopped.
@@ -96,9 +98,11 @@ They pushed off.
 
 The channel ahead bent through alder so tight the canoe entered it like a thought no one had room to finish. Branches leaned from both sides and touched above them in places, making a low ribbed tunnel. The water under the branches was black with leaves and tannin. Old beaver sticks lay half-sunk along the banks, stripped white at the ends. Grass mats floated loose in the eddies. Gravel showed through wherever the current thinned.
 
-Joel sat in back, paddle ready across his knees more often than in the water. Will sat in front, shoulders rounded, his good hand doing too much. The food barrel pressed between them. The tarp, wet sleeping bags, stove, filter, first-aid kit, map case, Mike's repair kit, hatchet, spare paddle, and the last useful pieces of the trip all rode low inside the hull.
+Joel sat in back, paddle ready across his knees more often than in the water. Will sat in front, shoulders rounded, his good hand doing too much. The food barrel pressed between them. The tarp, wet sleeping bags, stove, filter, first-aid kit, map case, Mike's repair kit, hatchet, spare paddle, blue dry bag, and the last useful pieces of the trip all rode low inside the hull.
 
 The canoe moved with the burdened reluctance of something that had been asked to become shelter, road, witness, and coffin all at once.
+
+The blue bag stayed under the front seat, wedged where it had ridden since the cache. Joel had no use for it yet except as a fact. Blue. Front. Under. A child's description of an object, plain enough that fear could not dress it up.
 
 Joel made the first correction with a small draw. Will saw it and stopped paddling before the front hit the alder. Good. The boat slid by with only a brush of leaves along the side.
 
@@ -197,6 +201,8 @@ The voice came again from ahead.
 "You guys hear that?"
 
 This time it sounded closer to annoyed. Still Will. Still living. Still wrong.
+
+The sentence did not ask only for an answer. It asked for the old pause. It asked for heads to lift, paddles to stop, each man to become part of a small listening group. It was not a lure in the shape of terror. It was a lure in the shape of manners.
 
 Will pointed to himself, then ahead.
 
@@ -350,6 +356,8 @@ I CHOOSE VISIBLE.
 
 Will did not like it. He nodded anyway.
 
+That was the agreement now: not trust, not consent, only two men choosing the same bad thing because choosing separate bad things was death.
+
 The middle run scraped them twice and almost pinned them once. Joel had to get out and ease the back around a stone while Will held the painter from the front. Water climbed over Joel's knees. His legs went numb in patches. The canoe made a thin shriek against rock that seemed to travel downstream and wait there for them.
 
 At the end of the run, Mike cleared his throat from the left channel they had not taken.
@@ -439,6 +447,8 @@ Joel pointed to a small mud shelf on the left.
 Will nodded.
 
 They landed in pieces. Food barrel first, because it was heavy and central. Then the wet bags. Then the stove bag, map case, repair kit. Joel kept the Highlander key on his body. Will kept the hatchet in sight on the mud shelf, not because it would save them but because losing it would be another failure with a handle.
+
+The blue dry bag stayed in the canoe under the front seat. Joel checked it by sight and left it there. Moving everything made a camp. Moving only what they needed made a pause.
 
 The mud shelf stank of wet leaves, old wood, and the mineral cold of disturbed bottom. Their sandals sank past the straps. Mosquitoes lifted weakly from the grass despite the chill. Joel's hands slipped on the canoe handle. Aluminum numbed his palms.
 
@@ -602,6 +612,8 @@ The entity could not read minds. They believed that. It could mimic sounds it ha
 
 None of that proved the page was private.
 
+The thing did not have to read the words to learn the posture around them: the two bodies bent over one object, the long pause after a question, the way Will's anger steadied when the pencil was in his good hand.
+
 Joel wrote:
 
 NO PROOF. DON'T TEACH IT.
@@ -636,7 +648,7 @@ Visible.
 
 Will nodded.
 
-Joel wrote, pressing so lightly the pencil barely marked:
+Joel wrote, pressing so lightly the pencil barely marked and made almost no sound:
 
 I HEAR YOU HERE.
 

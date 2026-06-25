@@ -4,7 +4,7 @@ Emergency Camp had no fire ring and no mercy.
 
 It was not a camp until they had made enough mistakes around it to call it one. Before that it was only a steep poor shore, a wet shelf of root and stone, two canoes dragged up out of reach of the chop, and three men trying not to look toward the places where sound gathered.
 
-The afternoon thinned without becoming warmer. Wind came over the lake in hard panels and broke against the spruce, shaking water loose from the branches long after the rain had ended. Every gust made the tarp snap unless Joel kept the line in his hand. When he let go, the cloth slapped hard enough to make all three of them look. The line had been too short for a proper pitch, then too long after he retied it, then the wrong angle once Mike moved the gear under it. Nothing wanted to fit.
+The afternoon thinned without becoming warmer. Wind came over the lake in hard panels and broke against the spruce, shaking water loose from the branches long after the rain had ended. Every gust made the tarp snap unless Joel kept the line in his hand. When he let go, the cloth slapped hard enough to make all three of them look. The line had been too short for a proper pitch, then too long after he retied it, then the wrong angle once Mike moved the gear under it. Nothing would take the shape they needed.
 
 They set the tents where roots rose highest from the mud. One tent went crooked between a jack pine and a spruce with half its stakes buried sideways under stones. The other would not pitch at all because the ground fell away under one corner, so they made it into a gear shelter, fly pulled low and patched where the fabric had abraded against a pack buckle during the landing. The silver repair tape shone in the dim light, too bright for the rest of the camp.
 
@@ -24,9 +24,7 @@ The space where Alex would have stood remained open.
 
 Joel tightened the tarp line again. The hook at the dead cedar ticked once against bark. He saw it, wrapped the loose tail around the line, and stopped the sound.
 
-Sight.
-
-That was the word under everything now. Not faith. Not reason. Not even trust. Sight was smaller and meaner and more useful. Sight was the barrel visible when the latch clicked. Sight was Mike behind them when Mike's voice had come from ahead. Sight was Will in the front of the canoe while Will's own question moved out of the trees. Sight was what the world had been reduced to after sound became a bad witness.
+That was how they worked now. A sound, then a source. The barrel visible when the latch clicked. Mike behind them when Mike's voice had come from ahead. Will in the front of the canoe while Will's own question moved out of the trees. The rule was not faith or reason or trust. It was smaller than those and meaner. Eyes first. Everything else after.
 
 They had written that in the notebook and still kept forgetting, because men had lived by answering one another for forty years and rules made in a morning did not cut deep enough by evening.
 
@@ -36,7 +34,7 @@ The wet sleeping bag hung from a line between two spruce trunks, lifted and drop
 
 No one answered. They had used the good news already.
 
-Mike knelt beside his canoe under the low tarp, redoing the repair on the cracked thwart. The first lashing from the shoreline had held, but he did not trust it. Trust had become one more thing they did not have enough of. He had taken the repair sleeve from the kit and cut two thin strips of aluminum with the multi-tool, working the metal back and forth until it gave. Now he set the strips along the split wood, braced them with a tent stake, and wrapped cord through the seat frame with furious care.
+Mike knelt beside his canoe under the low tarp, redoing the repair on the cracked thwart. His PFD hung on a root beside him, left pocket zipped shut with the Highlander key still sealed inside. The first lashing from the shoreline had held, but he did not trust it. Trust had become one more thing they did not have enough of. He had taken the repair sleeve from the kit and cut two thin strips of aluminum with the multi-tool, working the metal back and forth until it gave. Now he set the strips along the split wood, braced them with a tent stake, and wrapped cord through the seat frame with furious care.
 
 It was the best thing about him and the worst. Problems became objects. Objects could be held, splinted, forced back toward function. If the damage had an edge, a screw, a wet seam, a cracked place, Mike could give himself to it completely and become almost gentle.
 
@@ -254,7 +252,7 @@ Joel looked at him.
 
 Will swallowed. The words wanted out of him. Joel could see them crowding behind his teeth. Will was a man built out of distinctions, and this distinction had weight.
 
-"Maybe it can recombine," he said, barely above breath. "Not invent. Not like us. But if it has enough sound. Little pieces. Mouth-shapes. Tone. It might be able to assemble something close to new. Like speech synthesis, except not, because that implies a model and training data and I know that sounds insane, but listen. If it can take Alex's voice and put a phrase where Alex never stood, maybe the phrase is fixed and the use isn't. It could be building from pieces."
+"Maybe it can recombine," he said, barely above breath. "Not invent. Not like us. But if it has enough sound. Pieces. Tone. Mouth-shape. It can put what it heard where it doesn't belong. The phrase is fixed, maybe, but the use isn't. That's not understanding. It's assembly."
 
 "Will," Joel said.
 
@@ -402,7 +400,7 @@ Mike said, "Maybe it wants us to check the boats."
 
 "Maybe it wants us to answer," Will said.
 
-Joel looked at the dark below the trees. Want was a dangerous word. It put a person inside the sound. It gave the dark a center, a plan, a face it had not earned. Everything out here could kill without wanting. Cold did not want. Wind did not want. Water did not want. A bear could want only in the simple body sense of hunger or fear, and even that was not malice. Want made the thing too human.
+Joel looked at the dark below the trees. Want was a dangerous word. It put a person inside the sound. It gave the dark a center, a face it had not earned. Cold did not want. Wind did not want. Water did not want. A bear wanted only in the body sense of hunger or fear. Want made the thing too human.
 
 He took the pencil and wrote:
 
@@ -434,7 +432,11 @@ Mike's throat worked. He did not clear it. Joel noticed that. The swallowed habi
 
 Will gave him a look so exhausted it had almost no anger left. "Mike."
 
-"The canoe is damaged. The paddle is damaged. Your bag is wet. Weather's not stable. We're off the route and we missed the portage landing. The filter's slow. The barrel's hanging like a gift basket. If we keep hugging shore looking for the portage, we spend half a day in the wind beside water where voices carry. If we cross again wrong, we lose a boat or one of us goes in. The old map puts a maintenance cabin inland from the next portage. Maybe there's a trace. Maybe there's a road."
+"The canoe is damaged. The paddle is damaged. Your bag is wet. Weather's not stable. We're off the route and we missed the portage landing. The filter's slow. The barrel's hanging like a gift basket. If we keep hugging shore looking for the portage, we spend half a day in the wind beside water where voices carry. If we cross again wrong, we lose a boat or one of us goes in."
+
+He touched the zipped pocket on the PFD beside his knee without looking at it. Key, road, truck: the whole outside world reduced to a hard piece of metal and one man's confidence in paper.
+
+"The old map puts a maintenance cabin inland from the next portage," Mike said. "Maybe there's a trace. Maybe there's a road."
 
 "Maybe there's a fairy goddamn godmother."
 
@@ -448,7 +450,7 @@ Joel felt Will beside him gather for the correction. Map says there was a cabin.
 
 Both men looked at him.
 
-He wished he had a better reason. He wished he believed in the cabin. What he believed was narrower: they could not move at night; they could not stay for another full day without becoming colder and more stupid; the water had nearly killed them in daylight; the woods were no safer, but at least a trace would put solid ground under their feet. The cabin did not have to be real. It only had to be the next testable human mark.
+He wished he had a better reason. He wished he believed in the cabin. What he believed was narrower: they could not move at night; they could not stay for another full day without becoming colder and more stupid; the water had nearly killed them in daylight; the woods were no safer, but at least a trace would put solid ground under their feet. The cabin did not have to be rescue. It only had to be the next testable human mark.
 
 "We look in daylight," Joel said. "All three. No scouting alone. If it is nothing, we come back."
 
@@ -534,7 +536,7 @@ On a clean page he wrote in block letters:
 
 DO NOT ANSWER.
 
-He looked at the sentence. It was too simple and not simple enough. A dead friend could ask. A living friend could call from out of sight. A boat could knock. A zipper could open. A bear could actually come. The rule was not a rule for survival so much as a rule for choosing which danger to prefer.
+He looked at the sentence. It was too simple and not simple enough. A dead friend could ask. A living friend could call from out of sight. A boat could knock. A zipper could open. A bear could actually come. The rule did not choose safety. It chose which danger they would prefer.
 
 He added beneath it:
 

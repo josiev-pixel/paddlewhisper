@@ -4,6 +4,10 @@ The planted phrase helped him once by being stupid.
 
 No memory hung from it. No old trip. No argument. No dead man's way of handling shame. Blue bag under the front. A fact, and not even an important one now that the bag was in the canoe and Joel could see it. It did not ask anything of him except that he notice where it was.
 
+The canoe was already moving when he understood the first use of it. He had shoved off from the gravel with both hands on the gunwales, one foot in the lake and one on stone, and for a second the hull had tried to leave without him. The emergency paddle lay crosswise over the seat. The small pack slid toward his knees. The map page under the cord lifted and slapped once, then settled. He got in badly, weight too far to one side, and the canoe rolled under him with the offended quickness of something that still remembered two men.
+
+He did not swear. Swearing was a gift. Breath was almost a gift. He sat low, waited for the wobble to pass, and let the landing fall behind without turning to measure it.
+
 The first time the thing used it, Alex said it from the left shore.
 
 "Blue bag under the front."
@@ -18,6 +22,8 @@ It sat under the front seat, the blue dulled by mud and last light, the rolled m
 
 That was enough.
 
+Enough had become a smaller word than it used to be. It no longer meant food for the day, daylight for the portage, proof for an explanation, or a route a man could defend on a map. It meant one fact that held for one breath. The bag was there. The voice was not the bag. The shore was not a mouth because Alex's mouth had spoken from it.
+
 The canoe drifted while he made himself hold the difference between enough and safe. Wind pushed along the lake in narrow gusts, lifting small black wrinkles off the water. The right-hand reach opened ahead of him, darker than the shore but less dark than the alder-choked left channel where Alex's voice had placed itself. The map under the thwart cord showed a north-running lake, then a pinch, then water beyond. But the map had already been right in shapes and wrong in mercy. A blue line could be true and still not save anyone.
 
 Joel set the short paddle on the right side and pulled.
@@ -25,6 +31,8 @@ Joel set the short paddle on the right side and pulled.
 The canoe answered late.
 
 Everything about it was wrong now. Too little load in the front, too much human weight in the back, no second paddle correcting small mistakes before they became large ones. With Alex in front, the boat had jerked and argued but had still had another body reading the water. With Will, after Alex, it had been overloaded and miserable and alive with disagreement. One man in the back made the canoe ride light and foolish ahead of him. Each stroke swung the front wider than Joel wanted. Each correction cost more water than it gained.
+
+He tried kneeling and could not hold it. His knees had gone stupid on the last portage, the left one swollen tight under wet fabric, the right one bruised where he had dropped against a root while lifting the boat alone. Sitting raised him too high, kneeling gave him control and then took it away with pain. He compromised in the ugly way survival made men compromise: one knee down, one foot braced, hips twisted, back already complaining. It was not good paddling. It was movement.
 
 He moved anyway.
 
@@ -55,6 +63,10 @@ The boat steadied by inches.
 He wrote no new rule. He could not write while moving, and stopping in open water was another kind of answer. The old rules sat in the notebook under his jacket and on the page pinned at the thwart behind him: NO NAMES. NO ANSWERS. ONLY SEEN IS REAL. SOUND IS BAIT. GIVE IT ONE THING.
 
 He had given it one thing. It had not become his friend. It had not become a map. It was only a mark on the water, a way to see the trap spring.
+
+Will would have hated how little that proved. Joel could feel the shape of the objection without needing the voice to say it. A controlled phrase was not a controlled experiment. No constant held. The lake changed, the light changed, Joel changed by the minute. The thing might repeat the phrase because it heard him, or because it had learned that any new sound from a living mouth mattered, or because all mouths were equal to it once opened.
+
+The uncertainty did not make the test useless. It made it honest.
 
 The lake narrowed by degrees. Low reeds began to show in clumps to the left. The right shore lifted into black spruce and small granite shelves, all of it sliding past too slowly. Dusk thickened under the cloud. The water stopped reflecting sky and began holding it in broken, darker strips. Every paddle stroke put a small wound in that surface and closed it again.
 
@@ -94,6 +106,8 @@ The key was still there.
 
 He checked it with the heel of his free hand between strokes, a small push against the jacket. Metal under cloth. The whole planned exit reduced to that cold tooth. Mike's key. Mike's Highlander. Mike's confidence broken out of his dead pocket and carried by the man who had learned not to believe confidence just because it spoke clearly.
 
+The key had no voice. That was part of its mercy. It did not clear its throat. It did not tell Joel the road would be there, or the battery would turn, or the bridge would be where the map said bridge. It only pressed into him, a hard private fact. If he drowned, it would sink with him. If he reached the road, it might open a door. Between those two uses it knew nothing.
+
 Ahead, Mike cleared his throat.
 
 Joel kept paddling.
@@ -126,6 +140,8 @@ Joel closed his eyes for one breath, then opened them because closed eyes gave s
 
 The thing had not used the planted phrase to reveal the correct direction. It had used the phrase the way it used everything else: to make a body move before the mind could finish looking.
 
+That was the last temptation in Mike's voice. Not that it sounded like rescue. That would have been easier to refuse. It sounded like the efficient thing, the reasonable thing, the thing a tired group would have accepted because dissent took strength. Go where the water looked more open. Trust the man who had always been willing to decide. Let certainty do the work sight no longer wanted to do.
+
 He worked the canoe left of center, not into the reeds but toward the visible cut beyond them.
 
 The wind dropped near full dark.
@@ -156,6 +172,8 @@ Only the one word.
 
 Less was worse. Less sounded more like him because he had never been a man of big speeches. He had given the woods so little that it could make a meal out of crumbs.
 
+He wondered, with the quick useless cruelty of fatigue, whether the thing had enough of him to imitate silence. Not absence. Silence. The little pause before he answered. The way he let other men spend themselves first. The way his restraint had once felt like patience and had become, under pressure, a kind of coldness. A man could be copied by what he did not say, too, if the people who loved him had built their speech around that vacancy.
+
 He did not answer. He did not wait.
 
 He planted the paddle and shoved away from the reeds. The blade struck bottom. Mud took it and held. For one bad second the paddle would not come free. The canoe kept moving. The shaft bent. He saw himself losing it, saw the emergency paddle sliding out of his hands into black water, saw the remaining route become a joke too stupid to be called fate.
@@ -185,6 +203,8 @@ There could be no speaker there. No shore. No body. Just water, dark, a few pale
 Sound did not have to stand where a body would stand. Knowing that did not change the rule. It sharpened it.
 
 Sight had never meant safety. It meant only that sound alone could not vote.
+
+He thought of the notebook under his jacket, wet pages swelling against his ribs. All week he had been making law out of panic. Rules gave the panic edges. They did not make it true. They did not make the lake shallow or the thing stupid or the dead less dead. They only slowed the body's first obedience.
 
 He kept the front toward the black cut in the trees where the map promised an outlet.
 
@@ -220,6 +240,8 @@ It had bought him direction once. Maybe twice. It would not carry him to the bri
 
 The thought should have discouraged him. Instead it steadied something small and mean in him. He did not need a solution. He needed the next hundred feet.
 
+That had been the size of survival since Alex died, though Joel had only just admitted it. Not the route. Not the take-out. Not the official category waiting somewhere beyond the bridge, bear or accident or exposure or missing. The next hundred feet, then the next. A distance too short to contain hope and too long to cross by wishing.
+
 The cut opened.
 
 Not wide. Not welcoming. A seam of darker water between reeds, with black spruce crowding both sides beyond. A little current touched the front and changed the feel of the canoe. Not much. Enough that the water seemed to have a preference. Enough that the lake's flat holding became a pull.
@@ -247,6 +269,12 @@ Enough.
 He clicked the lamp off.
 
 Dark returned thicker for having been cut.
+
+The headlamp click went on ringing after the light was gone. It seemed impossible that such a small switch could have so much edge. Plastic against nail. A cheap battery contact closing. The kind of sound a man made in a tent without thinking, half inside sleep, opening a little private circle of yellow. Joel kept the lamp between his knees and waited for the answering click.
+
+It came from the right bank. Then from behind him. Then, too quietly, from the pack at his feet though the lamp lay visible and dark.
+
+He did not touch it again.
 
 Mike said from ahead, very softly, "Just keep moving."
 
@@ -276,6 +304,8 @@ Small stroke. Close to the boat. Another. Another.
 
 The hull passed over the place where the pale thing had been. Nothing struck. Nothing touched. Water made its ordinary small talk along the ribs. His own breath sawed in and out through his nose because his mouth was closed and would stay closed.
 
+His body wanted proof after the danger passed. It wanted to look back, lean over, shine the weak lamp into the water and make the pale thing become one of the old categories: log, fish, reflection, animal. Explanation was another appetite. It had teeth in it. He kept the paddle moving until the need to know dulled into another ache.
+
 Behind him, in Mike's voice, "Blue bag under the front."
 
 Ahead, in Joel's voice, "Wait. Just wait."
@@ -283,6 +313,8 @@ Ahead, in Joel's voice, "Wait. Just wait."
 To the left, in Alex's, "You coming or writing a poem?"
 
 The voices no longer tried to be plausible. They tried to be many. They tried to make the world all invitation and correction. They made old friendship into a net, each strand a habit Joel would once have honored without thinking.
+
+There were other strands the thing did not have, or did not use. Mike's hand on a shoulder after a bad landing, too brief to embarrass them both. Will going quiet when he was truly hurt, all correction drained out of him. Alex doing useful work in silence and ruining the kindness later by making a joke of it. Those things had not been sound, or had not been useful sound. The dead were smaller in the thing's mouth than they had been in life, but the smallness did not make them easier to refuse.
 
 Joel looked at the channel.
 

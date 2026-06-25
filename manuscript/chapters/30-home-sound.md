@@ -6,7 +6,7 @@ The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The ph
 
 Joel did not sleep much.
 
-In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. His fiancee would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge.
+In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. His fiancee would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. She had taken the clock off the dresser after the second night because its motor worried him; she had put it in the linen closet and then hated herself for doing it, as if the house had begun to take orders from his damage. He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge.
 
 Then the house would click.
 
@@ -20,9 +20,31 @@ Source, then sound.
 
 It helped until it did not.
 
+On the fourth night home, she called to him from the laundry room and he did not answer.
+
+At first she thought he had not heard. She came to the kitchen doorway with a wet towel in one hand and stopped when she saw him standing at the sink, both palms braced on the counter, head turned toward her voice and not toward her body.
+
+"Joel," she said.
+
+He looked at her then. He nodded once.
+
+She looked tired, not frightened. That made it worse.
+
+"I can come where you can see me," she said. "I can do that. But I can't become a checkpoint every time I move through my own house."
+
+He wanted to apologize. The word seemed useless and also necessary.
+
+"I know," he said.
+
+"No," she said. "You don't yet."
+
+After that she did come to doorways. She also slammed a cabinet once on purpose, not hard, just enough to remind the house that it was hers too. Joel flinched. She did not apologize for the cabinet. He was grateful later and angry in the moment and knew both things were fair.
+
 People wanted language from him.
 
-The police called first, then called again with different people and better forms. Conservation officers, county investigators, a woman from a state agency whose title Joel forgot while she was still saying it. Insurance. Search coordinators. Hospital billing. A victim-services person with a careful voice. They needed dates, weather, last known locations, gear lists, next of kin, whether the route had been altered by choice or necessity, whether any of the men had consumed alcohol, whether anyone had expressed suicidal intent, whether an animal had been seen, whether he could describe the animal if he had not seen it.
+The police called first, then called again with different people and better forms. Conservation officers, county investigators, a woman from a state agency whose title Joel forgot while she was still saying it. Insurance. Search coordinators. Hospital billing. A victim-services person with a careful voice. The sheriff's office mailed a property receipt for the small pack, the notebook, his ruined phone, Mike's key, the blue dry bag, the emergency paddle, and clothing cut from him in the hospital. Someone had typed each item into a box. The boxes looked calm.
+
+They needed dates, weather, last known locations, gear lists, next of kin, whether the route had been altered by choice or necessity, whether any of the men had consumed alcohol, whether anyone had expressed suicidal intent, whether an animal had been seen, whether he could describe the animal if he had not seen it.
 
 "No," Joel said.
 
@@ -59,6 +81,8 @@ The words entered newspapers, calls, emails, family messages, agency updates. Ea
 Joel stopped reading.
 
 He did not stop being read.
+
+His fiancee read longer than he did. Not the comments, she told him, and not the amateur maps people posted with red circles and arrows, but the agency updates, the corrections, the names spelled wrong and then fixed. She did not report these things to him unless he asked. He almost never asked. Sometimes she shut the laptop with both hands as if closing a box that had begun to leak.
 
 Families called.
 
@@ -148,15 +172,35 @@ She looked toward the drawer where he had put the notebook. He had moved it from
 
 He almost told her she sounded like Will. The correction sat at the back of his mouth, affectionate and unbearable. There is a difference. He did not say it.
 
+"I don't want to be the person who tells you to stop being kind," she said.
+
+"Then don't."
+
+"I also don't want to stand here and watch you bleed for everybody because they can hear your voice on a phone."
+
+He had no answer for that. She went to the sink and washed the mug Will's mother had made him hold without drinking. Her hands moved under the water with controlled irritation. She did not break anything. He almost wished she would.
+
 Weeks passed. The world resumed its insulting competence.
 
-Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. Someone from work asked whether he planned to ease back in. His manager used phrases like no pressure and whenever you're ready, which meant there was pressure and a date had to exist somewhere. His laptop waited on the desk. The cursor blinked in old code as if no week could be large enough to stop it.
+Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. His fiancee went back to work and came home carrying the odors of other rooms: printer toner, rain on wool, somebody's microwave popcorn, the sharp soap from the restroom there. She put her keys in the blue bowl by the door even when he asked her not to drop them from standing height. Some nights she went for a run before dinner and returned red-faced and angry with herself for needing air that did not include him.
+
+Someone from work asked whether he planned to ease back in. His manager used phrases like no pressure and whenever you're ready, which meant there was pressure and a date had to exist somewhere. His laptop waited on the desk. The cursor blinked in old code as if no week could be large enough to stop it.
 
 He tried one meeting with the camera off.
 
 Voices entered his office through small speakers. Men and women he knew, mostly, each reduced to clean sound and little icons. Status. Timeline. Deploy. Blocker. Quick question. Somebody made a joke about being lost in the weeds and apologized too quickly because everyone knew where Joel had been and did not know what to do with ordinary metaphors.
 
 Joel took notes on paper.
+
+He wrote names beside voices when he could.
+
+MARA - SCHEDULE.
+
+DEVON - API.
+
+RICH - JOKE, BAD.
+
+For one minute the list worked. Then two people spoke over each other and the speaker label lagged, and a man's voice came from a woman's square while the software rearranged the grid. No malice. Bad latency. A product decision made by people who had never needed a body attached to every sound.
 
 After twelve minutes he closed the laptop.
 
@@ -195,6 +239,12 @@ He laughed once. The sound surprised both of them. It came out rough and brief, 
 Her eyes filled and she looked away before he had to.
 
 They did not set a wedding date. They had already had one, then lost it in the administrative wake after the trip. Venue emails kept arriving in cheerful fonts. Floral deposit. Catering adjustment. Final guest count. Joel had once found the whole machinery embarrassing. Now it seemed like evidence from a species he had only read about.
+
+She cancelled the tasting without asking him.
+
+"We are not going to sit under Edison bulbs and talk about chicken," she said.
+
+It was the closest either of them came to laughing for three days.
 
 He told her she could leave.
 
@@ -266,7 +316,21 @@ The notebook was evidence. It was also a place the dead had been flattened into 
 
 She nodded.
 
-He expected her to ask when. She did not.
+He expected her to ask when. She did not. She picked up the glass of water from the table, poured it into the sink, and set the glass in the dishwasher with more force than the glass deserved.
+
+"I hate that thing," she said.
+
+He looked at the notebook.
+
+"I know it helped you," she said. "I still hate it."
+
+"Okay."
+
+"That's not an argument."
+
+"I know."
+
+It was an argument, but not one either of them could win. The notebook lay open between them, full of rules that had saved one man and made no room for the person standing in his kitchen.
 
 At night, he heard them less often than he expected and more often than he could bear.
 
@@ -380,7 +444,7 @@ Rain ticked at the gutter.
 
 The refrigerator motor started in the kitchen, ran for a while, stopped. The pause after it widened.
 
-Joel hated his own attention. Houses did not listen. Woods did not listen either, until they did. That was the damage: not belief, exactly, but the knowledge that belief had not been required.
+Joel hated his own attention. The house did not care whether he listened. It went on cooling, settling, carrying water through its walls. The woods had not cared either. That was part of the damage. Not belief. Not proof. The knowledge that neither had been necessary.
 
 From the kitchen came a small click.
 
@@ -398,13 +462,13 @@ A man cleared his throat in the kitchen.
 
 Mike's throat.
 
-The small preparatory sound before a plan, before certainty, before the world got reduced to a route Mike could manage by saying it hard enough.
+Not a cough. Not a pipe's knock. The small preparatory sound before a plan, before certainty, before the world got reduced to a route Mike could manage by saying it hard enough.
 
 Joel's hands closed on the blanket.
 
-The sound had a source if he wanted one. Pipes. House. Memory. The old injury of hearing. A mind that had learned one pattern too well and now laid it over everything. Trauma, someone would say. Intrusion. Hypervigilance. An auditory memory misfiled as present. There were rooms for those words. Offices. Forms. Treatment plans. None of them required a thing to have followed him.
+The sound had sources available if he needed them. Pipe. Vent. Wood. Memory. A tired mind laying an old pattern over new weather. The list was long enough to live inside.
 
-He held to that because it was useful.
+He held to the list because it was useful.
 
 Then Mike said, from the kitchen, "We're exactly where we ought to be."
 
