@@ -1,14 +1,14 @@
 # Chapter 15 - The Trace
 
-The trace disappeared three times.
+The trace disappeared three times before it became a road again.
 
-The first loss happened so gently that Joel did not know it had happened until Mike stopped. The old path had been grass and mud a minute before, two shallow wheel ruts holding brown water, alder leaning in from both sides. Then it was only wet brush. No ruts. No cut stumps. No straightness. The woods took the human mark into itself without drama, as if it had been waiting for them to blink.
+The first loss happened so gently that Joel did not know it had happened until Mike stopped. A minute before, the old path had been grass and mud, two shallow wheel ruts holding brown water, alder leaning in from both sides. Then it was only wet brush. No ruts. No cut stumps. No straightness. The woods took the human mark back into itself without drama, as if it had been waiting for them to blink.
 
 Mike lifted one hand.
 
 Will stopped behind him. Joel stopped behind Will. The order still mattered. Mike first because Mike could read a route and wanted decisions where he could touch them. Will in the middle because he was more likely to turn toward sound. Joel last because he could see both living men, and because by then seeing had become the only mercy left.
 
-No one spoke for a long moment.
+No one spoke.
 
 Rain from the night before still lived in the branches. It fell one drop at a time onto hoods, pack lids, the backs of their bare calves above the hiking sandals. Mosquitoes had returned with the mildness after the weather. They worked at wrists and ears and the seams where collars had loosened. Joel let one land on the back of his hand and fill itself. Slapping it would make sound. That was ridiculous. It was also what his body believed now.
 
@@ -30,7 +30,7 @@ Under it he added:
 
 ALL THREE VISIBLE.
 
-That line had become less a note than a prayer stripped of religion. All three visible. It did not ask anyone to intervene. It simply stated what still held.
+That line had become less a note than a prayer stripped of religion. It did not ask anything to intervene. It simply stated what still held.
 
 Mike read it and tapped the stump with the paddle. Once. Soft.
 
@@ -38,7 +38,7 @@ Seen.
 
 Then they went on.
 
-The trace took them uphill at an angle that made no clean sense from the map. It might have been following old grade, might have been avoiding low marsh, might have been correcting around a place where the road had always been bad. The map did not show such things. It showed intent. It did not show water sitting black in a rut for thirty years, or a poplar dropping across both wheel lines and becoming soil, or spruce seedlings growing where tires had once pressed the earth open.
+The trace took them uphill at an angle that made no clean sense from the map. It might have followed old grade, or avoided low marsh, or corrected around a place where the road had always been bad. The map did not show such things. It showed intent. It did not show water sitting black in a rut for thirty years, or a poplar dropping across both wheel lines and becoming soil, or spruce seedlings growing where tires had once pressed the earth open.
 
 Will wanted to say this. Joel could feel the want in him the way he felt heat from a stove. It came off his shoulders. It worked in his jaw. Twice he raised his good hand as if to stop Mike and begin a diagram in the air. Twice he lowered it.
 
@@ -68,7 +68,7 @@ Will looked at it as if it had insulted him. Then he took it. His bandaged hand 
 
 MAP CAN BE RIGHT AND STILL NOT HELP.
 
-He shoved the notebook against Joel's chest.
+He pushed the notebook against Joel's chest.
 
 The sentence looked better than it had sounded. Writing removed tone. It took Will's need to correct and left something they could use.
 
@@ -78,7 +78,7 @@ They kept moving.
 
 The second loss of the trace came in blowdown.
 
-A wind years old had taken a strip of spruce and laid the trunks in the same direction, root plates standing shoulder-high and black with soil. The old road ran into the mess and did not come out where it should have. Branches had dried into gray nets. New alder filled the gaps. Their packs caught on everything. Sleeping bags bulged under rain covers. The pot in Joel's side pocket knocked against his water bottle until he stopped and tightened the strap with fingers made stupid by cold and fatigue.
+A wind years old had taken a strip of spruce and laid the trunks in the same direction, root plates standing shoulder-high and black with soil. The old road ran into the mess and did not come out where it should have. Branches had dried into gray nets. New alder filled the gaps. Their packs caught on everything. Sleeping bags bulged under rain covers. The pot in Joel's side pocket knocked against his water bottle until he stopped and tightened the strap with fingers made clumsy by cold and fatigue.
 
 In ordinary time they would have complained loudly. Alex would have turned it into a bit about premium wilderness experiences, about how people paid good money to crawl under dead trees and lose shin skin. Will would have explained something about windthrow. Mike would have said people were soft now. Joel would have let them make noise and would have been privately glad for it.
 
@@ -126,19 +126,21 @@ WILL COUGH - AHEAD.
 
 WILL SEEN.
 
-Mike read it. His face stayed closed, but Joel saw the arithmetic going on behind it. If Will could be in one place and Will's voice in another, then Mike's own voice from the trace behind him had not been an exception. It had been the beginning of a new category.
+Mike read it. His face stayed closed, but Joel saw the arithmetic going on behind it. If Will could be in one place and Will's voice in another, then Mike's own voice from the trace ahead of him had not been an exception. It had been the beginning of a new category.
 
 Will wrote beneath Joel's lines:
 
 IT CAN USE LIVING.
 
-Then, after a pause, he added:
+Then, after a pause:
 
 NOT JUST DEAD.
 
 The page looked colder with that on it.
 
-Mike stared at the words for too long. Then he reached up and wiped rain from the bill of his cap with two fingers. "We knew that."
+Mike stared at the words for too long. Then he reached up and wiped rain from the bill of his cap with two fingers.
+
+"We knew that," he said.
 
 His voice sounded too large in the blowdown.
 
@@ -154,7 +156,7 @@ Joel took the pencil and wrote:
 
 LESS TALK.
 
-He underlined it once, not as command. As fact.
+He underlined it once. Not as command. As fact.
 
 They found the trace again where the blowdown thinned. Mike found it, really. He angled left when the easier ground went right, cut around a wet hollow, and stopped beside a line of stones sunk under moss. The stones had been laid by hand. Maybe to hold a culvert, maybe to harden mud, maybe by men who had never imagined three strangers decades later reading their labor as if it were scripture.
 
@@ -196,7 +198,9 @@ It felt foolish to inventory kindness as if it were a dropped wrapper. It felt w
 
 They ate bars because the body would not negotiate forever. Mike divided them by sight on the rock: three damp rectangles, two with chocolate gone gray at the edges, one oat thing that Alex would have refused with a face elaborate enough to make a meal out of it.
 
-Joel saw the empty fourth share before anyone made it. There was no fourth share. There had not been since Second Camp. Still, his hand paused with the wrapper half open.
+Joel saw the empty fourth share before anyone made it.
+
+There was no fourth share. There had not been since Second Camp. Still, his hand paused with the wrapper half open.
 
 Will saw him pause and looked away.
 
@@ -432,7 +436,7 @@ The false Alex did not speak again.
 
 The word was too useful to punish. They moved.
 
-After that, the chapter of the day that belonged to hope began quietly.
+After that, hope came into the day in small practical increments, which made it harder to distrust.
 
 The roadbed widened by inches. Grass grew waist-high in the middle, wet seed heads dragging across their thighs. The old ruts became visible again, shallow but continuous. Here and there the brush on both sides looked cut back by some more recent force than the original road: an animal trail, storm damage, maybe men five years ago or ten. The trees no longer pressed so closely against their faces. Air moved.
 
@@ -456,7 +460,7 @@ Roof.
 
 For one minute the whole day changed.
 
-Joel knew better. He knew a roof was not help, a square was not rescue, a cabin was not a radio, a road was not a truck, and a sound was not a man. He knew all of it with the dry exactness of the notebook in his pocket. Still, the sight entered him below knowledge. It loosened something he had locked. His body saw shelter before his mind could qualify it. His body saw a made thing in the unmade wet and believed, briefly, in the species that had made it.
+Joel knew better. He knew a roof was not help, a square was not rescue, a cabin was not a radio, a road was not a truck, and a sound was not a man. He knew all of it with the dry exactness of the notebook in his pocket. Still, the sight entered him below knowledge. His body saw shelter before his mind could qualify it. His body saw a made thing in the wet and believed, briefly, in the species that had made it.
 
 Will moved faster.
 

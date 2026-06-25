@@ -96,7 +96,9 @@ Alex had said those were for children and people recovering from dental surgery.
 
 Joel put it in his mouth and chewed without tasting it.
 
-The food barrel latch was visible while he closed it. Thumb on black plastic. Ring aligned. Metal catch set. He pressed twice, then left his hand there.
+Will watched him do it. For half a second something like the old camp rhythm moved across his face: the beginning of a joke, the wish to make Joel explain why he had eaten the worst piece last, the small shared pleasure of being disgusted by a dead man's snack choice. Then Will looked toward the trees, as if the joke had already traveled there ahead of him.
+
+The food barrel latch was visible while Joel closed it. Thumb on black plastic. Ring aligned. Metal catch set. He pressed twice, then left his hand there.
 
 From the waterline, the latch clicked.
 
@@ -110,7 +112,7 @@ Will held up one finger. Wait.
 
 From the waterline, after the impossible latch, Will's voice said, "There's a difference."
 
-The wrongness of it was not in the sound. It had Will's dryness, the faint lift at the end, the thread of irritation that meant he was about to split a practical hair until everyone else wanted to drown him. It was wrong because nothing had been distinguished. The phrase came as an answer to a latch. It turned no thought. It corrected no one. It was grammar with no animal inside.
+The wrongness of it was not in the sound. It had Will's dryness, the faint lift at the end, the thread of irritation that meant he was about to split a practical hair until everyone else wanted to drown him. It was wrong because nothing had been distinguished. The phrase came as an answer to a latch. It turned no thought. It corrected no one. It was grammar with no body inside.
 
 Will's face changed.
 
@@ -152,11 +154,11 @@ The woods held it. Then gave it back as a dry twig breaking behind them.
 
 Joel turned slowly.
 
-Nothing visible. Spruce roots. Black openings between trunks. The place where the tarp had been. Their own flattened shapes in gravel. The morning had come far enough for sight to be useful and not far enough for sight to be kind.
+Nothing visible. Spruce roots. Black openings between trunks. The flattened place where the tarp had been. Their own shapes in gravel. The morning had come far enough for sight to be useful and not far enough for sight to be kind.
 
 Will found the pencil point in the gravel, pinched it between two fingers, and put it in his pocket as if waste mattered. It did. Everything mattered until it became too heavy to carry.
 
-They finished breaking camp.
+Joel sharpened the broken pencil with his knife, shaving curls no longer than eyelashes onto a flat stone. The blade was dulling. The pencil was short. The page had gone soft at the corners from damp and hands. Even the tools of silence were wearing out.
 
 The question of what to leave behind came last, and it came without a clean answer. They had one canoe, one heavy pack, the food barrel, the damp tarp, the stove and pot, one sleeping bag that had no business being called dry, the map case, the filter, the hatchet, the notebook, and the Highlander key zipped inside Joel's jacket. Also the small meaningless survivals men acquired: torn cord, wrapper trash, a bent tent stake, a spare carabiner, Alex's cracked headlamp still wrapped in a shirt, Mike's cap shoved into a side pocket after the cabin because neither man had known what else to do with it.
 
@@ -248,6 +250,8 @@ Joel shook his head.
 
 Will turned forward. His paddle struck the water badly, throwing drops across the gunwale. Anger had entered the stroke. Good. Anger moved him away from the shore. But anger also needed an object, and Will had begun to believe the object could be forced to show itself by being wrong.
 
+For the rest of the crossing the voices held off. That should have helped. It did not. Joel kept waiting for the next phrase, the next false correction, the next sound placed where no source could be. Waiting worked on the body almost the same as hearing. His shoulders tightened around expectation. His hands closed harder on the paddle. Silence had become not absence, but a held breath.
+
 They reached the far landing near midmorning, though time had become an unreliable instrument. The portage landing was a narrow bite in the alder, no beach, only a slope of dark mud and flat stones slick with leaves. An old blaze marked a spruce ten yards up, nearly swallowed by bark. A strip of pink tape hung from a branch farther in, sun-faded to a color like old flesh.
 
 Human marks. A blaze. Tape. A map line. The route kept offering evidence of other people and never offering people.
@@ -262,9 +266,7 @@ The final portage rose immediately away from the landing. Not steep at first, bu
 
 Joel wanted to double back for loads the way they had early in the trip, one safe trip at a time with jokes and complaints and the false luxury of returning for what had been left. There was no safe double carry now. Leaving one man at either end meant creating exactly the absence the thing used. Carrying everything once meant weight, slowness, mistakes.
 
-He looked at the canoe.
-
-One boat. One trail. Two men.
+He wanted to write a rule for this place. Something stronger than the others. BODY IN SIGHT. NO TURNING. NO TESTS. But the trail itself made the rule dishonest. The canoe would blind him. The pack would slow Will. The brush would cut them into pieces.
 
 Will took the notebook before Joel could write.
 
@@ -352,7 +354,11 @@ SOUND CAN FAIL TOO.
 
 Joel wanted to tear the page out. Not because it was wrong. Because it was useful.
 
-The woods around the landing held still. The canoe knocked once against stone behind them. Joel turned. The canoe lay where they had left it, half in water, half on mud, the painter looped around a root. The knock came again from up the trail.
+The woods around the landing held still. The canoe knocked once against stone behind them.
+
+Joel turned. The canoe lay where they had left it, half in water, half on mud, the painter looped around a root.
+
+The knock came again from up the trail.
 
 One hollow tap. Gunwale against rock. Impossible because the boat was behind them and visible.
 
@@ -386,6 +392,8 @@ WE GO TO CAR.
 
 Will looked at him and mouthed, without sound, Car if real.
 
+Joel almost wrote back: it is real because the key is real. He stopped himself. The key was an object. The car was a promise attached to an object. The bridge was a line on the map and a memory from the morning they had staged Mike's Highlander, when Alex's laugh had gone up under concrete and come back ordinary. None of that guaranteed anything beyond the next step. It only gave the next step a direction.
+
 The final portage waited.
 
 They arranged the load because arguing silently did not make the work less physical. Joel would take the canoe first. Will would take the heavy pack and the paddles lashed to the side. The food barrel would go in the pack for the first push, a bad choice that made the pack too round and wrong but kept it off the open landing. The map case went under Will's shoulder strap. The hatchet stayed at Joel's belt. The notebook went into Joel's jacket, then Will held out his good hand for it.
@@ -414,7 +422,7 @@ Will moved.
 
 The trail accepted them badly. Within ten yards the brush closed around the canoe ends. Alder scraped the hull. Spruce needles raked Joel's forearms where his sleeves had ridden up. The yoke pressed into the knot of muscle at the base of his neck. He adjusted by feel, left hand on the front thwart, right hand steadying the back rim, each step chosen before weight came down.
 
-Will walked ahead for the first stretch because Joel needed to see his legs under the canoe. The pack made him broad and slow. The paddles lashed to it stuck out like broken antlers and caught on brush. Twice he had to stop and back up, not speaking, while Joel balanced the canoe and waited for him to free the blade.
+Will walked ahead for the first stretch because Joel needed to see his legs under the canoe. The pack made him broad and slow. The paddles lashed to it stuck out at wrong angles and caught on brush. Twice he had to stop and back up, not speaking, while Joel balanced the canoe and waited for him to free the blade.
 
 Behind them, Mike cleared his throat.
 

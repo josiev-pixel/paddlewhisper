@@ -1,6 +1,6 @@
 # Chapter 4 - Granite Shelf
 
-The granite point was empty.
+The granite point was empty in the way a campsite could be empty. No tent. No smoke. No voices carrying over the water. But the place had marks in it before they reached shore.
 
 Mike saw it first and lifted his paddle. The gesture was small and certain, blade angled toward the left shore where pale rock came down in shelves through jack pine and black spruce. A few red pines stood higher than the rest, long-trunked and clean-limbed, catching the last good light in their tops. Below them, the point sloped into water dark enough to double the trees.
 
@@ -10,7 +10,7 @@ Nobody argued.
 
 They had been paddling long enough that even Alex let the word stand by itself. The afternoon had gone soft and slanted. The lake was not wide, but the wind had found the length of it and pushed little black wrinkles toward the boats. The work was not hard anymore. It was just constant. Paddle, correct, watch the next point, watch Mike's boat, keep Alex moving, keep the front from wandering toward shore.
 
-Joel felt the day in his shoulders. Not pain yet. A thickening. His hands had gone soft between trips and were relearning friction. The place between thumb and forefinger burned when he shifted his grip. His hiking sandals were wet, then drying, then wet again, and his feet had the swollen, gritty feel they got after a day in water and mud. He had forgotten this part, or had let ordinary life edit it down to the clean idea of effort.
+Joel felt the day in his shoulders. Not pain yet. A thickening. His hands had gone soft between trips and were relearning friction. The place between thumb and forefinger burned when he shifted his grip. His hiking sandals were wet, then drying, then wet again, and his feet had the swollen, gritty feel they got after a day in water and mud. He had forgotten this part, or ordinary life had edited it down to the clean idea of effort. The body remembered less politely.
 
 Alex turned halfway around.
 
@@ -74,6 +74,8 @@ Joel lifted his day bag and set it near the first flat place above the landing. 
 
 There were signs of people and not much else. A twist of blue cord tied to a branch. A square of foil half-buried in ash. Boot prints softened by rain and time. One rusted bottle cap wedged in a crack. Human presence looked different out here. It did not claim the place. It left little failures behind and asked the next men to call them proof.
 
+Joel had always found comfort in that, which seemed foolish when named. The ring of stones. The hacked branch. The scrap of cord another party had abandoned because it was too short to be useful and too useful, at the moment, to throw away properly. A person had stood here cold or hungry or damp and had made the same small arrangements. The world had not cared. Still, the arrangements remained.
+
 "Not bad," Will said.
 
 Mike cleared his throat, the small dry preface he used before making a fact out of a preference. "It opens up after this."
@@ -94,9 +96,9 @@ Alex raised a finger. "Put that on his memorial shirt."
 
 "You make people imagine it," Will said.
 
-They unloaded everything before doing anything comfortable. That was Mike's rule and, worse, a good one. Packs came out. Rods came out. Paddles went under the pulled-up canoes, tucked out of the way and off the grit. The food barrel was carried to the middle of camp and then moved because Mike said the middle of camp was where idiots put food. Will opened it anyway to get the dinner bag. The latch made its clean plastic snap.
+They unloaded everything before doing anything comfortable. That was Mike's rule and, worse, a good one. Packs came out. Rods came out. Paddles went under the pulled-up canoes, tucked out of the way and off the grit. The food barrel was carried to the middle of camp and then moved because Mike said the middle of camp was where idiots put food. Will opened it anyway to get the dinner bag. The latch made its clean plastic snap, small and final.
 
-A small thing. A camp sound. Joel heard it and felt the day settle around the noise.
+A small thing. A camp sound. Joel heard it and felt the day settle around the noise. Even plastic carried in the open air.
 
 He set his pack near the two trees he liked and looked out over the lake instead of opening it. The far shore was darkening. Sun still held in the pine tops, but the water had lost its brightness and now seemed to store the shade coming off the trees. A loon called from the north, long and hollow. Another answered, or the first call came back broken by distance. The two notes overlapped for a second and left the lake larger than it had been.
 
@@ -158,7 +160,7 @@ Will had his own hammock half out of its sack and was looking at the trees behin
 
 The old Will would have made a larger case for it. He would have explained load redundancy or failure points or how most people confused comfort with utility. This Will shook the hammock once and frowned at a tangle in the suspension. He had been quieter since lunch in brief, uneven patches, as if his talk had to climb over something now before it could get out.
 
-Joel knew about the job because Will had told him in pieces before the trip, over texts and one late call when he had made jokes about severance until the jokes ran out. Quality control for an LED company was not a thing Joel had imagined anyone losing sleep over until Will lost it. Here, in camp, Will still had the shape of a man who knew how things were supposed to work. Filters. Knots. Rod guides. Maps. The smaller systems were available. The larger one had let him go.
+Joel knew about the job because Will had told him in pieces before the trip, over texts and one late call when he had made jokes about severance until the jokes ran out. Quality control for an LED company was not a thing Joel had imagined anyone losing sleep over until Will lost it. Here, in camp, Will still had the shape of a man who knew how things were supposed to work. Filters. Knots. Rod guides. Maps. He could find the failed part in a system small enough to hold in his hands. The larger one had let him go without showing its work.
 
 Mike and Alex argued their tent into position. The ground looked flatter than it was. Every place that seemed level had a root, a knob of rock, or a shallow runnel where rain would collect if the weather changed.
 
@@ -259,6 +261,8 @@ Alex bit into a piece of jerky and nodded with genuine seriousness. "Okay. That'
 "Food can have opinions now?" Joel said.
 
 "Jerky is allowed. Tuna is not."
+
+Alex went to the rock overhang and came back with an armload of the cut sticks, some damp, some dry enough to matter. He made a show of staggering under them, but he had sorted the good pieces to the top without saying so. That was another irritation. The performance hid work, but it did not cancel it.
 
 The stove came out when the water was ready. Mike set it on a flat patch of granite near the fire ring, screwed the fuel canister in, and turned the valve. The first click did nothing. The second click did nothing. The third click gave a blue flutter of flame.
 
@@ -382,7 +386,7 @@ Mike's jaw moved once. "I mean people want the story without the part where thin
 
 Alex opened his mouth, then closed it. For once, the story had been taken from him and used for something heavier.
 
-Joel fed a stick into the fire and let the end catch. He knew the remark was not about cheese or backpacking or even the trip. It was about the way time had made the group harder to assemble. About jobs, partners, houses, money, knees, the little negotiations by which adulthood reclaimed a man. It was about Mike's life staying loose while everyone else's had tightened. Or it was about nothing that neat. Mike liked to make his bitterness sound philosophical because complaint was easier to defend when it pretended to be principle.
+Joel fed a stick into the fire and let the end catch. The remark was not about cheese. It was about the emails required to arrange four men in one place. Jobs. Partners. Houses. Knees. Money. The little negotiations by which adulthood took a man back one weekend at a time. It was also about Mike, whose life still fit in other people's basements, spare rooms, and borrowed driveways when the teardrop camper was cold. He made complaint sound like principle because principle was easier to sit beside.
 
 Will said, quieter, "There's plenty of discomfort."
 
@@ -448,9 +452,9 @@ Will set the rod against a tree and took his mug from the rock. Ceramic on grani
 
 "I can do whatever I want in camp."
 
-Alex stood and stretched. His joints popped. "I'm taking a leak. Nobody write a poem about it."
+Alex stood and stretched. His joints popped. "I'm going to offend a tree. Nobody make it literature."
 
-Joel looked up. The line was close to something and not it. Close enough that it almost mattered, then did not.
+Joel looked up. The line was aimed at him, so he let it miss.
 
 "Take a headlamp," Mike said.
 
@@ -550,7 +554,7 @@ Outside, the lake was quiet. The camp had the dense stillness of first night, wh
 
 From the shoreline came a soft knock.
 
-One sound. Hollow. Wood or hull against stone.
+One sound. Hollow. Wood or hull against stone. Low enough to belong to the canoes, or the water below them, or a branch the lake had been worrying against rock all evening.
 
 Joel opened his eyes fully.
 
@@ -558,11 +562,11 @@ He waited.
 
 Nothing followed. No voice. No footstep. No second knock. Only the lake moving lightly below the granite and the wind worrying the top of one pine.
 
-He pictured the canoes pulled high, angled on rock, paddles tucked beneath them, painter rope loose enough to touch. Wind could do it. Cooling hull could do it. Water lifting a branch could do it. There were a dozen ways for the night to make one ordinary sound.
+He pictured the canoes pulled high, angled on rock, paddles tucked beneath them, painter rope loose enough to touch. Wind could do it. Cooling hull could do it. Water lifting a branch could do it. There were a dozen ways for the night to make one ordinary sound, and only one way for a tired man to ruin sleep by making it important.
 
 From the tent, Will breathed in and out. The dry catch came again, and then the cleaner breath after it.
 
-Joel rolled slightly in the hammock, careful not to shift too hard and wake the trees with strap noise, and closed his eyes again.
+Joel rolled slightly in the hammock, careful not to shift too hard and make the straps talk, and closed his eyes again. He did not sit up. If he sat up, the sound became an event. If he stayed still, it could remain a branch.
 
 The camp held. The lake held. The dark kept its own counsel.
 

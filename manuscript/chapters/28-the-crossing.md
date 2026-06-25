@@ -20,7 +20,7 @@ He heard the drop before he saw it. Water working over stone, lower than wind, n
 
 Something moved parallel anyway.
 
-On the right bank, out of sight behind the hanging brush, a body kept pace at walking speed. Not crashing. Not rushing. Step and stop, step and stop, the rhythm adjusted to the canoe's drift. Joel saw nothing except the black comb of alder stems and a little pale scratch of exposed root. The movement remained beside him for six heartbeats, close enough that if he had reached out he could have touched leaves wet from whatever had passed behind them.
+On the right bank, out of sight behind the hanging brush, something kept pace at walking speed. Not crashing. Not rushing. Step and stop, step and stop, the rhythm adjusted to the canoe's drift. Joel saw only the black comb of alder stems and a pale scratch of exposed root. The movement stayed beside him for six heartbeats, close enough that if he had reached out he could have touched leaves wet from whatever had passed behind them.
 
 Will coughed there.
 
@@ -32,7 +32,7 @@ The canoe slid away from the bank. The current caught the front crooked and turn
 
 "That's not how that works," Will said, still at walking speed.
 
-The phrase struck where it was meant to strike. Will would have said it here. He would have said it because the boat angle was wrong, because Joel was fighting current with exhausted arms and a half paddle, because water had rules even terror did not cancel. The voice used correctness as bait. It did not have to understand water. It only had to put a living man's reflex back in him.
+The phrase struck where it was meant to strike. Will would have said it here. The boat angle was wrong. Joel was fighting current with exhausted arms and half a paddle. Water had rules even terror did not cancel. The voice did not have to understand any of that. It only had to put a living man's reflex back in him.
 
 Joel did not correct it.
 
@@ -46,9 +46,9 @@ Mike cleared his throat from directly ahead.
 
 "Just keep moving."
 
-It was the first useful thing a dead voice had said all day.
+Useful, if usefulness could be trusted.
 
-Joel hated it and obeyed the water, not Mike.
+Joel obeyed the water, not Mike.
 
 He dug the paddle against stone and shoved. The blade bent. The canoe scraped free with a sound like a chair dragged across concrete. He took two fast strokes, both ugly, both enough. The current straightened the boat and shot him through the last tongue of black water into a wider dark.
 
@@ -58,13 +58,13 @@ No moon. No visible far shore. Only the feeling of the banks falling away and th
 
 Joel turned back once.
 
-The outlet had already narrowed to an absence between reeds. The channel did not look large enough to have produced him. It looked like a place a man could vanish into by mistake and never convince anyone there had been a way through. The thought of the map folded in the pack was almost funny. Blue lines, black ticks, contour, bridge. A whole argument with the world conducted in ink, and the world under no obligation to answer in the same language.
+The outlet had already narrowed to an absence between reeds. The channel did not look large enough to have produced him. It looked like a place a man could vanish into by mistake and never convince anyone there had been a way through. The map folded in the pack was almost funny now. Blue lines, black ticks, contour, bridge. Ink arguing with water.
 
 He faced forward.
 
 The lake had no forward. That was the first problem.
 
-He had a softened map, a weak headlamp, a compass he had stopped trusting except as a habit, and the memory of the route from the morning before it all became one continuous strain. The final lake ran north. The bridge lay beyond the north end. The outlet he had entered from should have put him near the lower left of the basin. He needed to angle right of the wind, not fight straight into it, not drift left into a bay if there was a bay. He needed to paddle without stopping and still save enough body to land.
+He had a softened map, a weak headlamp, a compass he had stopped trusting except as a habit, and the memory of the route from the morning before it all became one continuous strain. The final lake ran north. The bridge lay beyond the north end. The outlet should have put him near the lower left of the basin. He needed to angle right of the wind, not fight straight into it, not drift left into a bay if there was one. He needed to paddle without stopping and still save enough body to land.
 
 He needed Will's math and Mike's certainty and Alex's refusal to let misery be silent.
 
@@ -96,7 +96,7 @@ The laugh carried across the lake in pieces. Bark, break, smaller echo. It had b
 
 "You coming or writing a poem?" Alex called.
 
-Joel's throat tightened around the answer his old self would have given. Something dry. Something small enough to keep Alex going and make Will snort and Mike tell them to move. The old friendship had been built from these permissions: answer the tease, obey the useful call, argue the correction, accept the authority when someone had to decide. The thing on the water had not stolen their love. It had stolen the shapes their love took when none of them wanted to name it.
+Joel's throat tightened around the answer his old self would have given. Something dry. Something small enough to keep Alex going and make Will snort and Mike tell them to move. Answer the tease. Obey the useful call. Argue the correction. Accept the authority when someone had to decide. Their friendship had lived in those small permissions because none of them had been good at naming anything larger.
 
 He kept his mouth closed.
 
@@ -106,7 +106,7 @@ Small waves now came at an angle across the front quarter. The canoe slapped, li
 
 Still there.
 
-That was the exit. Not voices. Not map promises. A piece of cut metal in a dead man's vehicle key, zipped into Joel's inner pocket because Mike had died trying to keep control of a world that did not recognize control as a category.
+That was the exit. Not voices. Not map promises. A piece of cut metal in a dead man's vehicle key, zipped into Joel's inner pocket because Mike had carried it like the route itself could be kept there.
 
 The key had weight.
 
@@ -118,7 +118,7 @@ He had given it one thing and the thing had made a chorus of it.
 
 Managerial. Route voice. Inventory voice.
 
-Joel almost smiled from exhaustion. Mike could make anything sound like an item to be checked off before blame began. Bag. Key. Boat. Body. Weather. The phrase in his mouth became proof that the system had not failed if everyone would just follow the system correctly.
+Joel almost smiled from exhaustion. Mike could make anything sound like an item to be checked off before blame began. Bag. Key. Boat. Body. Weather. In his mouth the phrase became another box on a wet list.
 
 The voice shifted left.
 
@@ -126,13 +126,13 @@ The voice shifted left.
 
 That one hurt differently.
 
-It came not loud, not taunting. Almost conversational, as Mike had said it on the first morning with the map spread against the hood of the Highlander, treating confidence like a tarp he could throw over uncertainty. Back then it had been irritating. Now it was obscene. They were not where they ought to be. There was no ought here. There was water, weather, a road somewhere beyond the black, and three men gone into sentences that would keep walking without them.
+It came not loud, not taunting. Almost conversational, as Mike had said it on the first morning with the map spread against the hood of the Highlander. Back then it had been irritating. Now it was obscene. They were not where they ought to be. There was water, weather, a road somewhere beyond the black, and three men gone into sentences that would keep walking without them.
 
 Joel's paddle stroke shortened. The boat slowed.
 
 The voice waited.
 
-He understood the trap only because Mike would not have waited. Mike would have filled the pause with instruction, irritation, a throat-clear, his hand slicing toward the route. The waiting belonged to the other thing. It had learned Mike's certainty but not Mike's impatience.
+He understood the trap only because Mike would not have waited. Mike would have filled the pause with instruction, irritation, a throat-clear, his hand slicing toward the route. The waiting was wrong. It had Mike's voice and none of Mike's impatience.
 
 Joel pulled again.
 
@@ -148,7 +148,7 @@ Joel did look then, because the front was inside his small circle of fact. There
 
 "No, no, no," Will said again, flatter.
 
-The voice had Will's panic without Will's mind. It kept the rhythm and lost the man. That was what the thing did best, Joel thought. It preserved the part that could be used and let the rest rot.
+The voice had Will's panic without Will's mind. It kept the rhythm and lost the man.
 
 He moved the paddle to the right side and corrected the canoe.
 
@@ -172,7 +172,7 @@ Then a dry bag buckle clicked beside his left ear.
 
 Then paddle on gunwale, once, polite.
 
-The nonverbal sounds were worse than the voices now. A voice could be refused as dead. A zipper carried no death in itself. A latch did not grieve. A knock on a canoe had been useful for years before it became predatory. These sounds entered under thought and began setting up camp in him: first night granite shelf, second camp rain tarp, Mike's hands on straps, Will's rod case, Alex dropping a mug too hard and laughing before Mike could complain. Whole rooms of the trip opened with each small sound.
+The nonverbal sounds were worse than the voices now. A voice could be refused as dead. A zipper carried no death in itself. A latch did not grieve. A knock on a canoe had been useful for years before it became predatory. Each small sound opened a room of the trip: first-night granite, the rain tarp at Second Camp, Mike's hands on straps, Will's rod case, Alex dropping a mug too hard and laughing before Mike could complain.
 
 Joel let them open and did not step inside.
 
@@ -210,9 +210,9 @@ It opened space.
 
 Every sound he made became too large. His breathing. The soft suck of water around the blade. The scrape of his sandal against aluminum. The slosh inside the canoe when the wind rocked it. Without voices, there was nothing to refuse except the whole dark attention of the lake.
 
-He understood then why the thing had saved silence for last.
+The silence worked differently from the voices.
 
-A shouted voice gave him something to push against. Silence made him supply the danger himself.
+A shouted voice gave him something to push against. Silence made every breath, drip, and scrape seem chosen for him.
 
 He paddled toward the reflector.
 
@@ -244,7 +244,7 @@ The third came from the water under the bridge.
 
 Will: "You guys hear that?"
 
-The question should have been laughable. It was not. It was the old invitation to make listening communal, to turn fear into shared evidence. You guys hear that? If someone else heard it, the world had to admit it happened. If no one answered, Will was alone with it. Joel had left Will alone with the last thing he heard because that was how Joel stayed alive.
+The question should have been laughable. It was not. It was the old invitation to make listening communal, to turn fear into shared evidence. You guys hear that? If someone else heard it, the world had to admit it happened. Joel had left Will alone with the last thing he heard because that was how Joel stayed alive.
 
 The canoe ground on gravel.
 

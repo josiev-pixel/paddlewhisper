@@ -1,20 +1,18 @@
 # Chapter 19 - Written Rules
 
-Traveling silently made them clumsy.
+Traveling silently made them bad at travel.
 
-On water, men could point. On a portage, under packs, in brush, with footing bad and sightlines worse, speech was the tool that kept bodies from breaking. Step left. Duck. Wait. Loose rock. Your strap. Snake, maybe. Don't put your foot there.
+On water, men could point. On a portage, under packs, in brush, with footing bad and sightlines worse, speech was the tool that kept bodies from breaking. Step left. Duck. Wait. Loose rock. Your strap. Don't put your foot there.
 
 Without speech they had hands, eyes, and the notebook.
 
-It should have been enough. Men had traveled before language, Joel thought. Men had crossed worse country with less. But those men had known how to look at each other. They had not come out of a lifetime of filling every awkward gap with correction and jokes and small insults. They had not made friendship out of interruption. They had not given the woods a vocabulary and then tried to survive by taking it back.
+It should have been enough. Men had crossed worse country with less. But those men had known how to look at each other. Joel and Will had come out of a lifetime of filling every awkward gap with correction, jokes, and small insults. They had made friendship out of interruption. They had given the woods a vocabulary and then tried to survive by taking it back.
 
 At the edge of the cabin clearing, before the trace closed around them again, Joel stopped Will with two fingers on his sleeve.
 
 Will turned too fast, hatchet lifting in his good hand.
 
-Joel shook his head and pointed down.
-
-Not danger. Stop.
+Joel shook his head and pointed down. Not danger. Stop.
 
 Will understood on the second try. Understanding had become slower in him, not because he was stupid, but because every gesture now had to compete with what his body wanted to do. Listen. Turn. Answer. Explain. His eyes kept trying to go past Joel into the trees, to the places where Mike's voice had been and might be again.
 
@@ -26,11 +24,13 @@ He wrote:
 
 VISUAL BEFORE VOICE.
 
-NO ANSWERING FROM TREES.
+NO ANSWER FROM TREES.
 
 NO NAMES.
 
 POINT FIRST.
+
+TAP FOR STOP.
 
 WRITE IF POSSIBLE.
 
@@ -48,15 +48,15 @@ Will held up one finger and wrote again:
 
 NO COMFORT OUT LOUD.
 
-The line was already in the notebook from the cabin, but Will wrote it again as if repetition might make it bearable. He stared at the page afterward. The sentence embarrassed him. It embarrassed Joel too, because it made plain what they were refusing each other. Comfort was not just a thing said in soft voices by better men. It was all the little sounds they had lived inside. Alex making an ugly joke so no one had to admit the hill was brutal. Mike saying they were fine, and being wrong, but giving them something to lean against for thirty seconds. Will explaining a knot no one had asked about because silence had gotten too honest.
+The line was already in the notebook from the cabin, but Will wrote it again as if repetition might make it bearable. He stared at the page afterward. The sentence embarrassed him. It embarrassed Joel too, because it made plain what they were refusing each other. Comfort was not only a thing said in soft voices by better men. It was all the little sounds they had lived inside. Alex making an ugly joke so no one had to admit the hill was brutal. Mike saying they were fine, and being wrong, but giving them something to lean against for thirty seconds. Will explaining a knot no one had asked about because silence had gotten too honest.
 
 Joel took the pencil back.
 
 TOUCH OK.
 
-Will read it. His face tightened. For a second Joel thought he would cross it out. Instead he gave one hard nod and folded his torn rule page into a small rectangle.
+Will read it. His face tightened. For a second Joel thought he would cross it out. Instead he gave one hard nod.
 
-Joel tore the page out carefully and handed it to him. Will put it in the chest pocket of his rain shell, under the zipper, then tapped the pocket twice. The gesture was nearly military. It would have made Alex say something. It would have made Mike call them idiots. It would have made Will, two days ago, make a joke about laminated procedure cards and ISO compliance.
+Joel tore the page out carefully and handed it to him. Will folded the rule page into a small rectangle, put it in the chest pocket of his rain shell, under the zipper, then tapped the pocket twice. The gesture was nearly military. It would have made Alex say something. It would have made Mike call them idiots. It would have made Will, two days ago, make a joke about laminated procedure cards and compliance.
 
 None of those men were available.
 
@@ -72,7 +72,7 @@ Will pointed at his own injured hand, then at Joel's pack, then at the hatchet.
 
 Joel understood: if Will went first, he could not see Joel; if Joel went first, Will could use the hatchet and still be watched.
 
-The old reflex rose in Joel. Fine. You go. Something small and practical. Two words. Safe, maybe. But safe had become a word for people who still thought intention mattered.
+The old reflex rose in Joel. Fine. You go. Something small and practical. Two words. Safe, maybe. But safe belonged to people who still thought intention mattered.
 
 Joel stepped ahead.
 
@@ -96,9 +96,7 @@ It came from behind them, not from the cabin exactly, but from the direction of 
 
 Will stopped.
 
-Joel turned and put two fingers to his own eyes, then pointed at Will.
-
-See me.
+Joel turned and put two fingers to his own eyes, then pointed at Will. See me.
 
 Will stared at him.
 
@@ -112,9 +110,9 @@ Will nodded once.
 
 They moved.
 
-The thing did not sound angry when they failed to answer. That was part of its wrongness. It did not have to be angry. It could try again. It could wait. Or perhaps waiting was not a thing it did; perhaps the woods simply held every sound they had given it until one shape fit a gap.
+The voice did not sound angry when they failed to answer. That was part of its wrongness. It did not have to be angry. It could try again. It could wait. Or perhaps waiting was not a thing it did; perhaps the woods simply held every sound they had given it until one shape fit a gap.
 
-For a while it used Mike only in fragments. A throat-clear from the low brush behind Joel's right shoulder. A small curse from the slope above them. The scuffing exhale Mike made when lifting a heavy pack. Once, from no clear direction, the wet click of a zipper pull against plastic, a sound so much like Mike's torn PFD pocket that Joel's hand went to the Highlander key before he could stop himself.
+For a while Mike came only in fragments. A throat-clear from the low brush behind Joel's right shoulder. A small curse from the slope above them. The scuffing exhale Mike made when lifting a heavy pack. Once, from no clear direction, the wet click of a zipper pull against plastic, a sound so much like Mike's torn PFD pocket that Joel's hand went to the Highlander key before he could stop himself.
 
 The key was there. Hard against his ribs. Black fob. Bent metal. Torn orange nylon.
 
@@ -168,13 +166,13 @@ Will's expression, for one second, was almost offended professional pride. Then 
 
 They went around the bend with the hatchet ready and the notebook open. Nothing waited there but stone, spruce roots, and water collecting in old tire ruts.
 
-The entity adjusted after that.
+After that the sounds changed.
 
 A pack shifted behind them when both packs were fixed on their backs. A dry bag buckle clicked from the brush where there was no dry bag. A branch cracked exactly when Joel looked down to place his foot. Twice a small twig snapped from just beyond Will's left shoulder, not loud enough to be a lure, only loud enough to make him spend attention.
 
 Silence helped. Silence did not save them.
 
-The woods still had the world's old language. Weight on moss. Water off leaves. Bark rubbed by wind. A bird going quiet too quickly. A squirrel or something like one moving in the litter. Real sounds and made sounds came wearing the same clothes. The difference existed somewhere beneath them, perhaps, but Joel did not know where to put his hands.
+The woods still had the world's old language. Weight on moss. Water off leaves. Bark rubbed by wind. A bird going quiet too quickly. A squirrel or something like one moving in the litter. Real sounds and made sounds came wearing the same clothes. The difference existed somewhere under them, perhaps, but Joel did not know where to put his hands.
 
 Late morning thinned into noon without light changing much. The sky stayed low and pale. Mist caught in the trace and made distance uncertain. Every tree seemed to begin twice: once where it stood and once where the wet air repeated it.
 
@@ -188,7 +186,7 @@ Will looked at it as if it had betrayed him.
 
 They chose the side of the spruce away from the open trace. Joel made Will sit with his back to the trunk and his face toward Joel. No one turned away. No one got privacy. Privacy had become another old luxury, like jokes, like hot food, like the ability to say a friend's name because you missed him.
 
-The bandage came loose wet and sticky. Will looked above Joel's head while Joel worked. The cut itself was not terrible in the old scale of things. A torn palm, swollen, dirty at the edges despite their rinsing. In another life it would have been urgent care, a tetanus booster, three jokes from Alex about Will finally using his hand for something, Mike calling it a princess wound, Joel telling Will to stop touching things.
+The bandage came loose wet and sticky. Will looked above Joel's head while Joel worked. The cut itself was not terrible in the old scale of things. A torn palm, swollen, dirty at the edges despite their rinsing. In another life it would have been urgent care, a tetanus booster, three jokes from Alex about Will finally using his hand for something, Mike calling it a princess wound, Joel telling Will to stop touching stuff.
 
 Here, it was one more piece of the route trying to take time.
 
@@ -220,7 +218,7 @@ IT LEARNED ASSOCIATIONS.
 
 Joel looked at the words, then at the trees. He could feel the shape of Will's thought. It was clean and dangerous. The thing did not merely repeat isolated sounds. It had heard Mike clear his throat before certainty and had used the throat-clear to prepare their bodies for an order. It had heard buckles before gear and food and movement, and used them to pull eyes away. It had heard Will's cough before explanation, Alex's laugh before attention, Mike's reassurance before surrender.
 
-Maybe it understood. Maybe it did not. Maybe association was not understanding. Maybe humans were only association with a better vocabulary.
+Maybe it understood. Maybe it did not. Maybe association was not understanding.
 
 Joel wrote:
 
@@ -306,19 +304,15 @@ Will's eyes went wide with an insult so intimate Joel felt ashamed to see it.
 
 Joel lifted the notebook.
 
-Will shook his head once, hard, before Joel even opened it.
-
-I know.
+Will shook his head once, hard, before Joel even opened it. I know.
 
 The cough came again, ahead and slightly left.
 
-Will pointed to himself, then to the bend, then made a little pulling motion with his fingers. It wants me.
+Will pointed to himself, then to the bend, then made a little pulling motion with his fingers. Joel understood: It wants me.
 
 Joel nodded.
 
-Then he pointed at Will's feet, then at his own eyes, then down the trace.
-
-Walk where I can see you.
+Then he pointed at Will's feet, then at his own eyes, then down the trace. Walk where I can see you.
 
 Will swallowed. The motion looked painful. He fell in behind Joel.
 
@@ -380,7 +374,7 @@ They went on.
 
 By midafternoon the day had narrowed to the next twenty feet. Joel stopped thinking in miles. He thought in visible ground. Rock to root. Root to mud. Mud to the dark gap between alders. Stop. Turn. Confirm Will. Move.
 
-Fatigue made the rules harder, not easier. A tired body loved sound because sound was faster than sight. It could locate without turning. It could believe before checking. Every human habit favored the thing. When Will's pack strap slipped, Joel heard the shift and almost said, Strap. When his own foot slid on wet stone, his throat made the beginning of a warning to Will before he swallowed it. The unsaid words collected inside him. They made him feel crowded, as if silence were not emptiness but a room filling with men who wanted out.
+Fatigue made the rules harder, not easier. A tired body loved sound because sound was faster than sight. It could locate without turning. It could believe before checking. Every human habit favored the thing. When Will's pack strap slipped, Joel heard the shift and almost said, Strap. When his own foot slid on wet stone, his throat made the beginning of a warning before he swallowed it. The unsaid words collected inside him. Silence was not emptiness. It was a room filling with men who wanted out.
 
 Once, Will stumbled.
 
@@ -400,21 +394,17 @@ For one instant Will fought him. Not hard, not knowingly, but with the blind for
 
 Will made a sound into his closed mouth. It broke there.
 
-Joel turned him physically until Will faced him. He put both hands on Will's shoulders, then pointed at his own face.
-
-Here.
+Joel turned him physically until Will faced him. He put both hands on Will's shoulders, then pointed at his own face. Here.
 
 Will's eyes found him.
 
-Joel pointed at Will's chest.
-
-Here.
+Joel pointed at Will's chest. Here.
 
 Alex laughed once from the brush. A hard bark, too bright in the damp air.
 
 Will's eyes filled. He shut them and opened them again.
 
-Joel opened the notebook against Will's chest and wrote awkwardly:
+Joel opened the notebook against Will's chest and wrote awkwardly, the pencil bucking over the damp page:
 
 NOT ALEX.
 
@@ -426,7 +416,7 @@ IT WANTS OLD HABIT.
 
 Will looked at the line and put his muddy good hand over it for one second. Not to hide it. To hold it down.
 
-After that, they stopped less often but looked more carefully. Their world had become two linked circles of sight. Joel's around the trail ahead. Will's around Joel's back. When one circle bent, the other tightened. It was not enough. It was what they had.
+After that, they stopped less often but looked more carefully. Their world had become two linked circles of sight. Joel's around the trace ahead. Will's around Joel's back. When one circle bent, the other tightened. It was not enough. It was what they had.
 
 The old trace began to smell different near late afternoon.
 
@@ -450,7 +440,7 @@ OR WRONG WATER.
 
 Joel nodded. Good. Painful, but good.
 
-The trace forked badly there, or seemed to. One path continued down toward the low shine. Another held higher through spruce and might have been the way they had come in. A third was not a path at all, only a place where brush had been bent by weather or animal movement or something choosing to make a suggestion.
+The trace forked badly there, or seemed to. One path continued down toward the low shine. Another held higher through spruce and might have been the way they had come in. A third was not a path at all, only a place where brush had been bent by weather, animal movement, or something making a suggestion.
 
 Joel crouched and looked at the ground. Mud held too many marks and not enough. Their own tracks from yesterday should have been there, but rain had softened every edge. Mike's tread, Will's sandals, Joel's sandals: all of it had become pressure and water. He found one cut stem where Mike had cleared brush with the hatchet on the way in. He found a smear of gray mud on a stone at knee height where a pack might have rubbed. He found nothing that felt like proof.
 
@@ -482,7 +472,7 @@ Now the distance closed.
 
 The thing had heard him too.
 
-It had been near enough on the first day, or sound had carried, or the route itself had been listening long before the men knew to be quiet. It had his low practical caution. It had his small refusal. It had a piece of him from a morning when he still thought the danger was loose straps and bad footing and the ordinary stupidity of men around boats.
+It had been near enough on the first day, or sound had carried, or the route itself had been listening long before the men knew to be quiet. It had his low practical caution. It had his small refusal. It had a piece of him from a morning when he still thought the danger was loose straps, bad footing, and the ordinary stupidity of men around boats.
 
 His hand began to shake.
 

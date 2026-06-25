@@ -1,18 +1,18 @@
 # Chapter 20 - His Own Voice
 
-After Joel heard himself, the route lost its last outside.
+After Joel heard himself, there was no part of the route left outside it.
 
-Before that, some private part of him had believed the thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. A man could bear almost anything if he could make it start somewhere after his own innocence.
+Before that, some private part of him had believed the thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. A man could bear almost anything if he could make it begin after his own innocence.
 
 His voice proved otherwise.
 
-It had been near from the beginning, or near enough. At the landing. At the first water. At the places they had felt almost safe because nothing had yet happened. It had been present while they made ordinary mistakes and mistook ordinariness for safety. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it, or the woods had kept it, or whatever moved through the woods had no difference between hearing and keeping.
+It had been near from the beginning, or near enough. At the landing. At the first water. At the places they had felt almost safe because nothing had yet happened. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it, or the woods had kept it, or whatever moved through the woods had no useful difference between hearing and keeping.
 
-Will kept looking at him as if Joel might explain what selfhood sounded like when taken.
+Will kept looking at him as if Joel might explain what a man was supposed to do with the sound of himself.
 
-Joel had no explanation. He had only the notebook.
+Joel had no explanation. He had the notebook, the pencil, the Highlander key zipped against his chest, and mud drying in a hard crust along the backs of his hands.
 
-They stayed crouched at the bad fork for too long. The lower path shone with water through alder. The higher trace vanished and returned in pieces. Behind them, uphill, his own voice had gone quiet. That did not help. Silence after a voice was not absence anymore. It was only the place a voice might return from.
+They stayed crouched at the bad fork for too long. The lower path shone with water through alder. The higher trace vanished and returned in pieces. Behind them, uphill, his own voice had gone quiet. That did not help. Silence after a voice was no longer absence. It was only the place a voice might return from.
 
 Will took the pencil carefully, the way a man might take a blade from a child. His injured hand made his grip awkward. He wrote on the damp page:
 
@@ -24,13 +24,13 @@ Will underlined them once, then added:
 
 ONLY SOUND.
 
-Joel felt something in him rise hard enough that it almost became speech. No. Don't. Stop making it smaller. Stop trying to help me by lying in a different medium.
+Joel felt something in him rise hard enough that it almost became speech. No. Don't. Stop making it smaller. Stop trying to help me by lying in a quieter medium.
 
 His mouth opened.
 
 Will saw it and went still.
 
-Joel shut his mouth so sharply his teeth clicked. The sound seemed enormous. A small white bite of enamel in the wet air.
+Joel shut his mouth so sharply his teeth clicked. The sound seemed enormous. A small white bite of enamel in the wet air. Both men listened after it, because even a tooth click had become information.
 
 He took the notebook back and wrote:
 
@@ -40,13 +40,13 @@ Then, because that was not enough:
 
 THAT IS WORSE.
 
-Will read it and did not argue. The mercy of that cost him. Joel could see it in the muscles at his jaw, in the way his eyes wanted to move past the page and make a theory out of everything.
+Will read it and did not argue. The mercy of that cost him. Joel could see it in the muscles at his jaw, in the way his eyes wanted to move past the page and make a theory out of everything. He wanted to say that sound was not self, that repetition was not presence, that a copy did not own the thing copied. He was probably right. It did not help.
 
 Joel pointed to the lower path, then held up one hand. Wait by sight. He crouched and studied the mud.
 
-The rain had taken most of yesterday. Their tracks had come down this way or not. Mike had led. Will had followed, talking then because they still allowed talking, because the cabin had still been a possible answer, because Alex had been dead but Mike alive, which had seemed at the time like a different category of disaster. Joel looked for Mike's boot tread and found only oblong pressures filled with brown water. He looked for the diagonal scratch of Will's sandals and found roots, leaf rot, and a black feather stuck to mud by its own wet barbs.
+The rain had taken most of yesterday. Their tracks had come down this way or not. Mike had led. Will had followed, talking then because they still allowed talking, because the cabin had still been a possible answer, because Alex had been dead but Mike alive, which had seemed at the time like a different kind of world. Joel looked for Mike's boot tread and found only oblong pressures filled with brown water. He looked for the diagonal scratch of Will's sandals and found roots, leaf rot, and a black feather stuck to mud by its own wet barbs.
 
-The feather made him remember the raven at the put-in, its call breaking off over the trees while Alex snapped a strap and said something ugly about wilderness ambiance. Had the thing heard the motel ice machine and the room door and Will coughing behind the wall? Had it heard Mike clearing his throat before he was even in the woods? Joel hated the thought because it made the trip infected backward. The old landing, the first portage, the joke about poems, the food barrel latch, the hollow knock they had blamed on rope. All of it rearranged itself under the pressure of his voice from the trees.
+The feather made him remember the raven at the put-in, its call breaking off over the trees while Alex snapped a strap and said something ugly about wilderness ambiance. Had the thing heard the motel ice machine and the room door and Will coughing behind the wall? Had it heard Mike clearing his throat before he was even in the woods? Joel hated the thought because it made the trip infected backward. The old landing, the first portage, the joke about poems, the food barrel latch, the hollow knock they had blamed on rope: all of it rearranged itself under the pressure of his voice from the trees.
 
 Nothing had changed in the past.
 
@@ -54,13 +54,13 @@ Everything had.
 
 Will touched Joel's sleeve and pointed.
 
-On the left edge of the lower path, a cedar branch had been cut clean through at knee height. The cut was pale under rain, not new-new, not old. Hatchet work. Mike's work, probably. Yesterday, on the way in, he had been making the old trace more real by cutting what resisted it.
+On the left edge of the lower path, a cedar branch had been cut clean through at knee height. The cut was pale under rain, not fresh-white, not old. Hatchet work. Mike's work, probably. Yesterday, on the way in, he had been making the old trace more real by cutting what resisted it.
 
 Joel nodded. Lower.
 
 They moved toward the water.
 
-The ground softened within twenty yards. Mud took their footprints and folded them into itself. Alder crowded the path and slapped water onto their sleeves. Joel went first, then stopped, turned, and confirmed Will by sight. Will had stopped rolling his eyes at the checks. He endured them now with a concentration that looked almost angry. Joel understood. To be watched every fifteen steps was to be reminded every fifteen steps that you could become a sound in the wrong place.
+The ground softened within twenty yards. Mud took their footprints and folded them into itself. Alder crowded the path and slapped water onto their sleeves. Joel went first, then stopped, turned, and confirmed Will by sight. Will had stopped rolling his eyes at the checks. He endured them now with a concentration that looked almost angry. Joel understood. To be watched every fifteen steps was to be reminded every fifteen steps that the living body had to keep proving itself.
 
 Once, from behind them, his own voice said, "Wait. Just wait."
 
@@ -70,15 +70,15 @@ Joel did not turn.
 
 Will did. Not toward the voice, but toward Joel.
 
-That was the rule doing its work. It should have comforted him. Instead it made him feel briefly, stupidly, jealous of the rule. Will trusted the page faster than he trusted Joel's face now, and perhaps that was why they were alive.
+That was the rule doing its work. It should have comforted him. Instead it made him feel briefly, stupidly, jealous of the rule. Will trusted the page faster than he trusted Joel's face now. Perhaps that was why they were alive.
 
 Joel lifted two fingers to his eyes. Will nodded.
 
 They kept going.
 
-The water smell strengthened. It was not open lake, not wind and distance. It was narrow water, tannin and mud, old leaves soaking under alder roots. The kind of channel that took a canoe because it had to, not because it welcomed one. Through the trees came the dull shine of it, broken by black stems.
+The water smell strengthened. It was not open lake, not wind and distance. It was narrow water, tannin and mud, old leaves soaking under alder roots. The kind of channel that took a canoe because it had to, not because it welcomed one. Through the trees came the dull shine of it, broken by black stems. No wind reached them there. Sound did not travel far so much as stay trapped.
 
-Joel had imagined the canoe cache as an object. Two boats, gear under spruce, the route returning to force and balance. He had wanted the cache with a child's stupid faith: if they reached it, one kind of terror would end. The woods had allowed him that desire because the woods did not care what men wanted before it ruined the wanting.
+Joel had imagined the canoe cache as an object. Two boats, gear under spruce, the route returning to weight and balance. He had wanted the cache with a child's stupid faith: if they reached it, one kind of terror would end. A canoe was not a voice. A pack did not ask to be believed. Rope held or failed in the hand.
 
 The cache was not where it should have been.
 
@@ -98,7 +98,7 @@ Joel could hear Will breathing through his nose.
 
 The food barrel was where it had been, hung badly and too low from a spruce limb because none of them had cared about animal standards when the cabin had still existed as hope. Its blue side showed through brush. The black lid ring appeared closed.
 
-One dry bag had been pulled partly from under the gear tarp and left in the mud. It was the long one with the tent bodies and some clothing, the one they had decided was too heavy to carry inland and not important enough to guard. Mud covered one end. Water had pooled around the roll-top.
+One dry bag had been pulled partly from under the gear tarp and left in the mud. It was the long one with the tent bodies and some clothing, the one they had decided was too heavy to carry inland and not important enough to guard. Mud covered one end. Water had pooled around the roll-top. The map case lay near the food barrel with grit stuck along the seal, its clear plastic filmed brown at the edges.
 
 The rod tube lay beside it.
 
@@ -116,7 +116,7 @@ Will swallowed. He nodded once, too hard.
 
 They stood at the edge of the cache and inspected it like men approaching an animal that might only be sleeping.
 
-No tracks made sense. Their own prints from yesterday had been softened by rain and overrun by new disturbances: long smears in mud where the canoe had dragged; two round punched places that might have been the ends of branches; shallow half-moons from Will's sandals or Joel's or Mike's, all blurred into each other. Near the alder stem, the mud held a line of compressed grass as if someone had knelt. Or as if the rope had been pulled low. Or as if a body had crouched there without leaving a body-shaped truth.
+No tracks made sense. Their own prints from yesterday had been softened by rain and overrun by new disturbances: long smears in mud where the canoe had dragged; two round punched places that might have been the ends of branches; shallow half-moons from Will's sandals or Joel's or Mike's, all blurred into each other. Near the alder stem, the mud held a line of compressed grass as if someone had knelt. Or as if the rope had been pulled low. Or as if a body had crouched there without leaving a body-shaped truth. Joel did not write any of it down. The page could record evidence. It could not make evidence mean enough.
 
 Joel pointed to the better canoe. Then to Will. Then made a slow circling motion with one finger: inspect.
 
@@ -128,7 +128,7 @@ They approached together.
 
 The rope knot tightened when Joel put weight on it. It had been tied by force, not skill. The painter had bitten into the alder bark. Two loops crossed each other, then a series of jammed half-turns had been pulled down until the wet rope hardened. A human hand could have done it in panic. Mike could have done it with one glove on and no patience. Alex could have made worse and called it fine. Will would never have left such a thing unless he wanted to make a point about other people's standards.
 
-Will crouched beside it. His mouth shaped, impossible to stop, Can it--
+Will crouched beside it, touched one finger to a crossing loop, and stopped. His mouth shaped, impossible to stop, Can it--
 
 Joel put two fingers hard against Will's shoulder.
 
@@ -145,6 +145,10 @@ DOESN'T MATTER.
 He added:
 
 CUT IT.
+
+Then, because Will was still looking at the knot as if knowledge might come out of it, Joel wrote one more line.
+
+NO TESTS.
 
 Will stared at the page a second longer than necessary. Then he took the hatchet from his belt.
 
@@ -190,7 +194,7 @@ They worked.
 
 Work was the only answer that did not add material. Joel checked the better hull first. No crack he could see. No puncture. No new gouge deep enough to matter. He ran his hands along the outside while Will held the boat tilted. Cold water spilled from a shallow pocket near the seat and ran over Joel's knuckles. The caned front seat had one broken strand. The back seat was sound. The thwarts held. The shortened painter could be retied later, badly but by them.
 
-The damaged canoe was worse. Mike's repair on the cracked thwart still held when Joel pressed it, but the aluminum splint had shifted and one wrap of cord had loosened. It would float. It might carry gear. It might fail under portage strain or current. Two men with two canoes made less sense than two men in one boat, but one boat meant all weight, all risk, all hope in a single hull.
+The damaged canoe was worse. Mike's repair on the cracked thwart still held when Joel pressed it, but the aluminum splint had shifted and one wrap of cord had loosened. Rainwater had collected along the keel line. A small gray leaf had plastered itself over a dent in the aluminum, and for one stupid second Joel did not want to touch it. It would float. It might carry gear. It might fail under portage strain or current. Two men with two canoes made less sense than two men in one boat, but one boat meant all weight, all risk, all hope in a single hull.
 
 Joel set his palm on the better canoe.
 
@@ -218,9 +222,9 @@ STAY VISIBLE.
 
 Will nodded.
 
-They made a pile of what would go. Food barrel, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. Alex's cracked headlamp, less an object now than a debt. The Highlander key stayed in Joel's inner pocket, zipped behind fabric, checked once by touch and then not touched again.
+They made a pile of what would go. Food barrel, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. Alex's cracked headlamp, less an object now than a debt. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
 
-They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. They left Alex's hot sauce bottle in the cracked headlamp bag because neither of them could decide to carry it and neither could throw it away.
+They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. They left Alex's hot sauce bottle in the cracked headlamp bag because neither of them could decide to carry it and neither could throw it away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to things two men could not lift.
 
 Will picked up the rod tube last.
 
@@ -230,7 +234,7 @@ Behind him, plastic scraped mud.
 
 Will had opened the tube and taken out the two rods. One had a fine crack near the second guide. The other looked all right. He held them awkwardly with his bandaged hand, their tips trembling in the damp air. The reels had grit in them. Line clung in wet loops.
 
-For one moment, with the rods in his hand, Will looked almost normal. Not better. Not safe. But placed in a shape Joel recognized. A man at a lake, making small decisions about weight and lure and angle. A man who would say, quietly and with too much precision, that fishing was not about catching fish, not exactly. It was about keeping an instrument in the water long enough for the world to tell you something.
+For one moment, with the rods in his hand, Will looked almost normal. Not better. Not safe. But placed in a shape Joel recognized. A man at a lake, making small decisions about weight and lure and angle. A man who would say, quietly and with too much precision, that fishing was not about catching fish, not exactly. It was about keeping an instrument in the water long enough for the world to tell you something without requiring an answer.
 
 Will looked at the channel.
 
@@ -240,7 +244,7 @@ Will closed the rod tube.
 
 He did not ask.
 
-He laid the rods under the damaged canoe they were abandoning and covered them with the same boughs that had been moved aside. His hand worked slowly because of the bandage. He put one spruce bough, then another, then corrected the first because a tip still showed. The care broke Joel worse than a sob would have. Will could leave them, but he could not leave them uncovered.
+He laid the rods under the damaged canoe they were abandoning and covered them with the same boughs that had been moved aside. His hand worked slowly because of the bandage. He put one spruce bough, then another, then corrected the first because a tip still showed. The care did more damage than a sob would have. Will could leave them, but he could not leave them uncovered.
 
 When he finished, he stayed crouched.
 
@@ -264,13 +268,15 @@ He wrote:
 
 YES.
 
+He tore that small corner of page away, folded it once, and put it into the rod tube before he slid the tube under the canoe. Joel did not stop him. A note that said only yes could not help the rods. It could mark that someone had known what was being left.
+
 They loaded the canoe low. Food barrel near the center. Heavy bag against it. Sleeping bags compressed badly under the thwart. Map case flat and reachable. Hatchet tucked beside Will but not under anything. Spare paddle lashed where Joel could see it. Every buckle they closed sounded too loud. Every strap pull was a small confession. The thing had all of these sounds already. That did not make giving them again feel harmless.
 
 From the alder behind the cache, Mike cleared his throat.
 
 Will did not look.
 
-Joel did, because the sound went through him before the rule caught it. Only a quick glance. Brush. Wet black stems. No body.
+Joel did, because the sound went through him before the rule caught it. Only a quick glance. Brush. Wet black stems. No body. The glance cost nothing and everything. It proved again that his body still belonged to the old world first.
 
 "We're fine," Mike said.
 
@@ -294,7 +300,7 @@ NOT JOEL.
 
 Joel stared at the second line.
 
-Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without trying to repair fact.
+Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without pretending fact was repair.
 
 Joel tapped both lines.
 
@@ -318,7 +324,7 @@ Together they pushed the canoe free.
 
 A rope tapped somewhere in the fog. Then another tap, nearer the far bank. The shortened painter lay visible across the front pack, wet and muddy and theirs. The sound went on anyway, a patient little knock against nothing they could see.
 
-Will climbed in first, awkward and careful, placing his knees and then sitting low in the front. Joel held the canoe while it tried to turn broadside. He looked once at the cache: damaged canoe under spruce, rod tube hidden, wet gear abandoned, the strange knot still clenched around the alder stem. A place of human decisions already losing their shape.
+Will climbed in first, awkward and careful, placing his knees and then sitting low in the front. Joel held the canoe while it tried to turn broadside. He looked once at the cache: damaged canoe under spruce, rod tube hidden, wet gear abandoned, the strange knot still clenched around the alder stem, the cut rope hanging dark and wet from it. A place of human decisions already losing their shape.
 
 The food barrel latch clicked from the trees.
 
@@ -326,7 +332,7 @@ Joel stepped in.
 
 The canoe dipped, steadied, and took them.
 
-For a moment they drifted without paddling. The channel ahead was narrow and dark. Fog took the far bank in pieces and gave it back as alder, then shadow, then nothing. Behind them the cache disappeared faster than it should have, not by magic, only by the ordinary fact of bends and brush and water accepting whatever men pushed onto it.
+For a moment they drifted without paddling. The channel ahead was narrow and dark. Fog took the far bank in pieces and gave it back as alder, then shadow, then nothing. Behind them the cache disappeared faster than it should have, not by magic, only by the ordinary fact of bends and brush and water accepting whatever men pushed onto it. The abandoned canoe was gone before Joel stopped listening for the latch.
 
 Joel lifted his paddle.
 

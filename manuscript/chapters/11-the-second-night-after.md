@@ -6,11 +6,11 @@ Rain closed the camp. It came down without force and without mercy, a cold stead
 
 The men sat close without comfort.
 
-Mike had the bear spray across his knees. The canister looked smaller in the dark, its orange cap wet and dull, its weight wrong for what they wanted from it. Will had the map case open though there was no light to read by. He kept one hand on the plastic as if the route might move under him if he let go. Joel had his notebook in the dry pocket of his jacket and had not taken it out yet.
+Mike had the bear spray across his knees. The canister looked smaller in the dark, its orange cap wet and dull, its weight wrong for what they wanted from it. Will had the map case open though there was no light to read by. He kept one hand on the plastic as if the route might move under him if he let go. Their sleeping bags stayed rolled inside damp sacks under the packs. No one had gone into a tent. Joel had his notebook in the dry pocket of his jacket and had not taken it out yet.
 
 They had agreed on watches. Then they had all stayed awake.
 
-The agreement itself had been brief and useless. Mike had said first watch, because saying first watch sounded like command. Will had said no, no, no, we need actual rotations, and then had been unable to produce one that mattered. Joel had proposed two-hour blocks, not because two hours was sensible but because any number was better than the three of them staring into rain until morning. They named the blocks and immediately broke them. Mike would not close his eyes. Will closed his twice and opened them both times before a minute passed. Joel sat near the tarp edge, his hood up, one knee braced against a pack, watching the food barrel hang in the bad spruce beyond the gray line of rain.
+The agreement itself had been brief and useless. Mike had said first watch, because saying first watch sounded like command. Will had said no, no, no, we need actual rotations, and then had been unable to produce one that mattered. Joel had proposed two-hour blocks, not because two hours was sensible but because any number was better than the three of them staring into rain until morning. They named the blocks and immediately broke them. Mike would not close his eyes. Will closed his twice and opened them both times before a minute passed. Joel sat near the tarp edge, hood up, one knee braced against a pack, watching the food barrel hang in the bad spruce beyond the gray line of rain.
 
 The barrel was still where they had put it before dark. Closed, latched, strapped, hauled into the same inadequate tree because moving farther from camp would mean moving nearer the alder gap, and none of them had said that aloud. The rope ran black against the trunk. The barrel turned a little when the wind found it, not enough to swing, only enough to remind Joel that it was there.
 
@@ -18,7 +18,7 @@ Beyond it, somewhere behind brush and weather and the orange strip Mike had tied
 
 No one had checked him before full dark.
 
-Will had asked once. Not directly. He had said, "The wind could get under plastic," while staring at the gap, and Mike had said, "It won't," too quickly. Joel had watched Will's mouth move around the next sentence and fail. That was how the old friendship worked under strain: the worst thing approached, became visible, and then they all looked at the practical object nearest to hand. Knot. stove. map. rope. The object was mercy because it did not require an answer.
+Will had asked once. Not directly. He had said, "The wind could get under plastic," while staring at the gap, and Mike had said, "It won't," too quickly. Joel had watched Will's mouth move around the next sentence and fail. That was how the old friendship worked under strain: the worst thing approached, became visible, and then they all looked at the practical object nearest to hand. Knot. Stove. Map. Rope. The object was mercy because it did not require an answer.
 
 Now there were no objects left to fix.
 
@@ -64,11 +64,11 @@ Will looked at him.
 
 "The difference doesn't help tonight," Joel said.
 
-Will's face tightened. He wanted to argue. It was not only habit now. It was survival to him, or the nearest thing he had. If he could say it correctly enough, arrange the pieces, distinguish cause from coincidence and animal from voice, then the world might become answerable again. Joel had known him as a boy in church basements where adults used language the same way. Prayer requests. Testimonies. Concerns. They could turn disaster into a form if they named it in the right tone. Cancer became a season. Divorce became a burden. A dead child became a homegoing. Joel had hated that language before he knew he hated it, the soft hand it laid over anything sharp.
+Will's face tightened. He wanted to argue. It was not only habit now. It was survival to him, or the nearest thing he had. If he could say it correctly enough, arrange the pieces, separate cause from coincidence and animal from voice, then the world might become answerable again.
 
-Will had not hated it then. He had simply been bored and restless and overbright, whispering wrong jokes during youth group and coughing into his sleeve when he tried not to laugh. Joel could see him at twelve, fluorescent-lit and too thin, making Joel look down at his Bible so the adults would not see his face. They had learned early that some rooms punished the direct sentence. They had learned to say almost, to imply, to talk beside the worst thing until it passed.
+Joel had known him as a boy in church basements where adults used language the same way. Prayer requests. Testimonies. Concerns. They could turn disaster into a form if they gave it the right tone. Joel had hated that before he knew he hated it, the soft hand it laid over anything sharp. Will had not hated it. He had been bored and restless and overbright, whispering wrong jokes during youth group and coughing into his sleeve when he tried not to laugh. Joel could see him at twelve, fluorescent-lit and too thin, making Joel look down at his Bible so the adults would not see his face.
 
-The woods did not punish the direct sentence. It kept it.
+They had learned early that some rooms punished the direct sentence. The woods did not punish it. The woods kept it.
 
 A drop struck Joel's wrist and ran under his cuff. He pulled his hand back and tucked it inside his sleeve.
 
@@ -510,9 +510,9 @@ Mike took it in with a strained, impatient glance. The columns. The small fifth 
 
 Joel wrote under Will: you guys hear that.
 
-The pen moved too loudly. He stopped between words and listened. Nothing answered the scratch of ink on damp paper. Of course nothing did. It could not read. It could not see the columns. It could only hear what they gave it. The thought steadied him more than it should have. A limit, however small, was a kind of shore.
+The pen moved too loudly. He stopped between words and listened. Nothing answered the scratch of ink on damp paper. Maybe that meant nothing. Maybe it meant the page had no voice unless one of them gave it one. The thought steadied him more than it should have. A limit, however small, was a kind of shore.
 
-He wrote more carefully: writing safe? Then put a question mark beside it. He did not know. He only knew the page had made no sound except his pen, and the pen had not yet become bait.
+He wrote more carefully: writing safe? Then put a question mark beside it. He did not know. He only knew the page had made no sound except the pen, and the pen had not yet become bait.
 
 Will watched him write. His eyes moved over the page but he did not speak. Joel saw the question in him, bright and hungry. Can it learn from this? Does it understand? Is it a recording? Is it animal? Is it us? The questions crowded his face. Joel put the notebook back in the plastic bag before Will could borrow it and turn questions into air.
 

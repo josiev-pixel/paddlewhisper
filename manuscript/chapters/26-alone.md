@@ -2,7 +2,7 @@
 
 Alone simplified the arithmetic and ruined everything else.
 
-Joel had one canoe, one small pack cut down to what could still be called useful, one map too soft at the folds, one Highlander key, one hatchet, one filter, one emergency paddle too short for real travel, one wet sleeping bag he did not plan to unroll, and daylight draining through low cloud.
+Joel had one canoe, one small pack cut down to what could still be called useful, one map too soft at the folds, one Highlander key, one hatchet, one filter, one weak headlamp, two crushed bars, one blue dry bag lashed under the front seat with an emergency paddle inside it, one wet sleeping bag he did not plan to unroll, and daylight draining through low cloud.
 
 He also had three dead men behind him who would not stop speaking.
 
@@ -56,6 +56,10 @@ He closed his teeth until his jaw hurt.
 
 From the portage behind him, Will said, "There's a difference."
 
+Joel did not think the sentence this time. He let it pass through him like cold water through a sleeve. The living Will had been right about differences. That was part of the damage. Right source, wrong source. Sound, sight. Repetition, understanding. A man could be right all the way to the wrong place.
+
+He put one palm on the canoe hull. Its surface was cold and slick with old rain. Real, because it resisted him. Real, because when he pressed harder his hand hurt.
+
 Joel lifted the canoe.
 
 The next quarter mile took the rest of his old life apart in pieces small enough to carry.
@@ -81,6 +85,8 @@ He saw Alex at the first camp holding a mug like it was a microphone, making eve
 The sleeping bag lay under the tree like something already dead.
 
 Joel tightened the remaining strap and moved.
+
+After that the pack rode higher and worse. Weight had a morality to it now. Anything kept meant another minute under the yoke, another stumble, another opening for sound. Anything left meant a future crossed out. He began to understand that survival did not feel like choosing life. It felt like becoming the kind of person who could leave evidence of himself in the brush and keep walking.
 
 The map was next to fail him, though he could not leave it. The case had grit in the seal. Water had gone in through a corner days ago and made the paper soft. Contour lines blurred where his thumb had pressed them too often. The blue shapes of lakes still held. The black portage line still appeared in pieces. The final lake was there, narrow at its south end, spreading north, then pinching toward the outlet and North Road Bridge.
 
@@ -129,6 +135,8 @@ He dragged the canoe sideways around the worst mud, then lifted the front over a
 Now the mud made the same wet mouth around Joel's foot and the woods answered with another pull, another release, somewhere out of sight.
 
 He leaned his weight on the canoe and freed himself slowly.
+
+The sandal came up empty of dignity and full of muck. He had to scrape it against the edge of a plank before he could get the strap seated under his heel again. His fingers would not do small work easily anymore. They pinched and missed. The torn cord knot at the side of the sandal held, then slid, then held again. He wanted Will's voice to tell him it was a bad knot. He wanted the correction so sharply that wanting became a sound inside him.
 
 From the right, Will coughed.
 
@@ -198,6 +206,8 @@ He lowered the canoe carefully at the edge of the landing.
 
 The final portage ended without ceremony. No sign. No blaze. No sudden widening into safety. The trail simply gave up into a sloped mix of gravel, mud, and flat stones where the last lake took the land in small dark licks. Alder crowded the left side. Low black spruce ran down the right shore. The water stretched north under dusk-colored cloud, a long narrow reach between dark banks, wrinkled by wind moving along it rather than across.
 
+For a minute he could not step out from under the trees. The lake looked too open. Not safe. Only exposed in a different way. On the portage every sound had a trunk, a bend, a clump of alder to hide behind. The water had no walls. It would carry a voice cleanly. It would make distance behave like a lie.
+
 That mattered.
 
 Wind across the lake would have ended him or made him wait for dark, which was another way to end. Wind along it was trouble but not refusal. He could paddle that if his hands kept working and if the short emergency paddle did not come apart and if the map meant anything and if he did not fall asleep sitting up.
@@ -217,6 +227,8 @@ The sounds did not overlap. They took turns like men around a fire, each waiting
 Joel crouched beside the canoe and inventoried what could go forward.
 
 Small pack: map, filter, bottle, headlamp with weak batteries, knife, two energy bars crushed into meal, first-aid roll reduced to tape and dirty gauze, lighter in a plastic sleeve, pencil, notebook when it was not in his jacket. Hatchet at belt. Key in inner pocket. Emergency paddle under the front seat in the blue dry bag with a pair of socks, the torn corner of the old repair sleeve, and the little orange whistle nobody had used because whistles were sound and sound had become meat.
+
+He clicked the headlamp on against his palm. The light came up yellow and weak, then steadied. He clicked it off before the small plastic switch could become an invitation. The lamp would be for the map only. Not for searching trees. Not for proving voices wrong. Light was not the same as sight if fear chose where to point it.
 
 He took the whistle out and threw it into the lake.
 

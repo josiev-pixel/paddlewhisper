@@ -10,9 +10,7 @@ His voice cracked on new. It was not a shout exactly. The trail swallowed any fu
 
 Joel had one hand on the back of Will's vest and the other on the notebook inside his own jacket. For a second he was absurdly aware of the small arrangement of facts against his body: the notebook damp at the edges, the Highlander key zipped in the inner pocket, the hatchet at his belt, his own pulse beating against the key as if the car were already trying to start.
 
-The woods answered in Mike's voice.
-
-"We're fine."
+From the brush ahead, Mike's voice said, "We're fine."
 
 Will gave one breath of laughter. No pleasure in it. Only recognition.
 
@@ -48,9 +46,7 @@ Joel wrote over his own words, hard enough to blur them:
 
 MOVE NOW.
 
-The reply came from ahead in Will's own voice.
-
-"There is a difference."
+From ahead, in Will's own voice, came: "There is a difference."
 
 The sentence had Will's dry weight, his exact little lift on difference, the mild irritation of a man correcting a term no one else cared about. But it did not belong to the moment. It answered nothing. It made no distinction. It was a hinge with no door on either side.
 
@@ -66,7 +62,7 @@ Will's eyes came to him then. Close. Furious. Not only furious. Hurt. The look h
 
 Now Joel's hand was on Will's mouth.
 
-The woods had reduced friendship to force.
+Friendship had been reduced to force.
 
 Will pulled Joel's hand away with his good hand. His injured hand hung open and swollen at his side. The bandage had gone gray at the palm and red where it crossed the knuckles.
 
@@ -188,15 +184,15 @@ Joel bent too.
 
 From directly behind Will, in Mike's voice, came: "Key's here."
 
-Will did not look back. He kept his eyes on Joel.
+Will did not look back. His good hand closed on one wet corner of the page. Joel put two fingers on the other. Mud squeezed up between them.
 
 For one blessed second Joel thought that meant he had won.
 
 Then Will said, still looking at him, "It put key with Mike because we put key with Mike."
 
-Joel held out his hand for the notebook.
+Joel slid his fingers under the notebook.
 
-Will did not give it to him.
+Will pressed down.
 
 "It's association," Will said. "Not meaning. Maybe not. But close."
 
@@ -210,7 +206,9 @@ Will froze.
 
 So did Joel.
 
-The woods did not answer immediately.
+Will's hand came off the page.
+
+Nothing answered immediately.
 
 That delay was almost merciful. Almost intelligent. Or only weather, distance, the shape of trees.
 
@@ -226,13 +224,13 @@ Joel reached for him and missed the shoulder strap. His fingers caught only the 
 
 "No," Joel said.
 
-The woods said, "Will."
-
-Again in Joel's voice.
+From the brush, Joel's voice said, "Will."
 
 Will took one step off the portage.
 
-The ground beyond the trail dropped into a shallow runnel hidden by fern and alder. Not steep. Nothing dramatic. Exactly the kind of off-trail dip a man could step into, curse, climb out of, and mock himself for later. Stones showed through the moss there, flat and dark, their faces slick with water. Beyond them the forest thickened, spruce packed close and gray dead branches crossing at knee and chest height.
+The pack made the step wrong. Its weight pushed him past the small choice he had made, from edge to drop. One sandal slid into the hidden runnel. The paddles knocked against the barrel inside the lash, and Will caught an alder stem with his good hand to keep from going to one knee.
+
+Beyond the trail the ground fell into a shallow runnel hidden by fern and alder. Not steep. Nothing dramatic. Exactly the kind of off-trail dip a man could step into, curse, climb out of, and mock himself for later. Stones showed through the moss there, flat and dark, their faces slick with water. Beyond them the forest thickened, spruce packed close and gray dead branches crossing at knee and chest height.
 
 Joel went after him.
 

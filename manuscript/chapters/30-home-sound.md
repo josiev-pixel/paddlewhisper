@@ -2,7 +2,7 @@
 
 Home had too many sounds.
 
-The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone lighting and darkening on the table. His fiancee breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
+The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone waking and going dark on the table. His fiancee breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
 
 Joel did not sleep much.
 
@@ -52,7 +52,7 @@ He could have been endlessly specific. Alex's laugh stripped of Alex. Will's cou
 
 That was also true.
 
-The official story grew without him and then around him. Animal attack. Fatal injuries. Severe weather. Disorientation. Exposure. Separation. Possible drowning. Survivor trauma. No evidence of foul play. Unusual circumstances. Remote terrain. Search suspended, then resumed, then adjusted by probability and weather and daylight.
+The official story grew without him and then around him. Animal attack. Fatal injuries. Severe weather. Disorientation. Exposure. Separation. Possible drowning. Survivor trauma. No evidence of foul play. Unusual circumstances. Remote terrain. Search suspended, resumed, adjusted by probability and weather and daylight.
 
 The words entered newspapers, calls, emails, family messages, agency updates. Each version was shorter than the last. Four men went in. One came out. A bear was suspected, then not confirmed. The wilderness was unforgiving. The lack of a satellite messenger was noted by people who had never stood at Will's truck while the trip still looked like a trip. The phrase experienced outdoorsmen appeared once, then disappeared under comments from strangers who believed all dead men had made one obvious mistake.
 
@@ -86,13 +86,13 @@ He had not meant to say it. It was true in the worst way and maybe false in the 
 
 He set the phone down after the call and kept his hand on it until the screen went black.
 
-Mike's sister called in the afternoon, practical at first, furious by the third minute. She wanted to know why Mike had chosen that route. She wanted to know why there had been no beacon. She wanted to know why Joel had the key. She wanted to know whether Mike had suffered.
+Mike's sister called in the afternoon, practical at first, furious by the third minute. She wanted to know why Mike had chosen that route. She wanted to know why there had been no beacon. She wanted to know why Joel had the key. She wanted to know whether Mike had suffered. She asked the questions as if enough pressure could make one of them open into the true one.
 
 The key sat in an evidence bag at the sheriff's office by then. Joel still felt it under his jacket when he was tired.
 
 "It was fast," he said.
 
-He did not know that. He gave it to her because some lies were doors out of worse rooms.
+He did not know that. He gave it to her because some lies were doors out of worse rooms, and because the truth had no door at all.
 
 "He always thought he knew," she said.
 
@@ -108,7 +108,7 @@ She did not say everything. She did not have to. He heard the old shape of Mike 
 
 That answer was allowed. It did not comfort either of them.
 
-Alex's brother called late and from a different time zone. There was traffic in the background, a door chime, someone ordering coffee too loudly. The distance made the call feel less real until he laughed.
+Alex's brother called late and from a different time zone. There was traffic in the background, a door chime, someone ordering coffee too loudly. The distance made the call feel manageable until he laughed.
 
 It was not Alex's laugh. It was lower and shorter. Grief came out of him wrong, as if it had taken the nearest exit.
 
@@ -132,7 +132,7 @@ Joel told him about Second Camp only up to the fire. That felt wrong, so he went
 
 Joel did not say that the woods had thought so too.
 
-After the calls, his fiancee sat beside him without touching him until he moved first. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A sourced touch. A body attached to the comfort.
+After the calls, his fiancee sat beside him without touching him until he moved first. She had learned that faster than anyone should have had to learn it. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A sourced touch. A body attached to the comfort.
 
 "You don't have to do all of them," she said.
 
@@ -142,7 +142,7 @@ After the calls, his fiancee sat beside him without touching him until he moved 
 
 "They don't have anybody else who was there."
 
-She looked toward the drawer where he had put the notebook. He had moved it from the kitchen table after the first agency call because it had begun to feel like a third person in the room.
+She looked toward the drawer where he had put the notebook. He had moved it from the kitchen table after the first agency call because it had begun to feel like a third person in the room, silent and impossible to exclude.
 
 "There is what was there," she said. "And there is what you can give them."
 
@@ -178,7 +178,7 @@ He did not show these pages to anyone.
 
 His fiancee found one anyway because he left it on the counter under a mug.
 
-She read it while he watched her face. There was no pity in it at first. Pity would have been easier to refuse. What came instead was concentration, as if she had been handed a map and was trying to understand the scale.
+She read it while he watched her face. There was no pity in it at first. Pity would have been easier to refuse. What came instead was concentration, as if she had been handed a map and was trying to understand the scale before deciding where to stand.
 
 "Does writing them down help?" she asked.
 
@@ -198,7 +198,7 @@ They did not set a wedding date. They had already had one, then lost it in the a
 
 He told her she could leave.
 
-He said it badly, while rinsing a plate at midnight because sleep had failed and the sink had dishes in it. Water ran over his hand. The plate knocked once against the basin, and he stopped long enough that she came in.
+He said it badly, while rinsing a plate at midnight because sleep had failed and the sink had dishes in it. Water ran over his hand. The plate knocked once against the basin. He stopped long enough that she came in.
 
 "What?" she said.
 
@@ -217,6 +217,8 @@ She was quiet long enough that he regretted the whole sentence.
 He nodded.
 
 "I hate that you need it," she said. "I don't hate you."
+
+It was the first time she had said hate without softening it. He was grateful and ashamed at once.
 
 The water kept running. He turned it off.
 
@@ -348,6 +350,10 @@ She absorbed that. He could feel the cost of it enter her body.
 
 "Okay," she said.
 
+"And you tell me when it is too much," he said.
+
+"I will," she said.
+
 "I'm sorry."
 
 "I know."
@@ -372,9 +378,9 @@ Joel sat on the couch.
 
 Rain ticked at the gutter.
 
-The refrigerator motor started in the kitchen, ran for a while, stopped. In the pause after it, the house seemed to listen back.
+The refrigerator motor started in the kitchen, ran for a while, stopped. The pause after it widened.
 
-He hated the thought as soon as it formed. Houses did not listen. Woods did not listen either, until they did. That was the damage: not belief, exactly, but the knowledge that belief had not been required.
+Joel hated his own attention. Houses did not listen. Woods did not listen either, until they did. That was the damage: not belief, exactly, but the knowledge that belief had not been required.
 
 From the kitchen came a small click.
 
@@ -386,7 +392,7 @@ The click came again.
 
 He did not move. He watched the doorway to the hall, the dark rectangle leading to the kitchen. No light there. Only the dim reflection of the living room lamp on the floorboards and, beyond it, the black square of the window over the sink.
 
-He thought of the notebook in the drawer. He thought of the lists he had made. ICE MAKER. PIPE. FURNACE. He thought of writing KITCHEN CLICK, MIDNIGHT RAIN, SOURCE UNKNOWN, and how the pencil would look moving across paper in the morning if morning came and made this small.
+He thought of the notebook in the drawer. He thought of the lists he had made. ICE MAKER. PIPE. FURNACE. He thought of writing KITCHEN CLICK, MIDNIGHT RAIN, SOURCE UNKNOWN, and how the pencil would look moving across paper in the morning, if morning came and made this small.
 
 A man cleared his throat in the kitchen.
 
@@ -404,13 +410,13 @@ Then Mike said, from the kitchen, "We're exactly where we ought to be."
 
 The sentence entered the house plainly.
 
-Not loud. Not theatrical. Not outside the window, not upstairs, not in his head in any way he could comfortably name. It came from the kitchen with the rain behind it and the refrigerator cooling in the wall and the woman he loved asleep above him.
+Not loud. Not theatrical. Not outside the window, not upstairs, not in his head in any way he could comfortably name. It came from the kitchen with the rain behind it, the refrigerator cooling in the wall, and the woman he loved asleep above him.
 
 Joel did not answer.
 
 He did not call out. He did not stand. He did not wake her. His body wanted every old thing at once: light, witness, denial, weapon, notebook, phone, road, water, a man visible when he spoke. His throat tightened around words and held them.
 
-The house waited.
+The house did what a house did.
 
 Rain filled the gutters. A car passed, tires hissing over wet pavement. Upstairs, the bed gave one faint sound as his fiancee turned in sleep.
 

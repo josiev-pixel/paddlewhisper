@@ -1,8 +1,8 @@
 # Chapter 27 - The Planted Phrase
 
-The planted phrase saved him by being stupid.
+The planted phrase helped him once by being stupid.
 
-No memory hung from it. No old trip. No argument. No dead man's way of handling shame. Blue bag under the front. A fact, and not even an important one now that the bag was in the canoe and Joel could see it.
+No memory hung from it. No old trip. No argument. No dead man's way of handling shame. Blue bag under the front. A fact, and not even an important one now that the bag was in the canoe and Joel could see it. It did not ask anything of him except that he notice where it was.
 
 The first time the thing used it, Alex said it from the left shore.
 
@@ -14,17 +14,17 @@ Joel did not look left.
 
 He looked at the bag.
 
-It sat under the front seat, the blue dulled by mud and last light, the rolled mouth buckled twice, one corner pinched under the aluminum tube of the emergency paddle before Joel had pulled the paddle free. Its presence was not an answer. It was not rescue. It proved only that a voice in the trees could repeat a sentence about an object it did not need and could not see from there.
+It sat under the front seat, the blue dulled by mud and last light, the rolled mouth buckled twice, one corner still creased where the aluminum tube of the emergency paddle had pinned it before Joel pulled the paddle free. Its presence was not an answer. It was not rescue. It proved only that a voice in the trees could repeat a sentence about an object that gave it nothing back.
 
 That was enough.
 
-The canoe drifted while he made himself understand the difference between enough and safe. Wind pushed along the lake in narrow gusts, lifting small black wrinkles off the water. The right-hand reach opened ahead of him, darker than the shore but less dark than the alder-choked left channel where Alex's voice had placed itself. The map under the thwart cord showed a north-running lake, then a pinch, then water beyond. But the map had already been right in shapes and wrong in mercy. A blue line could be true and still not save anyone.
+The canoe drifted while he made himself hold the difference between enough and safe. Wind pushed along the lake in narrow gusts, lifting small black wrinkles off the water. The right-hand reach opened ahead of him, darker than the shore but less dark than the alder-choked left channel where Alex's voice had placed itself. The map under the thwart cord showed a north-running lake, then a pinch, then water beyond. But the map had already been right in shapes and wrong in mercy. A blue line could be true and still not save anyone.
 
 Joel set the short paddle on the right side and pulled.
 
 The canoe answered late.
 
-Everything about it was wrong now. Too little load in the bow, too much human weight in the stern, no second paddle correcting small mistakes before they became large ones. With Alex in front, the boat had jerked and argued but had still had another body reading the water. With Will, after Alex, it had been overloaded and miserable and alive with disagreement. One man in the back made the canoe lift its nose as if sniffing for trouble. Each stroke swung the bow wider than Joel wanted. Each correction cost more water than it gained.
+Everything about it was wrong now. Too little load in the front, too much human weight in the back, no second paddle correcting small mistakes before they became large ones. With Alex in front, the boat had jerked and argued but had still had another body reading the water. With Will, after Alex, it had been overloaded and miserable and alive with disagreement. One man in the back made the canoe ride light and foolish ahead of him. Each stroke swung the front wider than Joel wanted. Each correction cost more water than it gained.
 
 He moved anyway.
 
@@ -40,27 +40,21 @@ Will said it from behind him.
 
 Not amused. Urgent. Technical. Will's voice made the phrase into an instruction Joel had failed to obey correctly. He could almost hear the sentence that should have followed: No, no, no, you're shifting the trim, that's not how that works.
 
-Joel's shoulders tightened. The canoe yawed. The left gunwale dipped toward a little slap of chop.
+Joel's shoulders tightened. The canoe yawed. The left side dipped toward a little slap of chop.
 
 He corrected too hard and the paddle blade fluttered in his hands. Aluminum flexed at the joint. The cheap collar gave a small dry click.
 
 From behind him, the same click answered.
 
-He wanted Will there with a fury so sudden it felt like nausea. He wanted the correction. He wanted the fight. He wanted Will in the bow, cold and furious and alive, complaining that Joel's steering was turning them into a physics demonstration. The wanting came before thought and nearly became speech.
+He wanted Will there with a fury so sudden it felt like nausea. He wanted the correction. He wanted the fight. He wanted Will in the front, cold and furious and alive, complaining that Joel's steering was turning them into a physics demonstration. The wanting came before thought and nearly became speech.
 
 He pressed his tongue against the roof of his mouth until it hurt.
 
-The boat steadied.
+The boat steadied by inches.
 
 He wrote no new rule. He could not write while moving, and stopping in open water was another kind of answer. The old rules sat in the notebook under his jacket and on the page pinned at the thwart behind him: NO NAMES. NO ANSWERS. ONLY SEEN IS REAL. SOUND IS BAIT. GIVE IT ONE THING.
 
-He had given it one thing.
-
-It had not become his friend.
-
-It had not become a map.
-
-It was only a mark on the water, a colored rag tied to a trap, a way to see the trap spring.
+He had given it one thing. It had not become his friend. It had not become a map. It was only a mark on the water, a way to see the trap spring.
 
 The lake narrowed by degrees. Low reeds began to show in clumps to the left. The right shore lifted into black spruce and small granite shelves, all of it sliding past too slowly. Dusk thickened under the cloud. The water stopped reflecting sky and began holding it in broken, darker strips. Every paddle stroke put a small wound in that surface and closed it again.
 
@@ -70,7 +64,7 @@ One through twenty on the right.
 
 One through fifteen on the left, because the left shoulder had less left in it.
 
-Switch before the bow wandered.
+Switch before the front wandered.
 
 Do not reach. Short stroke. Close to the boat.
 
@@ -84,7 +78,7 @@ Something knocked from the right shore. Paddle on gunwale.
 
 Not a voice. Older than the voices. A trip sound. A boat sound. A sound from before the woods had learned grammar.
 
-Joel looked at the blue bag.
+Joel checked the blue bag.
 
 It sat under the front seat, visible, ordinary.
 
@@ -94,11 +88,11 @@ He paddled left.
 
 Not because left was safe. Because the sound wanted his right side. Because the right shore, which should have been quiet if it was only spruce and stone, had chosen the language of men and gear.
 
-The canoe slid toward the center. Wind took the bow and pushed it back. He leaned forward, though leaning forward hurt his stomach and made the key in his inner pocket press hard against his breastbone.
+The canoe slid toward the center. Wind took the front and pushed it back. He leaned forward, though leaning forward hurt his stomach and made the key in his inner pocket press hard against his breastbone.
 
 The key was still there.
 
-He checked it with the heel of his free hand between strokes, a small push against the jacket. Metal under cloth. The whole planned exit reduced to that cold tooth. Mike's key. Mike's Highlander. Mike's confidence broken out of his dead pocket and carried by the man who had learned not to believe confidence just because it had a voice.
+He checked it with the heel of his free hand between strokes, a small push against the jacket. Metal under cloth. The whole planned exit reduced to that cold tooth. Mike's key. Mike's Highlander. Mike's confidence broken out of his dead pocket and carried by the man who had learned not to believe confidence just because it spoke clearly.
 
 Ahead, Mike cleared his throat.
 
@@ -108,11 +102,11 @@ The throat-clear came again, from the right-hand reach, then from farther ahead,
 
 "Blue bag under the front," Mike said.
 
-Managerial. Certain. The phrase became inventory, became route call, became an item checked off in Mike's head before the next instruction. It belonged in his mouth more easily than Joel liked. Mike had been good at making objects into control. Boat. Pack. Key. Map. Cabin. Even dead, his voice tried to put the blue bag into a system Joel could obey.
+Managerial. Certain. The phrase became inventory, became route call, became an item checked off before the next instruction. It belonged in Mike's mouth more easily than Joel liked. Mike had been good at making objects into control. Boat. Pack. Key. Map. Cabin. Even dead, his voice tried to put the blue bag into a system Joel could obey.
 
 Joel almost did.
 
-The right-hand reach looked broader. The wind ran there, and running wind meant depth, travel, main water. The left stayed brushy, broken by reeds and a small point that could hide a dead channel. A living Mike would have gone right unless the map said otherwise. A living Mike would have been loud about it. A living Will would have argued him there and maybe been correct. Alex would have asked if anyone else found this team-building exercise spiritually rich.
+The right-hand reach looked broader. The wind ran there, and running wind meant depth, travel, main water. The left stayed brushy, broken by reeds and a small point that could hide a dead channel. A living Mike would have gone right unless the map said otherwise. A living Mike would have been loud about it. A living Will would have argued him there and maybe been correct. Alex would have asked if this counted as team-building.
 
 Joel held the paddle across his knees and let the canoe glide.
 
@@ -130,9 +124,9 @@ Mike's voice came from the right again.
 
 Joel closed his eyes for one breath, then opened them because closed eyes gave sound too much room.
 
-The entity had not used the planted phrase to reveal the correct direction. It had used the phrase the way it used everything else: to make a body move before the mind could finish looking.
+The thing had not used the planted phrase to reveal the correct direction. It had used the phrase the way it used everything else: to make a body move before the mind could finish looking.
 
-He turned the canoe left of center, not into the reeds but toward the visible cut beyond them.
+He worked the canoe left of center, not into the reeds but toward the visible cut beyond them.
 
 The wind dropped near full dark.
 
@@ -188,13 +182,13 @@ The planted phrase came again from open water to his right, in Will's voice.
 
 There could be no speaker there. No shore. No body. Just water, dark, a few pale chips of reflected cloud.
 
-Joel understood then that the thing could throw sound across emptiness or move where he could not see. Understanding did not change the rule. It sharpened it.
+Sound did not have to stand where a body would stand. Knowing that did not change the rule. It sharpened it.
 
 Sight had never meant safety. It meant only that sound alone could not vote.
 
-He kept the bow toward the black cut in the trees where the map promised an outlet.
+He kept the front toward the black cut in the trees where the map promised an outlet.
 
-The cut did not resolve quickly. It lengthened and shortened with the angle of his approach, sometimes visible between reed stalks, sometimes gone behind the shoulder of the point. The water shallowed. Twice the paddle struck submerged stems. Once the hull slid over something soft that gave under it, not rock, not wood, and Joel's whole back tightened. The canoe slowed as if a hand had taken the stern painter.
+The cut did not resolve quickly. It lengthened and shortened with the angle of his approach, sometimes visible between reed stalks, sometimes gone behind the shoulder of the point. The water shallowed. Twice the paddle struck submerged stems. Once the hull slid over something soft that gave under it, not rock, not wood, and Joel's whole back tightened. The canoe slowed as if a hand had taken the back painter.
 
 He turned enough to see behind him.
 
@@ -222,15 +216,15 @@ This time Alex sounded bored. That was almost worse than teasing. The phrase had
 
 Joel knew then the tactic would not last.
 
-It had bought him direction once. Maybe twice. It would not carry him to the bridge. It would not protect him from his own voice. It would not make the entity stupid enough to defeat itself like a puzzle in a book.
+It had bought him direction once. Maybe twice. It would not carry him to the bridge. It would not protect him from his own voice. It would not make the thing stupid enough to defeat itself.
 
 The thought should have discouraged him. Instead it steadied something small and mean in him. He did not need a solution. He needed the next hundred feet.
 
 The cut opened.
 
-Not wide. Not welcoming. A seam of darker water between reeds, with black spruce crowding both sides beyond. A little current touched the bow and changed the feel of the canoe. Not much. Enough that the water seemed to have a preference. Enough that the lake's flat holding became a pull.
+Not wide. Not welcoming. A seam of darker water between reeds, with black spruce crowding both sides beyond. A little current touched the front and changed the feel of the canoe. Not much. Enough that the water seemed to have a preference. Enough that the lake's flat holding became a pull.
 
-Joel let the bow take it, then checked the map one last time.
+Joel let the front take it, then checked the map one last time.
 
 He had to use the headlamp. He hated that. Light made him visible in a way darkness did not. Light also made the near world honest for as far as it reached. The lamp sat in the small pack behind him. Getting it meant twisting, risking the boat, making zipper sound.
 
@@ -260,11 +254,11 @@ For once the dead voice gave useful advice.
 
 Joel hated that and obeyed the living need under it, not the sound.
 
-He stowed the headlamp loose between his knees and took up the paddle. The current gathered him by inches. He gave two small strokes to keep the bow from the reeds.
+He stowed the headlamp loose between his knees and took up the paddle. The current gathered him by inches. He gave two small strokes to keep the front from the reeds.
 
 Something rose ahead.
 
-Low. Pale. A shape of water and wrong joint. Not an animal he could name in the time he had. Not a log, because it bent once against the direction of current. Not a man, because a man would have made the water tell a different story. It broke the surface without a splash and slipped under before the canoe reached it.
+Low. Pale. A broken piece of reflected sky, except it bent once against the direction of current. Not an animal he could name in the time he had. Not a log. Not a man, because a man would have made the water tell a different story. It broke the surface without a splash and slipped under before the canoe reached it.
 
 The lake closed over with barely a ripple.
 
@@ -288,7 +282,7 @@ Ahead, in Joel's voice, "Wait. Just wait."
 
 To the left, in Alex's, "You coming or writing a poem?"
 
-The voices no longer tried to be plausible. They tried to be many. They tried to make the world all invitation and correction. They made old friendship into a net, each strand a habit a living man would once have honored without thinking.
+The voices no longer tried to be plausible. They tried to be many. They tried to make the world all invitation and correction. They made old friendship into a net, each strand a habit Joel would once have honored without thinking.
 
 Joel looked at the channel.
 
@@ -298,4 +292,4 @@ He looked once at the blue bag, dark under the front seat, stupid and faithful o
 
 Then he chose against the voices again.
 
-He set the bow into the black cut and committed to the crossing beyond it.
+He set the front into the black cut and committed to the crossing beyond it.

@@ -16,7 +16,7 @@ Sight first. Then thought.
 
 Across the channel, something small moved in the alder and stopped.
 
-Joel did not turn his head fast. That had become one of the new rules too, though they had not written it. Suddenness gave the woods a victory before it had earned one. He moved only his eyes, then his chin, and saw nothing but alder stems and the pale thread of mist between them.
+Joel did not turn his head fast. That had become one of the new rules too, though they had not written it. Fast movement made the body choose before the eyes had finished. He moved only his eyes, then his chin, and saw nothing but alder stems and the pale thread of mist between them.
 
 Will opened his eyes.
 
@@ -66,13 +66,13 @@ Will's eyes moved over the words. He did not answer on paper.
 
 That was answer enough.
 
-They packed without speech. The tarp came down stiff and wet. Each fold made small crisp sounds where frost had settled along the edge. Joel hated all of them. Will held the food barrel steady while Joel tightened the strap. Joel held the canoe while Will lowered the first dry bag in with his good hand and knee. Every task took a little longer than it should have because both men worked as if any noise might have to be explained later.
+They packed without speech. The tarp came down stiff and wet. Each fold made small crisp sounds where frost had settled along the edge. Joel hated all of them. Will held the food barrel steady while Joel tightened the strap. Joel held the canoe while Will lowered the first dry bag in with his good hand and knee. Every task took longer because both men worked as if every noise might need a witness.
 
 The worst part was that work still required trust.
 
 Joel had to turn his back while Will lifted the hatchet and stowed it by his knee. Will had to look away while Joel checked the key by pressing two fingers to the inside of his jacket and not opening the zipper. They had to allow one another small unobserved movements. The rules demanded sight, but no human task could survive total sight. You could not pack a boat, tie a knot, take a piss, rewrap a wound, or sleep with another man's eyes fixed on you forever.
 
-They were learning not only that voices could lie. They were learning that proof had a cost no body could pay all day.
+Proof had a cost. By morning, both of them were already in debt.
 
 At the water's edge, Will held up one finger and pointed to his hand.
 
@@ -102,7 +102,7 @@ The canoe moved with the burdened reluctance of something that had been asked to
 
 Joel made the first correction with a small draw. Will saw it and stopped paddling before the front hit the alder. Good. The boat slid by with only a brush of leaves along the side.
 
-They had become quicker with gestures. Two fingers to the eyes. Flat hand. Point. Fist. A palm turned down to slow. A touch to the food barrel to mean load. A point to the rope to mean watch the painter. These were not language exactly, but they were close enough that Joel distrusted them. Everything men used more than once became material. Everything with a pattern could be stolen by something patient enough.
+They had become quicker with gestures. Two fingers to the eyes. Flat hand. Point. Fist. A palm turned down to slow. A touch to the food barrel to mean load. A point to the rope to mean watch the painter. These were not language exactly, but they were close enough that Joel distrusted them. Anything repeated became a pattern. Anything patterned began to feel offered up.
 
 But the woods could not see a hand sign, he thought.
 
@@ -168,7 +168,7 @@ Will pointed ahead with the question in his face.
 
 Joel touched two fingers to his eyes and pointed through the alder. See first.
 
-Will nodded, but his mouth had tightened. The same argument lived in both of them now. If they ignored a real human sound, they might paddle past help. If they answered a false one, they might die in the proof.
+Will nodded, but his mouth had tightened. The same argument lived in both of them now. If they ignored a real human sound, they might paddle past help. If they answered a false one, the proof might kill them.
 
 Joel leaned his weight into the canoe.
 
@@ -200,11 +200,7 @@ This time it sounded closer to annoyed. Still Will. Still living. Still wrong.
 
 Will pointed to himself, then ahead.
 
-Joel nodded. Yes. It used living voices now in full daylight. Not just grief. Not just rain and night and the mind after death. Daylight did not clean it. Visibility did not prevent sound from lying; it only gave the lie something to contradict.
-
-The rule was no longer mourning.
-
-It was acoustics with teeth.
+Joel nodded. Yes. It used living voices now in full daylight. Not just grief. Not just rain and night and the mind after death. Daylight did not clean it. Visibility did not keep sound honest. It only gave the lie something to contradict.
 
 They got the canoe over the dam. Joel climbed in with mud to his knees. Will followed awkwardly, lowering himself with his good hand and almost losing balance when the front shifted. Joel steadied the boat with his paddle. Their eyes met for one sharp second. Anger passed between them because fear had no place to go.
 
@@ -218,7 +214,7 @@ Will's eyes widened.
 
 Joel shook his head and kept them moving.
 
-He could feel the shape of Will's thought forming ahead of him. The thing is using context. It is not random. It knows boat sounds at boat moments, voices at decision moments, Mike at movement moments, Alex at hesitation, Will at questions. Maybe that was understanding. Maybe it was only proximity and repetition. Maybe those two things were close enough to kill them.
+He could feel the shape of Will's thought forming ahead of him. Boat sounds at boat moments. Voices at decision moments. Mike at movement, Alex at hesitation, Will at questions. Maybe that was understanding. Maybe it was only proximity and repetition. Maybe those two things were close enough to kill them.
 
 At the next shallow they had to get out again.
 
@@ -326,7 +322,7 @@ Joel pointed to his eyes, then middle.
 
 Visible water.
 
-Will looked at him for a long moment. His expression had changed from disagreement into something more private. Resentment, yes, but not only that. The look said: your rule decides everything now. Your fear has become route authority. Mike is dead, and still someone gets to say which channel counts as safer.
+Will looked at him for a long moment. His expression had changed from disagreement into something more private. Resentment, yes, but not only that. Joel knew the look because he had worn a version of it at Mike: the route had narrowed until one man's fear could call itself judgment.
 
 Joel took the notebook.
 
@@ -366,7 +362,7 @@ Mike said, "Just keep moving."
 
 The phrase moved through the brush with tired authority.
 
-Joel felt it hit Will first. Then himself. Because the words were what Joel had been saying without saying. Move anyway. Forward. Morning. Car. Survival exposes it enough. Mike's dead voice and Joel's living rule had found the same shape.
+Joel felt it hit Will first. Then himself. Because the words were what Joel had been saying without saying. Move anyway. Forward. Morning. Car. Mike's dead voice and Joel's living rule had found the same shape.
 
 Will looked at him.
 
@@ -384,7 +380,7 @@ NOT ONLY MIKE.
 
 Joel looked at the line and understood why Will had written it.
 
-The woods had not only stolen Mike's voice. It had found the part of Mike that still lived in Joel's decisions. Keep moving. Do not stop. Do not answer. Survive now, know later. The fact that Joel might be right did not make the resemblance harmless.
+The woods had not only stolen Mike's voice. It had found the part of Mike that still lived in Joel's decisions. Keep moving. Do not stop. Do not answer. Survive now, know later. Being right would not make the resemblance harmless.
 
 He wanted to write, I know.
 
@@ -402,7 +398,7 @@ The living cough was rougher. Wetter. Smaller.
 
 Joel lifted two fingers to his eyes.
 
-Will nodded. He was visible. His cough was visible only because his body was. Everything else was theater.
+Will nodded. He was visible. His cough was not proof by itself. Only his body made it his.
 
 At the next bend the channel opened suddenly into a pond-shaped widening. Wind touched the surface there. Not much, but enough to make small scales of light where the clouds broke thinly. Dead trees stood from the water near the far end, gray trunks with no bark, each one reflected below itself in a darker line. A beaver lodge rose on the eastern bank. Fresh sticks lay over old sticks. Mud packed the gaps. A slide ran down to the water.
 
@@ -424,7 +420,7 @@ A second slap came from behind them, where no lodge stood.
 
 Then a third from the left, dry and wrong, too much like a hand striking a canoe hull.
 
-Will looked back at Joel, eyes sharp with the thought of pattern.
+Will looked back at Joel, eyes sharp with the hunger to make a pattern of it.
 
 Joel shook his head before Will could reach for the notebook.
 
@@ -432,7 +428,7 @@ Do not make a lesson from it here.
 
 Will's eyes narrowed. He understood the refusal and hated it.
 
-They paddled across the widening. No more slaps came. That made it worse in a way Joel had no use for. Repetition could become evidence. Silence after wrongness became appetite. He kept his eyes on the dead standing timber, then on the outlet, then on Will's shoulders as the channel took them again.
+They paddled across the widening. No more slaps came. That made it worse in a way Joel had no use for. Repetition could become evidence. Silence after wrongness could become bait. He kept his eyes on the dead standing timber, then on the outlet, then on Will's shoulders as the channel took them again.
 
 The final beaver obstruction was higher.
 
@@ -480,7 +476,7 @@ IT HAS YOU TOO.
 
 Joel read it.
 
-The line should not have hurt. They had already known it. The voice had proved it days ago near the cache. But knowledge changed when another person wrote it down. The page made the fact social. It was no longer private damage. Will had seen the thing reach into Joel and pull out a usable sound.
+The line should not have hurt. They had already known it. The voice had proved it days ago near the cache. But knowledge changed when another person wrote it down. The page took the damage out of Joel's private body and put it between them. Will had seen the thing reach in and pull out a usable sound.
 
 Joel took the pencil.
 
@@ -598,11 +594,11 @@ CAN IT LEARN FROM WRITING?
 
 Joel looked at the question and felt a fear different from voices.
 
-He had assumed writing was safe because the thing was sound. That assumption had become shelter, law, friendship, apology, argument, and command. It had held them since the cabin. It had let grief pass between their hands without entering the air.
+He had treated writing as safe because the thing was sound. The page had become shelter, law, apology, argument, command. It had held them since the cabin. It had let grief pass between their hands without entering the air.
 
 But assumptions had killed better men than him.
 
-The entity could not read minds. They believed that. It could mimic sounds it had heard. They believed that too. Writing made no sound except pencil on paper, page scrape, breath, sleeve against damp notebook. Writing removed tone. Writing made Will's need to explain less dangerous.
+The entity could not read minds. They believed that. It could mimic sounds it had heard. They believed that too. Writing made only small noises: pencil on softened paper, page scrape, breath, sleeve against damp cover. It removed tone. It made Will's need to explain less dangerous.
 
 None of that proved the page was private.
 

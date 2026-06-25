@@ -2,269 +2,271 @@
 
 They said seven and left at eight.
 
-That was not failure. It was the trip adjusting itself to the men who had planned it. At seven, Mike knocked on Joel and Will’s door with the flat of his hand and said, “We’re burning daylight,” though the sun was still low and weak over the motel roof. At seven-fifteen, Will was in one sock, tying a leader onto a small spinner because he had dreamed of a broken knot and woken up offended by his own subconscious. At seven-thirty, Alex was standing outside with wet hair and a motel towel around his shoulders, eating crackers from a sleeve and claiming this counted as breakfast.
+That was not failure. It was the trip adjusting itself to the men who had planned it. At seven, Mike knocked on Joel and Will's door with the flat of his hand and said, "We're burning daylight," though the sun was still low over the motel roof and the parking lot held more shadow than morning. At seven-fifteen, Will was in one sock, tying a leader onto a spinner because he had dreamed of a broken knot and woken up offended by his own subconscious. At seven-thirty, Alex stood outside with wet hair and a motel towel around his shoulders, eating crackers from a sleeve and claiming this counted as breakfast.
 
 At seven-forty, Mike decided he would not sleep in the Highlander after all, which meant he had to move two things from the back seat that had been there since spring: a folded camp chair with a torn arm and a cardboard box full of canoe seats, cracked yokes, two old PFDs, and a bilge sponge black at the edges.
 
-“Why do you own garbage professionally?” Alex asked.
+"Why do you own garbage professionally?" Alex asked.
 
-Mike set the box on the pavement. “That’s inventory.”
+Mike set the box on the pavement. "That's inventory."
 
-“That sponge has seen death.”
+"That sponge has seen death."
 
-“That sponge has value.”
+"That sponge has value."
 
-“To mold.”
+"To mold."
 
-Will came out carrying the food barrel. “If that box is coming with us, I’m staying here.”
+Will came out carrying the food barrel. "If that box is coming with us, I'm staying here."
 
-“It’s not coming.”
+"It's not coming."
 
-“It has been in your car since May.”
+"It has been in your car since May."
 
-“Then it knows how to wait.”
+"Then it knows how to wait."
 
-Joel carried his pack out last and set it beside Will’s truck. The morning was cool and bright. Dew stood on the canoes. The motel’s security light had clicked off, and the place looked worse in honest day. The office window was taped at one corner. The ditch behind the building held a skin of fog over black water. Mosquitoes floated in the shadow under the eaves, slow from cold but alive enough.
+Joel carried his pack out last and set it beside Will's truck. The morning was cool and bright. Dew stood on the canoes. The motel's security light had clicked off, and the place looked worse in honest day: tape on one corner of the office window, cigarette butts flattened near the ice machine, a plastic chair turned upside down beside Room 4. The ditch behind the building held a skin of fog over black water. Mosquitoes floated in the shadow under the eaves, slow from cold but alive enough.
 
-Will’s truck looked competent under the two canoes. Long bed, cap, roof rack, gear tucked tight beneath. Mike’s Highlander sat beside it, faded gray and square, its rear hatch lifted halfway like a tired jaw. One of the taillights had red tape over a crack.
+Will's truck looked competent under the two canoes. Long bed, cap, roof rack, gear tucked tight beneath. Mike's Highlander sat beside it, faded gray and square, its rear hatch lifted halfway like a tired jaw. One taillight had red tape over a crack. The bumper was pocked with old rust and stickers from outfitters that may or may not still exist.
 
-The plan was simple in the way plans were simple before weather, fatigue, and human nature got involved. Mike would drive the Highlander to the North Road Bridge, the intended take-out. Will would follow in the truck with the boats and most of the gear. They would leave the Highlander at the bridge, pile everyone into Will’s truck, drive back south and east along the forest roads to the old landing, then put in.
+The plan was simple in the way plans were simple before weather, fatigue, and human nature got involved. Mike would drive the Highlander to North Road Bridge, the intended take-out. Will would follow in the truck with the boats and most of the gear. They would leave the Highlander at the bridge, pile everyone into Will's truck, drive back south and east along the forest roads to the old landing, then put in.
 
-Will and Mike had worked it out over three phone calls, two maps, and one argument about whether the logging road between the bridge and the landing was faster than the paved loop. The paved loop had won after Will found a road report from six years earlier and Mike called it “probably still true enough.”
+Will and Mike had worked it out over three phone calls, two maps, and one argument about whether the logging road between the bridge and the landing was faster than the paved loop. The paved loop had won after Will found a road report from six years earlier and Mike called it "probably still true enough."
 
 Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not see the bad assumption yet.
 
-It also meant the bad assumption had been dressed as competence. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces and spare paddles and whether lunch should be reachable without unloading a truck. The absence of a satellite messenger did not look like absence in that company. It looked like one more thing they had decided not to need.
+It also meant the bad assumption had been dressed as competence. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces and spare paddles and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing they had decided not to need.
 
 Mike stood with his phone in one hand, looking at the screen.
 
-“Service?” Will asked.
+"Service?" Will asked.
 
-“One bar.”
+"One bar."
 
-“That’s generous.”
+"That seems generous."
 
-“It comes and goes up here.”
+"It comes and goes up here."
 
-Alex leaned against the truck and yawned. “I love watching men stare at rectangles in wilderness-adjacent locations.”
+Alex leaned against the truck and yawned. "I love watching men stare at rectangles in wilderness-adjacent locations."
 
-“We’re not in the wilderness,” Mike said. “We’re at a motel with vending machines.”
+"We're not in the wilderness," Mike said. "We're at a motel with vending machines."
 
-“Exactly. Transitional habitat.”
+"Exactly. Transitional habitat."
 
-Mike lifted the phone a little, as if height might improve the truth. “Nothing now.”
+Mike lifted the phone a little, as if height might improve the truth. "Nothing now."
 
-“We know there won’t be much,” Will said.
+"We know there won't be much," Will said.
 
-“I’m checking.”
+"I'm checking."
 
-“Great. It’s checked.”
+"Great. It's checked."
 
-Mike pocketed the phone with visible reluctance. “When something goes wrong, everybody wants the guy who checked.”
+Mike pocketed the phone with visible reluctance. "When something goes wrong, everybody wants the guy who checked."
 
-“When something goes wrong,” Alex said, “I want the guy who brought crackers.”
+"When something goes wrong," Alex said, "I want the guy who brought crackers."
 
-“You brought crackers for yourself.”
+"You brought crackers for yourself."
 
-“I’m not a socialist.”
+"I'm not a socialist."
 
-They ate what passed for breakfast standing in the parking lot. Muffins from Will’s kitchen, bananas bought the day before, instant coffee from the motel room machine that tasted faintly of plastic and old mineral deposits. Alex ate crackers and peanut butter with the seriousness of a man performing a medical routine. Will drank coffee and rearranged the lunch bag three times. Mike drank from his dented thermos and walked around both vehicles, touching straps, tires, hatches, locks.
+They ate what passed for breakfast standing in the parking lot. Muffins from Will's kitchen, bananas bought the day before, instant coffee from the motel room machine that tasted faintly of plastic and old mineral deposits. Alex ate crackers and peanut butter with the seriousness of a man performing a medical routine. Will drank coffee and rearranged the lunch bag twice, then opened it again to prove to himself he had not forgotten anything he could still name. Mike drank from his dented thermos and walked around both vehicles, touching straps, tires, hatches, locks.
 
-Joel watched him check the Highlander’s oil even though they had checked it in St. Louis.
+Joel watched him check the Highlander's oil even though they had checked it in St. Louis.
 
-“You worried about it?” Joel asked.
+"You worried about it?" Joel asked.
 
-“I’m always worried about it.”
+"I'm always worried about it."
 
-“That sounds healthy.”
+"That sounds healthy."
 
-“It’s old enough to vote and dumb enough to do it wrong.”
+"It's old enough to vote and dumb enough to do it wrong."
 
-Alex looked over. “Is this the vehicle that saves us at the end?”
+Alex looked over. "Is this the vehicle that saves us at the end?"
 
-“It’s the vehicle that is waiting at the end,” Mike said.
+"It's the vehicle that is waiting at the end," Mike said.
 
-“That was not a yes.”
+"That was not a yes."
 
-“It starts.”
+"It starts."
 
-“Again, not a yes.”
+"Again, not a yes."
 
-Mike shut the hood. “We’re fine.”
+Mike shut the hood. "We're fine."
 
 He said it without looking at anyone, as if speaking to the engine.
 
+The words did what he wanted them to do. They closed the subject. They always had a small lid-like sound when Mike said them, a thing being put away before anyone could touch what was inside.
+
 By eight they were on the road. Mike led in the Highlander. Will followed in the truck, the canoes riding above them, Joel in the passenger seat, Alex in back with his long legs angled around a cooler and a pack he had refused to move because he said it created a useful barrier between him and responsibility.
 
-The town ended quickly. A bait shop, a church, two houses with junked snowmobiles beside the garages, then trees. The road narrowed and rolled north through spruce, jack pine, and birch. The sun came and went through the windshield. The day had the clear feel of good weather before it had been used.
+The town ended quickly. A bait shop. A church. Two houses with junked snowmobiles beside the garages. Then trees. The road narrowed and rolled north through spruce, jack pine, and birch. The sun came and went through the windshield. The day had the clear feel of good weather before it had been used.
 
-Will drove with one hand low on the wheel, relaxed until he saw a pothole, then personally offended. He had a paper map folded beside him and the downloaded route on a small GPS unit clipped near the dash. He did not look at his phone. Will trusted phones for weather at home and distrusted them everywhere else.
+Will drove with one hand low on the wheel, relaxed until he saw a pothole, then personally offended. A paper map lay folded beside him and the downloaded route sat on a small GPS unit clipped near the dash. He did not look at his phone. Will trusted phones for weather at home and distrusted them everywhere else.
 
-“You think he checked the spare?” Will asked.
+"You think he checked the spare?" Will asked.
 
-“On the Highlander?” Joel said.
+"On the Highlander?" Joel said.
 
-“Yeah.”
+"Yeah."
 
-“Probably.”
+"Probably."
 
-“That means no.”
+"That means no."
 
-Alex leaned forward between the seats. “Can we not begin the day imagining wheel failures?”
+Alex leaned forward between the seats. "Can we not begin the day imagining wheel failures?"
 
-Will said, “We can imagine them now or experience them later.”
+Will said, "We can imagine them now or experience them later."
 
-“You two grew up together?” Alex asked Joel.
+"You two grew up together?" Alex asked Joel.
 
-“Church.”
+"Church."
 
-“That explains the optimism.”
+"That explains the optimism."
 
-“It explains my posture,” Will said.
+"It explains my posture," Will said.
 
 Joel watched the Highlander ahead of them. It bounced hard over a patched section, recovered, and kept going. Mike drove like he expected the road to get worse and wanted to prove he had known it first.
 
-They reached the North Road Bridge a little after nine.
+They reached North Road Bridge a little after nine.
 
-It was not much of a bridge. Concrete slab, low rails, tannin water moving under it between alder banks. A gravel pullout opened on the far side. There was a post with no sign, two beer cans in the weeds, and a place where someone had cut a sapling and left the pale stump angled toward the road.
+It was not much of a bridge. Concrete slab, low rails, tannin water moving under it between alder banks. A gravel pullout opened on the far side. There was a post with no sign, two beer cans in the weeds, and a place where someone had cut a sapling and left the pale stump angled toward the road. The bridge made the sound of the river smaller and harder. Water went into the dark under it and came out with a different voice.
 
 Mike pulled the Highlander into the gravel and parked it facing out. Will stopped the truck beside him and left it running.
 
 For a few seconds nobody spoke.
 
-Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No road traffic after their own engines died. The river under the bridge moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog still clung low upstream in torn bands.
+Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No door latches. No road traffic after their own engines died. The river under the bridge moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog still clung low upstream in torn bands.
 
 This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned.
 
-Alex walked to the bridge rail and looked down. “This is where we come out?”
+Alex walked to the bridge rail and looked down. "This is where we come out?"
 
-“If everything goes according to plan,” Will said.
+"If everything goes according to plan," Will said.
 
-“Never say that.”
+"Never say that."
 
-“It’s literally the plan.”
+"It's literally the plan."
 
-“Say something more outdoorsy. ‘If the river permits.’”
+"Say something more outdoorsy. 'If the river permits.'"
 
-Mike came around the Highlander with a small dry bag and a coil of paracord. “The river doesn’t care.”
+Mike came around the Highlander with a small dry pouch and a coil of paracord. "The river doesn't care."
 
-He had already taken the Highlander key off his ring. Joel watched him slide it into the little dry bag, roll the top down three tight turns, and clip the bag to the inside of his PFD, which lay on the truck seat waiting for water. Mike tugged the clip once. The key was no longer part of the car. It belonged to Mike now, and to the route.
+He had already taken the Highlander key off his ring. Joel watched him slide it into the pouch, fold the plastic around it, and press the seal shut. Then he rolled the top three tight turns and clipped the pouch inside his PFD, which lay on the truck seat waiting for water. The clip made a small hard tick. Mike tugged it once. The key was no longer part of the car. It belonged to Mike now, and to the route.
 
-“See?” Alex said. “That’s almost good.”
+"See?" Alex said. "That was almost good."
 
 Mike locked the Highlander, then unlocked it, opened the rear hatch, and checked inside again.
 
-Will said, “What are you looking for?”
+Will said, "What are you looking for?"
 
-“Nothing.”
+"Nothing."
 
-“You found it?”
+"You found it?"
 
-Mike shut the hatch. It did not latch. He opened it and slammed it harder. This time it caught.
+Mike shut the hatch. It did not latch. He opened it and slammed it harder. This time it caught, a flat metallic sound that jumped under the bridge and came back once.
 
-Alex winced. “She likes it rough.”
+Alex winced. "She likes it rough."
 
-“She likes decisive closure,” Mike said.
+"She likes decisive closure," Mike said.
 
-Joel walked to the edge of the pullout. The river here was too narrow for their canoes to finish dramatically. They would come out tired, probably dirty, probably sick of one another, sliding through alder and road noise after seven days of water and portages. Then there would be the Highlander. A machine made ugly by usefulness. The key in Mike’s dry pouch. Dry clothes, maybe. A cooler if they had thought of one. The ordinary world restored by a bad suspension and old vinyl seats.
+Joel walked to the edge of the pullout. The river here was too narrow for their canoes to finish dramatically. If the plan held, they would come out tired, dirty, probably sick of one another, sliding through alder and road noise after seven days of water and portages. Then there would be the Highlander. A machine made ugly by usefulness. The key in Mike's dry pouch. Dry clothes, maybe. A cooler if they had thought of one. The ordinary world restored by bad suspension and old vinyl seats.
 
 Mike lifted his phone again.
 
-Will saw him. “Still?”
+Will saw him. "Still?"
 
-“One bar.”
+"One bar."
 
-“Congratulations.”
+"Congratulations."
 
-“Enough maybe for a text.”
+"Enough maybe for a text."
 
-“To who?” Alex asked.
+"To who?" Alex asked.
 
 Mike did not answer. He typed something, waited, then frowned.
 
-Joel said, “It go?”
+Joel said, "It go?"
 
-“No.”
+"No."
 
-“Who were you texting?”
+"Who were you texting?"
 
-“Just checking.”
+"Just checking."
 
-Will leaned against the truck. “You keep saying checking when you mean worrying.”
+Will leaned against the truck. "You keep saying checking when you mean worrying."
 
-“Worrying is checking before it has a task.”
+"Worrying is checking before it has a task."
 
-“That’s bleakly accurate.”
+"That's bleakly accurate."
 
-Mike stared at the phone another second, then shoved it into his pocket. “No service at the take-out. We knew that.”
+Mike stared at the phone another second, then shoved it into his pocket. "No service at the take-out. We knew that."
 
-“We knew spotty,” Will said.
+"We knew spotty," Will said.
 
-“No service is a species of spotty.”
+"No service is a species of spotty."
 
-Alex laughed, and the sound went under the bridge and came back thinner. Joel heard the first bark, then a second version of it under concrete, lower and farther away. It was not wrong. It was only separated from him, shaved down by water and concrete until it belonged for a second to the bridge instead of the man. Alex looked pleased with himself, as if he had done that on purpose.
+Alex laughed, and the sound went under the bridge and came back thinner. Joel heard the first bark, then a second version of it under concrete, lower and farther away. It was not wrong. It was only separated from him, shaved down by water and stone until it belonged for a second to the bridge instead of the man. Alex looked pleased with himself, as if he had done that on purpose.
 
-“Nice acoustics,” he said.
+"Nice acoustics," he said.
 
-Will walked down to the water and crouched, already looking for fish. “There’s current here.”
+Will walked down to the water and crouched, already looking for fish. "There's current here."
 
-“That is often a feature of rivers,” Mike said.
+"That is often a feature of rivers," Mike said.
 
-“I mean more than I expected.”
+"I mean more than I expected."
 
-“It’s the take-out. We don’t care until next week.”
+"It's the take-out. We don't care until next week."
 
 Joel looked upstream. Alder leaned over the banks. Beyond it, spruce closed the gaps. The fog had the flat look of breath held close to the ground. A raven called from somewhere behind them. Its voice was rough and ordinary and made all four men look up anyway.
 
-Mike checked his watch. “Let’s go. We’re losing the morning.”
+Mike checked his watch. Before he spoke, he cleared his throat, a small preparatory scrape Joel knew from maps spread on hoods and decisions other people were meant to accept. "Let's go. We're losing the morning."
 
-They left the Highlander in the gravel, backed Will’s truck around, and drove away.
+They left the Highlander in the gravel, backed Will's truck around, and drove away.
 
 For a while the empty fact of the staged vehicle sat in the cab with them. Joel looked back once through the rear window and saw the Highlander shrinking between the canoe hulls. Then the road bent, and it was gone.
 
-Alex said, “I hope it doesn’t get lonely.”
+Alex said, "I hope it doesn't get lonely."
 
-Will said, “It has Mike’s old sponge.”
+Will said, "It has Mike's old sponge."
 
-“Companionship comes in many forms.”
+"Companionship comes in many forms."
 
-Mike had given Will directions for the return to South Access before leaving the bridge, but Will still glanced at the GPS and the paper map when the road forked. He and Mike had argued the fork the night before. Joel remembered enough to know one way was shorter by distance and worse by surface. They took the longer road.
+Mike had given Will directions for the return to South Access before they left the bridge, but Will still glanced at the GPS and the paper map when the road forked. He and Mike had argued the fork the night before. Joel remembered enough to know one way was shorter by distance and worse by surface. They took the longer road.
 
-The farther south they went, the rougher the country became. Not higher exactly, but less arranged. Granite showed through the roadside. The ditches deepened. The trees leaned closer. Old logging spurs appeared and vanished, each marked by a gap and two ruts disappearing into brush.
+The farther south they went, the rougher the country became. Not higher exactly, but less arranged. Granite showed through the roadside. The ditches deepened. The trees leaned closer. Old logging spurs appeared and vanished, each marked by a gap and two ruts disappearing into brush. Human work here did not disappear all at once. It thinned, rotted, went seasonal, became something the trees allowed.
 
-Alex watched through the window. “This reminds me of roads outside Fairbanks, except with more deciduous optimism.”
+Alex watched through the window. "This reminds me of roads outside Fairbanks, except with more deciduous optimism."
 
-“Deciduous optimism?” Joel said.
+"Deciduous optimism?" Joel said.
 
-“Leaves. Seasonal delusion.”
+"Leaves. Seasonal delusion."
 
-Will nodded. “That one I like.”
+Will nodded. "That one I like."
 
-“Thank you.”
+"Thank you."
 
-“Don’t make a habit of it.”
+"Don't make a habit of it."
 
-The last road to South Access was barely two lanes and then not really one. Branches touched the truck cap. The canoes creaked against the racks. A strap made a short, low hum, then stopped when Will slowed for a hole full of black water.
+The last road to South Access was barely two lanes and then not really one. Branches touched the truck cap. The canoes creaked against the racks. A strap made a short, low hum, then stopped when Will slowed for a hole full of black water. Dry bags shifted under the cap and buckles clicked together once, dull and plastic.
 
-Mike, now in the back seat beside Alex, leaned forward. “Left here.”
+Mike, now in the back seat beside Alex, leaned forward. "Left here."
 
-“I know.”
+"I know," Will said.
 
-“You almost missed it.”
+"You almost missed it."
 
-“I did not almost miss it. I approached it with suspense.”
+"I did not almost miss it. I approached it with suspense."
 
-“That’s not a driving technique.”
+"That's not a driving technique."
 
-Alex said, “It is in Seattle.”
+Alex said, "It is in Seattle."
 
-“You drive a Civic,” Mike said.
+"You drive a Civic," Mike said.
 
-“I drive an old Civic. There’s heritage.”
+"I drive an old Civic. There's heritage."
 
-“You drove here in a plane.”
+"You flew here."
 
-“That also had heritage. And a crying baby.”
+"The plane also had heritage. And a crying baby."
 
 The old landing appeared without ceremony.
 
@@ -274,165 +276,167 @@ No other vehicles were there.
 
 Will parked facing out, because Mike told him to before he could do it himself. For a moment nobody moved. The truck engine ticked. Somewhere near the signboard, a mosquito whined against the glass.
 
-Then Mike opened his door. “All right.”
+Then Mike opened his door. "All right."
 
 The practical work took them.
 
-Packs came out first. Food barrel. Rod tubes. Paddles. PFDs. Rain gear. The spare tarp. Alex’s personal bag of edible beige things, which Mike placed in the wrong pile on purpose and Alex retrieved with dignity. Will checked his tackle bag and then checked it again. Mike took the map case from the front seat and set it on the hood.
+Packs came out first. Food barrel. Rod tubes. Paddles. PFDs. Rain gear. The spare tarp. Alex's personal bag of edible beige things, which Mike placed in the wrong pile on purpose and Alex retrieved with dignity. Will checked his tackle bag and then checked it again. Mike took the map case from the front seat and set it on the hood.
 
 Joel stood at the back of the truck and looked over the spread. The gear had been handled so many times already that it seemed less like preparation than rehearsal. Everything had a category. Things that needed to stay dry. Things that could get wet. Things needed at lunch. Things needed only if something went wrong. Things they had brought because last year someone had not brought them.
 
+Things that had not been brought had no category. That was the trick. No empty place on the mud for the satellite messenger. No missing weight in a pack. No visible hole in the plan. Only the fact of it, still small enough that nobody had to pick it up.
+
 Mike and Will argued over boat loading.
 
-“You and I should not be in the same canoe all day,” Will said.
+"You and I should not be in the same canoe all day," Will said.
 
-“Because of trim?” Alex asked.
+"Because of trim?" Alex asked.
 
-“Because of criminal law.”
+"Because of criminal law."
 
-Mike said, “Joel and I in back makes sense if we split up.”
+Mike said, "Joel and I in back makes sense if we split up."
 
-“You and Joel both in back of different boats,” Will said. “That’s what I’m saying.”
+"You and Joel both in back of different boats," Will said. "That's what I'm saying."
 
-“Alex up front with Joel,” Mike said. “You up front with me.”
+"Alex up front with Joel," Mike said. "You up front with me."
 
-Alex raised his hand. “Least skilled guy in front. Tradition honors me.”
+Alex raised his hand. "Least skilled guy in front. Tradition honors me."
 
-“You’re not least skilled,” Will said.
+"You're not least skilled," Will said.
 
 Alex looked touched.
 
-“You’re least skilled in a canoe,” Will added.
+"You're least skilled in a canoe," Will added.
 
-“There it is.”
+"There it is."
 
-Joel took a PFD from the pile. “I’m fine with Alex up front.”
+Joel took a PFD from the pile. "I'm fine with Alex up front."
 
-“Joel likes a challenge,” Alex said.
+"Joel likes a challenge," Alex said.
 
-“Joel likes being able to see the challenge.”
+"Joel likes being able to see the challenge."
 
-Mike pointed at Will. “You fish from the front if we get time.”
+Mike pointed at Will. "You fish from the front if we get time."
 
-“I fish from wherever God places me.”
+"I fish from wherever God places me."
 
-“You don’t believe in God.”
+"You don't believe in God."
 
-“I believe in structure.”
+"I believe in structure."
 
-“Then get in the front.”
+"Then get in the front."
 
 The canoes came down one at a time. Mike and Joel took the green one first. Will loosened the front strap while Mike handled the rear. Alex stood ready, then stood in the wrong place, then moved when everyone told him to. The buckle clicked against the roof rack.
 
 The hull shifted.
 
-“Wait,” Joel said. “Just wait.”
+"Wait," Joel said. "Just wait."
 
-Mike stopped. “What?”
+Mike stopped. "What?"
 
-“Block’s crooked.”
+"Block's crooked."
 
 Joel reached up and set the foam block straight under the gunwale before they slid the canoe down. It was a small thing, barely a problem. But if they had pulled hard it would have dropped the wrong way against the door frame, scraped paint, maybe cracked nothing, maybe cracked something, maybe only given Mike a grievance for the first three miles.
 
-“All right,” Joel said.
+"All right," Joel said.
 
-They lowered the canoe and carried it toward the landing. The hull was cold and damp in Joel’s hand. Mud sucked at the soles of his shoes as they reached the water. The lake moved softly against stone, dark and almost without wave.
+They lowered the canoe and carried it toward the landing. The hull was cold and damp in Joel's hand. Mud sucked at the soles of his hiking sandals as they reached the water. The lake moved softly against stone, dark and almost without wave.
 
-Alex watched them set it down. “Ninety-dollar mistake avoided.”
+Alex watched them set it down. "Ninety-dollar mistake avoided."
 
-Mike said, “It would not have been ninety dollars.”
+Mike said, "It would not have been ninety dollars."
 
-“You don’t know that. Spiritually.”
+"You don't know that. Spiritually."
 
-The second canoe came down easier. They laid both near the water and began loading. Heavy packs low. Food barrel near the middle of Mike and Will’s boat because they argued over front and back weight until Joel suggested middle and both accepted it as if they had invented compromise. Rods along the side where Will could reach them if they stopped. Rain gear near the top. First-aid kit in the red bag. Spare paddle lashed. Bear spray clipped where Alex could not bury it in a duffel.
+The second canoe came down easier. They laid both near the water and began loading. Heavy packs low. Food barrel near the middle of Mike and Will's boat because they argued over front and back weight until Joel suggested middle and both accepted it as if they had invented compromise. Rods along the side where Will could reach them if they stopped. Rain gear near the top. First-aid kit in the red bag. Spare paddle lashed. Bear spray clipped where Alex could not bury it in a duffel.
 
-“No,” Mike said, moving the spray.
+"No," Mike said, moving the spray.
 
-“I had it,” Alex said.
+"I had it," Alex said.
 
-“You had it clipped to the grab loop of a bag that will be under a pack.”
+"You had it clipped to the grab loop of a bag that will be under a pack."
 
-“Still technically had it.”
+"Still technically had it."
 
-“Quit making me mother you.”
+"Quit making me mother you."
 
-“Never.”
+"Never."
 
 Will snapped the food barrel latch shut. The sound was clean and small in the clearing.
 
 Mike looked at the map one more time, though the first leg was not complicated. Narrow lake, north shore, left into the channel after the rock point, short portage. He traced it with his finger. Will looked with him, not because he needed to but because not looking would concede something.
 
-“It opens up after this,” Mike said, tapping the tight blue thread of water. “Once we’re past the first squeeze.”
+"It opens up after this," Mike said, tapping the tight blue thread of water. "Once we're past the first squeeze."
 
-“That sounds like a thing the squeeze says,” Alex said.
+"That sounds like a thing the squeeze says," Alex said.
 
-Mike did not look up. “The squeeze doesn’t get a vote.”
+Mike did not look up. "The squeeze doesn't get a vote."
 
-Joel looked past Mike’s finger to the lake. On paper the first water was a shape that could be mastered by folding. In front of them it had no border except shore and no explanation except what the trees allowed them to see.
+Joel looked past Mike's finger to the lake. On paper the first water was a shape that could be mastered by folding. In front of them it had no border except shore and no explanation except what the trees allowed them to see.
 
 Joel checked his own boat. He would sit in back. Alex in front. That was fine. Alex might paddle lazily once conversation started, but he had strength and would admit when he did not know what he was doing. Joel could work with that. Better than a man who guessed and called it instinct.
 
 The bugs thickened as the sun warmed the brush. Mosquitoes came from the shaded ditch. Blackflies found wrists and the backs of ears. Alex slapped his neck.
 
-“Jesus. They filed paperwork.”
+"Jesus. They filed paperwork."
 
-“Could be worse,” Mike said.
+"Could be worse," Mike said.
 
-Will looked up. “That’s going on your tombstone.”
+Will looked up. "That's going on your tombstone."
 
-“It will still be true.”
+"It will still be true."
 
-Alex put on his PFD and tugged at the straps. “How tight is too tight?”
+Alex put on his PFD and tugged at the straps. "How tight is too tight?"
 
-“If you can breathe, you’re fine,” Mike said.
+"If you can breathe, you're fine," Mike said.
 
-“That’s your whole safety talk?”
+"That's your whole safety talk?"
 
-“You want a pamphlet?”
+"You want a pamphlet?"
 
-Joel stepped closer and pulled the lower strap on Alex’s vest until it sat right.
+Joel stepped closer and pulled the lower strap on Alex's vest until it sat right.
 
-Alex looked down. “See? Gentle instruction. Joel understands leadership.”
+Alex looked down. "See? Gentle instruction. Joel understands leadership."
 
-Joel said, “I understand I’m sitting behind you and don’t want to watch you fall out.”
+Joel said, "I understand I'm sitting behind you and don't want to watch you fall out."
 
-“Quit mothering me.”
+"Quit mothering me."
 
-“Then stop needing it.”
+"Then stop needing it."
 
 Will made the cough-laugh again and turned away to hide it badly.
 
-By ten-twenty the truck was locked, the key sealed in a small dry pouch in Will’s pack, and the boats sat half in water. The Highlander key rode in Mike’s pouch, clipped down and checked twice. Mike stood at the edge of the landing with the map case under one arm and his paddle in the other hand. The old signboard leaned behind him. The road they had come in on already looked less like an exit than a scar that might heal over.
+By ten-twenty the truck was locked, the key sealed in a small dry pouch in Will's pack, and the boats sat half in water. The Highlander key rode in Mike's pouch, clipped down and checked twice. Mike stood at the edge of the landing with the map case under one arm and his paddle in the other hand. The old signboard leaned behind him. The road they had come in on already looked less like an exit than a scar that might heal over.
 
-Mike looked at the boats, the packs, the men.
+Mike looked at the boats, the packs, the men. He cleared his throat again.
 
-“We’re exactly where we ought to be,” he said.
+"We're exactly where we ought to be," he said.
 
-Alex groaned. “You’re going to have that printed on something.”
+Alex groaned. "You're going to have that printed on something."
 
-“Maybe your memorial shirt.”
+"Maybe your memorial shirt."
 
-“Bland colors only. Sensitive palate.”
+"Bland colors only. Sensitive palate."
 
-Will stepped into the front of Mike’s canoe first, careful but not graceful, one hand on each side. The boat rocked and steadied. He placed his rod where he could see it.
+Will stepped into the front of Mike's canoe first, careful but not graceful, one hand on each side. The boat rocked and steadied. He placed his rod where he could see it.
 
 Mike got in back and settled with one small shift that made the canoe behave. He did not talk while doing it. His body knew the correction before his mouth could improve it.
 
 Joel held the second canoe steady while Alex stepped into the front.
 
-“Middle,” Joel said.
+"Middle," Joel said.
 
-“I know.”
+"I know."
 
-“Low.”
+"Low."
 
-“I know.”
+"I know."
 
-“You’re standing high.”
+"You're standing high."
 
-“I am built high.”
+"I am built high."
 
-“Sit down.”
+"Sit down."
 
 Alex sat. The canoe rocked once, then settled. Joel stepped into the back, placed his feet, and lowered himself onto the seat. Damp cold came through his pants. He took the paddle and set the blade flat on the water.
 
@@ -440,27 +444,27 @@ For a moment they floated half a canoe length from shore while Mike adjusted som
 
 Joel looked back.
 
-Will’s truck sat alone in the muddy clearing. The old landing showed their boot prints and the two grooves where the canoes had slid. The signboard had nothing to tell them. The road disappeared into spruce and alder so quickly that it seemed improbable a truck had come through it at all. Already the place was changing back from departure to evidence.
+Will's truck sat alone in the muddy clearing. The old landing showed their boot prints and the two grooves where the canoes had slid. The signboard had nothing to tell them. The road disappeared into spruce and alder so quickly that it seemed improbable a truck had come through it at all. Already the place was changing back from departure to evidence.
 
-A paddle knocked once against Will’s gunwale.
+A paddle knocked once against Will's gunwale.
 
-“Sorry,” Will said.
+"Sorry," Will said.
 
-“Try water,” Mike said.
+"Try water," Mike said.
 
-“I was checking acoustic properties.”
+"I was checking acoustic properties."
 
-Alex dipped his paddle too hard and splashed Joel’s boot.
+Alex dipped his paddle too hard and splashed Joel's boot.
 
-“Testing splash properties.”
+"Testing splash properties."
 
 Joel pushed them off with one stroke. Gravel whispered under the hull and then was gone. The water deepened from brown to black-green beneath them. A loon called somewhere ahead, long and hollow, widening over the narrow lake until the sound seemed to belong to the water more than the bird.
 
 No one spoke for a few minutes.
 
-This was always the best part. The first silence after all the planning and argument and straps. Paddle in. Pull. Lift. Drip. The canoe sliding forward with a grace men did not deserve and could not keep long. Spruce leaned over the shore. Granite showed in pale shelves at the waterline. Fog lifted in torn strips, and the sun turned the upper branches gold while the trunks stayed black.
+This was always the best part. The first silence after planning and argument and straps. Paddle in. Pull. Lift. Drip. The canoe sliding forward with a grace men did not deserve and could not keep long. Spruce leaned over the shore. Granite showed in pale shelves at the waterline. Fog lifted in torn strips, and the sun turned the upper branches gold while the trunks stayed black.
 
-Joel felt Alex’s first few strokes strong and uneven in the front. Will and Mike moved ahead, their canoe tracking cleaner. Will turned his head once toward a ring on the surface near shore, already thinking fish. Mike corrected their angle with two quiet strokes from the back.
+Joel felt Alex's first few strokes, strong and uneven in the front. Will and Mike moved ahead, their canoe tracking cleaner. Will turned his head once toward a ring on the surface near shore, already thinking fish. Mike corrected their angle with two quiet strokes from the back.
 
 Joel matched them and let the old rhythm find his shoulders.
 

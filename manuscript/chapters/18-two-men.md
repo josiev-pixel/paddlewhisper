@@ -8,9 +8,9 @@ Joel and Will sat with their backs to the least rotten wall and their feet brace
 
 Neither slept.
 
-Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain, and Joel's body returned all at once to the cabin, to the floor, to the key zipped in his jacket pocket.
+Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain, and Joel's body returned all at once to the cabin, to the floor, to the weight zipped against his chest.
 
-The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. He had wanted the key so badly that needing it had felt like betrayal. Now that he had it, it seemed less like rescue than evidence.
+The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted the key so badly that needing it had felt like betrayal. Now that he had it, it seemed less like rescue than evidence.
 
 Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. He had stopped crying after the light went completely, or at least stopped making visible signs of it. Sometimes his shoulders moved once, and Joel knew not to count it.
 
@@ -34,7 +34,7 @@ The voice did not come again for a long time.
 
 Long enough for the cabin to rebuild itself into ordinary misery. Wet wood. Mouse stink. Old ash in the stove they could not trust. The sour pepper of bear spray still trapped in their clothes from the clearing. Rain ticking through roof gaps and making little black circles in the dust. Joel's legs ached from holding the table in place. His left foot had fallen asleep and then come back wrong, bright with needles. Hunger came in dull waves and withdrew when fear rose.
 
-He made himself inventory without moving.
+He made himself inventory without moving, because counting was quieter than prayer and more useful than grief.
 
 Two men.
 
@@ -43,6 +43,10 @@ One key.
 One hatchet.
 
 No useful bear spray in the cabin. Mike's canister was gone with him. Any other canister was back with the cached gear or already spent into alder miles ago. One usable headlamp and Will's dim one with the battery already suspect. One notebook, damp at the lower edge. One pencil shortened and cracked, one pen that worked only if held at an angle. Food divided among packs. Wet socks. Damp sleeping bags. A cracked but repaired canoe at the cache. A better canoe hidden near it. Two paddles there, maybe three if nothing had shifted. One route that no longer had Mike inside it.
+
+Two mouths.
+
+That was part of the inventory too, though Joel did not write it yet. Two men meant two bodies and two witnesses. It also meant two remaining supplies of sound.
 
 The count was a form of superstition. It did not save anything. But it held the night in objects, and objects could still be looked at.
 
@@ -61,6 +65,8 @@ Joel held up the notebook.
 NO ANSWER.
 
 Will stared at the two words. His eyes were wet again, but he did not look away from the page.
+
+The page did what Joel needed it to do and failed at everything else. It removed tone. It removed Mike's stolen steadiness, Will's tremor, Joel's own urge to make an order sound like care. It left marks that could be pointed at, obeyed, hated.
 
 After a while he took the pencil with his bad hand. The grip hurt him; Joel saw it in the whitening around his mouth. Will wrote beneath Joel's line:
 
@@ -85,6 +91,16 @@ He took the pencil back.
 BODY IN SIGHT. SOURCE CONFIRMED.
 
 Will read it and shut his eyes.
+
+Then he opened them and wrote, slower than before:
+
+YOU'RE MAKING RULES LIKE HIM.
+
+Joel looked at the sentence until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered.
+
+He wrote:
+
+I KNOW.
 
 Outside, something scraped the cabin wall.
 
@@ -344,7 +360,21 @@ WE CHOOSE DIRECTION BY SIGHT.
 
 Will breathed through his nose. Once. Twice.
 
-Then he wrote:
+He took the pencil back and wrote:
+
+THIS IS STILL YOU CHOOSING.
+
+Joel almost crossed it out. The anger in him rose fast because it had nowhere else to go. There was no fair way to divide command now. Mike had died trying to lead. Will could barely close his injured hand around the pencil. Joel had the key. Someone had to point the next hour in a direction, and pointing looked like power even when it was only fear with a task attached.
+
+He wrote:
+
+YES.
+
+Then, because the word was too bare:
+
+CHECK ME.
+
+Will read that, then wrote:
 
 HOW DO WE KNOW IT ONLY USES WHAT IT HEARD?
 
@@ -369,6 +399,18 @@ Joel looked toward the door.
 No echo answered.
 
 That felt like luck, which meant it was not a thing to trust.
+
+While Will cinched the top of his pack, a strap creaked from the other side of the door.
+
+Both men stopped.
+
+The packs were in front of them. Will's was open between his knees. Joel's leaned against the stove with one shoulder strap twisted outward. Mike's remaining pack sat by the wall, flattened where they had taken the repair kit and food. Nothing outside should have had nylon under load. Nothing outside should have made the small complaint of webbing pulled through a buckle by a tired hand.
+
+Joel waited for a voice to follow it.
+
+No voice came.
+
+That was worse in its way. The thing did not need Mike for every order. It could use work. It could use the sound of men getting ready to leave.
 
 They finished packing.
 
