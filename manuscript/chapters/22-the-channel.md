@@ -10,7 +10,7 @@ He lifted his hand slowly. The shortened painter ran from his wrist to the drift
 
 For a while Joel did nothing but look at it.
 
-The boat had not moved. That was fact. The rope had not been cut. The knot had not slipped. The food barrel stood under the tarp between them, black ring closed. Will was visible. Joel was visible to himself in pieces: hand, sleeve, wet pant leg stiff with cold, the dark crescents under his nails from mud he had stopped noticing.
+The boat had not moved. The rope had not been cut. The knot had not slipped. The food barrel stood under the tarp between them, black ring closed. Will was visible. Joel was visible to himself in pieces: hand, sleeve, wet pant leg stiff with cold, the dark crescents under his nails from mud he had stopped noticing. The painter had bitten a shallow red groove around his wrist. It looked less like proof than a warning left by proof.
 
 He pressed two fingers to the inside of his jacket and felt the hard nub of the Highlander key without opening the zipper.
 
@@ -74,7 +74,7 @@ The worst part was that work still required trust.
 
 Joel had to turn his back while Will lifted the hatchet and stowed it by his knee. Will had to look away while Joel checked the key by pressing two fingers to the inside of his jacket and not opening the zipper. They had to allow one another small unobserved movements. The rules demanded sight, but no human task could survive total sight. You could not pack a boat, tie a knot, take a piss, rewrap a wound, or sleep with another man's eyes fixed on you forever.
 
-Proof had a cost. By morning, both of them were already in debt.
+By morning, both of them were already in debt to what they could not verify.
 
 At the water's edge, Will held up one finger and pointed to his hand.
 
@@ -100,7 +100,7 @@ The channel ahead bent through alder so tight the canoe entered it like a though
 
 Joel sat in back, paddle ready across his knees more often than in the water. Will sat in front, shoulders rounded, his good hand doing too much. The food barrel pressed between them. The tarp, wet sleeping bags, stove, filter, first-aid kit, map case, Mike's repair kit, hatchet, spare paddle, blue dry bag, and the last useful pieces of the trip all rode low inside the hull.
 
-The canoe moved with the burdened reluctance of something that had been asked to become shelter, road, witness, and coffin all at once.
+The canoe moved with the burdened reluctance of something asked to do too much for two cold men and a route that kept narrowing.
 
 The blue bag stayed under the front seat, wedged where it had ridden since the cache. Joel had no use for it yet except as a fact. Blue. Front. Under. A child's description of an object, plain enough that fear could not dress it up.
 
@@ -220,7 +220,9 @@ Will's eyes widened.
 
 Joel shook his head and kept them moving.
 
-He could feel the shape of Will's thought forming ahead of him. Boat sounds at boat moments. Voices at decision moments. Mike at movement, Alex at hesitation, Will at questions. Maybe that was understanding. Maybe it was only proximity and repetition. Maybe those two things were close enough to kill them.
+He could feel the shape of Will's thought forming ahead of him. Boat sounds at boat moments. Voices at decision moments. Mike at movement, Alex at hesitation, Will at questions. Not random, Will would write if Joel let him. Not mindless. Joel could feel the pencil already in Will's hand before Will reached for it.
+
+Maybe it was understanding. Maybe it was only proximity and repetition. Maybe those two things were close enough to kill them.
 
 At the next shallow they had to get out again.
 
@@ -358,6 +360,12 @@ Will did not like it. He nodded anyway.
 
 That was the agreement now: not trust, not consent, only two men choosing the same bad thing because choosing separate bad things was death.
 
+From the left channel, the blind one, came a faint dry scratch.
+
+Not a voice. Not a knock. The tiny scrape of pencil against wet paper, or a twig worrying bark, or a claw on a hollow stem. It lasted less than a second. Will heard it too. Joel saw the knowledge cross his face before either man moved.
+
+Joel closed the notebook.
+
 The middle run scraped them twice and almost pinned them once. Joel had to get out and ease the back around a stone while Will held the painter from the front. Water climbed over Joel's knees. His legs went numb in patches. The canoe made a thin shriek against rock that seemed to travel downstream and wait there for them.
 
 At the end of the run, Mike cleared his throat from the left channel they had not taken.
@@ -392,7 +400,7 @@ The woods had not only stolen Mike's voice. It had found the part of Mike that s
 
 He wanted to write, I know.
 
-He wrote nothing.
+He wrote nothing. The pencil already made too much of him.
 
 They went on.
 
@@ -612,7 +620,7 @@ The entity could not read minds. They believed that. It could mimic sounds it ha
 
 None of that proved the page was private.
 
-The thing did not have to read the words to learn the posture around them: the two bodies bent over one object, the long pause after a question, the way Will's anger steadied when the pencil was in his good hand.
+The thing did not have to read the words to learn the posture around them: the two bodies bent over one object, the long pause after a question, the way Will's anger steadied when the pencil was in his good hand. The scratch from the left channel returned to Joel now. Twig or pencil. Animal or answer. Nothing he could use, nothing he could dismiss.
 
 Joel wrote:
 

@@ -12,6 +12,8 @@ But the headlamp did not turn fully back toward camp.
 
 It held low and slightly right, aimed into the dark beyond the place where Alex stood. The light touched alder leaves, moved over them, and stopped on nothing Joel could see.
 
+A sound came back from beyond him. Not a word, not quite. A wet little click in the throat of the channel, almost the shape of Alex's What if a person wanted badly enough to give it one. Joel held still until it became water again.
+
 "Alex?" Joel said.
 
 His voice went into the little camp and nothing answered.
@@ -42,9 +44,11 @@ Alex's beam jerked left.
 
 "What the hell," Alex said.
 
+He took one step farther from camp. Not a run. Not panic. The small offended step of a man going to prove the thing was nothing before anyone could make a rule about it.
+
 Brush moved.
 
-At first the sound was small enough to stay ordinary. A branch scraping another branch. A foot in wet grass. Something pushing through alder with less care than a person and more care than wind. Then the brush gave way in a heavy rush, not from one point but along a short line of darkness. Leaves flashed silver in Alex's lamp. Stems bent, snapped back, bent again, and the beam found no animal large enough to explain them.
+At first the sound was small enough to stay ordinary. A branch scraping another branch. A foot in wet grass. Something pushing through alder with less care than a person and more care than wind. Then the brush gave way in a heavy rush, not from one point but along a short line of darkness. Leaves flashed silver in Alex's lamp. Stems bent, snapped back, bent again, and the beam found no animal large enough to explain them, only movement already finished by the time light arrived.
 
 Alex shouted once. Not a word. A raw, insulted burst of air.
 
@@ -158,7 +162,7 @@ Will tried to go around him. Mike caught him by the front of his PFD and shoved 
 
 "And whatever did it might also be right there."
 
-The sentence entered the brush and made a shape of the dark around them. Joel lifted the paddle with both hands. He did not know what he intended to do with it. Hit a bear. Hit the air. Prove he had hands.
+The sentence entered the brush and made a shape of the dark around them. Joel lifted the paddle with both hands. He did not know what he intended to do with it. Hit a bear. Hit the air. Give his hands a task.
 
 His eyes kept returning to Alex's hand. It had mud in the lines of the palm. One fingernail was torn back. The hand looked separate from the violence because it was still shaped like Alex: broad, careless, capable, the hand that had slapped mosquitoes off his calf and held the filter hose badly and stirred peanut butter noodles with religious seriousness. Joel had spent whole stretches of the day annoyed by the man attached to it. He had measured Alex in performances, in bids for attention, in jokes that asked too much from a tired room. Now the hand lay open and all of Joel's measurements became obscene.
 
@@ -210,7 +214,7 @@ It fit in places. Violence. Strength. Blood. Mud. The smashed alder. The speed o
 
 It did not fit everywhere.
 
-The food barrel was back at camp, still hanging. Alex had been standing. His spray had not been fired. There had been no bawl, no roar, no warning huff, no heavy retreat through brush after Mike came at it with lights. Nothing had gone for the barrel or the trash or the cooking pots. The ground near Alex showed confusion but not the certainty of a large animal leaving. Maybe the mud did not keep prints. Maybe the alder hid movement. Maybe Joel knew too little to know what he was seeing. Fear was not expertise.
+The food barrel was back at camp, still hanging. Alex had been standing. His spray had not been fired. There had been no bawl, no roar, no warning huff, no heavy retreat through brush after Mike came at it with lights. Nothing had gone for the barrel or the trash or the cooking pots. The ground near Alex showed confusion but not the certainty of a large animal leaving. Maybe the mud did not keep prints. Maybe the alder hid movement. Maybe bears did not announce themselves according to the limited theater men had built for them. Maybe Joel knew too little to know what he was seeing. Fear was not expertise.
 
 He did not say the other thing, because it had no useful place in a bear attack: Alex had turned before the rush. Alex had answered something.
 
@@ -412,7 +416,7 @@ He did it facing slightly away from them, as if the old embarrassment still matt
 
 Mike did not answer.
 
-"Because of course nothing," Will said. "Because why would we have the one piece of equipment that solves this."
+"Because of course nothing," Will said. "Because why would we have the one piece of equipment that solves this. A beacon. A messenger. One stupid red button."
 
 "Will."
 
@@ -538,7 +542,7 @@ Will began talking again near what might have been midnight.
 
 Not loudly. Not even to them at first. He listed facts under his breath, the way he might list gear before a portage, trying to make sequence stand in for sense.
 
-"Bad food hang. Marsh camp. Dusk movement. He stepped away. We heard brush. Spray cloud. Body ten yards out. Bear country. This is bear country."
+"Bad food hang. Marsh camp. Dusk movement. He stepped away. We heard brush. Spray cloud. Body ten yards out. His spray still safetied. Bear country. This is bear country."
 
 Mike said, "Stop."
 

@@ -8,7 +8,7 @@ Joel paddled from the back and let Alex set whatever rhythm he could manage in f
 
 Alex was strong. That helped. He was also uneven, which did not. He would paddle hard for thirty strokes, shoulders and back doing more than skill required, then look off toward a bird or snag or some imagined thing in the trees and let the blade rest on the gunwale until the canoe began to yaw. Joel corrected without saying much. A quiet draw. A little push on the left. A stroke held longer than it needed. The boat came back.
 
-That was the arrangement in more than the canoe. Alex made weather in front of him, and Joel corrected from behind. He had been doing some version of it for years now: letting louder men fill the air, then trimming the consequence. He did not hate Alex for it. That would have been cleaner. He liked him in pieces and resented him in waves, which was the less useful shape for friendship.
+That was the arrangement outside the canoe too. Alex made weather in front of him, and Joel corrected from behind. He had been doing some version of it for years: letting louder men fill the air, then trimming the consequence. Mara had called this useful once, and evasive the next time, and both times she had been right enough to irritate him. He did not hate Alex for needing an audience. That would have been cleaner. He liked him in pieces and resented him in waves, which was the less useful shape for friendship.
 
 After ten minutes Alex glanced over his shoulder.
 
@@ -100,9 +100,9 @@ Joel dipped his paddle. "Waiting for you to remember yours."
 
 Alex laughed and paddled. The canoe straightened.
 
-For the first hour Joel felt the old pleasure return in the muscles before it reached the mind. The pull of the blade. The little shift of weight in the hips. The corrected angle. The canoe sliding as if the effort were being translated into something cleaner than effort. In Madison, his days had become too square. Rooms, screens, calendar blocks, errands fitted between calls, wedding decisions that seemed small until there were fifty of them. Here the work was dumb and whole. Push water. Move north. Avoid rock. Keep gear dry. Watch weather. Eat when possible.
+For the first hour Joel felt the old pleasure return in the muscles before it reached the mind. The pull of the blade. The little shift of weight in the hips. The corrected angle. The canoe sliding as if effort were being translated into something cleaner than effort. In Madison, his days had become too square. Rooms, screens, calendar blocks, errands fitted between calls, wedding decisions that seemed small until there were fifty of them. Mara had been kind about his usefulness and less kind about his silences. She wanted a date, a guest list, a house that did not keep accumulating boxes in the second bedroom. Here the work was dumb and whole. Push water. Move north. Avoid rock. Keep gear dry. Watch weather. Eat when possible.
 
-That was why he came. Or part of why. The rest was harder to name and therefore easier to ignore. The trip let the old group exist in the tense it understood. Present work. Present weather. Present jokes. A man could become useful without saying what ordinary life had made of him.
+That was why he came. Or part of why. The rest was harder to name and therefore easier to ignore. The trip let the old group exist in the tense it understood. Present work. Present weather. Present jokes. A man could become useful without saying what ordinary life had made of him, or what he had failed to make of ordinary life.
 
 Mike raised his paddle ahead and pointed left.
 
@@ -292,7 +292,7 @@ Joel smiled faintly. "That's your job."
 
 They moved on.
 
-He expected the sound to come again. It did not. That should have settled it. One sound was not a pattern. One sound in the woods was nothing unless a person decided to build a little house around it and live there.
+He expected the sound to come again. It did not. That should have settled it. One sound was not a pattern. In the woods, a single knock had more possible bodies than a man could count before the trail asked for his feet again.
 
 At the far end, the portage dropped to a second landing, better than the first. Flat rock sloped into a narrower piece of water that ran north between alder and low marsh. The lake they had crossed was behind them now. Ahead, the route tightened into something that might be called a creek if no one wanted to sound grand.
 
@@ -316,7 +316,7 @@ At the first landing, the two canoes lay where they had left them, half-hidden i
 
 Joel looked at it longer than necessary.
 
-There was the sound. Rope. Water. Boat shifting. The answer was so available that it seemed almost rude not to accept it.
+There was the sound. Rope. Water. Boat shifting. A small hard tap, light enough to travel farther than it deserved. The answer was so available that it seemed almost rude not to accept it.
 
 Mike took the first canoe with Will. They lifted it, rolled it up, and set the center yoke on Will's shoulders. Will adjusted under the weight and took a few testing steps.
 
@@ -384,7 +384,7 @@ Alex waited until the trail widened by a foot, then reached up and lifted the fr
 
 At the far landing they set the boats down and loaded again. This took longer than unloading because the order now mattered. Will's fishing rods had to be accessible without becoming spears. Alex's food could not be buried under the first-aid kit because he claimed low blood sugar made him philosophical. Rain gear near the top. Map case where Mike could reach it from the back. Joel's day bag behind his seat. Spare paddle along the left side.
 
-Mike crouched by his canoe and pressed the Highlander key pouch inside his PFD as if the key might have become wet through suspicion alone. Joel saw the gesture and then looked away. The key belonged to another day, and another shore. Thinking of it here made the present route feel thinner, as if the whole week were a line stretched between two locked vehicles.
+Mike crouched by his canoe and pressed the Highlander key pouch inside the left side of his PFD as if the key might have become wet through suspicion alone. Joel saw the gesture and then looked away. The key belonged to another day, and another shore. Thinking of it here made the present route feel thinner, as if the whole week were a line stretched between two locked vehicles.
 
 They pushed off into the narrow water just before noon.
 
@@ -499,6 +499,8 @@ Will did not look back. "I can hear you."
 "You're five-nine."
 
 "Five-ten with purpose."
+
+The reel ticked under Will's thumb. Line whispered through the guides. The lure hit the current with a small bright plink and vanished as if the water had closed over a coin.
 
 Alex took a bite of tuna in a tortilla and made a face.
 

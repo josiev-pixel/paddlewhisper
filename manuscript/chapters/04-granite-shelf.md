@@ -72,9 +72,9 @@ Alex dragged a pack onto the rock. "Is this where I ask if we can sit down?"
 
 Joel lifted his day bag and set it near the first flat place above the landing. The campsite was better than he expected. A granite shelf with enough dirt pockets for tents, two good trees back from the fire ring, a pair of red pines on the water side, and a rough bench made from a log dragged against stone. Someone had left a ring of blackened rocks and a half-burned split log. A faint trail led back into spruce where previous campers had gone for latrine privacy or firewood or both. Small limbs had been cut and stacked under a rock overhang. Old, damp, probably smoky, but wood.
 
-There were signs of people and not much else. A twist of blue cord tied to a branch. A square of foil half-buried in ash. Boot prints softened by rain and time. One rusted bottle cap wedged in a crack. Human presence looked different out here. It did not claim the place. It left little failures behind and asked the next men to call them proof.
+There were signs of people and not much else. A twist of blue cord tied to a branch. A square of foil half-buried in ash. Boot prints softened by rain and time. One rusted bottle cap wedged in a crack. Out here, human presence did not claim a place. It left little failures behind and asked the next men to call them proof.
 
-Joel had always found comfort in that, which seemed foolish when named. The ring of stones. The hacked branch. The scrap of cord another party had abandoned because it was too short to be useful and too useful, at the moment, to throw away properly. A person had stood here cold or hungry or damp and had made the same small arrangements. The place had accepted them without keeping faith. Still, the arrangements remained.
+Joel had always found comfort in that, which seemed foolish when named. The ring of stones. The hacked branch. The scrap of cord another party had abandoned because it was too short to be useful and too useful, at the moment, to throw away properly. Someone had stood here cold or hungry or damp and had made the same small arrangements. The place had accepted them without keeping faith. Still, the arrangements remained.
 
 "Not bad," Will said.
 
@@ -139,6 +139,8 @@ Will looked over. "That was mine."
 "You left it unattended."
 
 Joel clipped the carabiner and pulled the suspension through. The webbing made a dry scrape against bark.
+
+At home, this kind of system annoyed Mara if he talked about it too long. She liked competence fine. What she disliked was the small private satisfaction he took in having one more way not to need a room, a bed, a decision made with another person. Joel had argued that a hammock was only a hammock, and even while saying it had known he was lying by scale, not by kind.
 
 Mike shook his head. "Ground exists for a reason."
 
@@ -398,7 +400,7 @@ Joel waited for Will to answer. Will did not.
 
 The fire settled, and one piece of pine clicked as sap heated inside it.
 
-Alex rescued the evening because that was one of his uses.
+Alex leaned forward before the silence hardened.
 
 "Speaking as a man who voluntarily packed powdered eggs after the Incident," he said, "I have known the valley of suffering."
 
@@ -568,12 +570,12 @@ He waited.
 
 Nothing followed. No voice. No footstep. No second knock. Only the lake moving lightly below the granite and the wind worrying the top of one pine.
 
-He pictured the canoes pulled high, angled on rock, paddles tucked beneath them, painter rope loose enough to touch. Wind could do it. Cooling hull could do it. Water lifting a branch could do it. There were a dozen ways for the night to make one ordinary sound, and only one way for a tired man to ruin sleep by making it important.
+He could not see the shoreline from the hammock. The tarp edge cut off the canoes and the darker slope below them, so every explanation had to be assembled from memory. He pictured the boats pulled high, angled on rock, paddles tucked beneath them, painter rope loose enough to touch. Wind could do it. Cooling hull could do it. Water lifting a branch could do it. There were a dozen ways for the night to make one ordinary sound, and only one way for a tired man to ruin sleep by making it important.
 
 From the tent, Will breathed in and out. The dry catch came again, and then the cleaner breath after it.
 
 Joel rolled slightly in the hammock, careful not to shift too hard and make the straps talk, and closed his eyes again. He did not sit up. If he sat up, the sound became an event. If he stayed still, it could remain a branch.
 
-The camp held. The lake held. The dark kept its own counsel.
+The camp did not answer. Below it, the lake kept working lightly at the stone.
 
 After a while, Joel slept.

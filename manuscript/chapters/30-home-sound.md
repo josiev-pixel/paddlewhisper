@@ -2,11 +2,13 @@
 
 Home had too many sounds.
 
-The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone waking and going dark on the table. His fiancee breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
+The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone waking and going dark on the table. Mara breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
 
 Joel did not sleep much.
 
-In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. His fiancee would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. She had taken the clock off the dresser after the second night because its motor worried him; she had put it in the linen closet and then hated herself for doing it, as if the house had begun to take orders from his damage. He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge.
+In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. Mara would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. She had taken the clock off the dresser after the second night because its motor worried him; she had put it in the linen closet and then hated herself for doing it, as if the house had begun to take orders from his damage. Before the trip she had slept through sirens, thunder, the garbage truck taking the alley too fast. Now she woke when he woke, or pretended not to, granting him the privacy of not being watched while she watched him anyway.
+
+He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge.
 
 Then the house would click.
 
@@ -20,7 +22,7 @@ Source, then sound.
 
 It helped until it did not.
 
-On the fourth night home, she called to him from the laundry room and he did not answer.
+On the fourth night home, Mara called to him from the laundry room and he did not answer.
 
 At first she thought he had not heard. She came to the kitchen doorway with a wet towel in one hand and stopped when she saw him standing at the sink, both palms braced on the counter, head turned toward her voice and not toward her body.
 
@@ -38,7 +40,7 @@ He wanted to apologize. The word seemed useless and also necessary.
 
 "No," she said. "You don't yet."
 
-After that she did come to doorways. She also slammed a cabinet once on purpose, not hard, just enough to remind the house that it was hers too. Joel flinched. She did not apologize for the cabinet. He was grateful later and angry in the moment and knew both things were fair.
+After that she did come to doorways. She also slammed a cabinet once on purpose, not hard, just enough to remind the house that it was hers too. Joel flinched. Mara did not apologize for the cabinet. He was grateful later and angry in the moment and knew both things were fair.
 
 People wanted language from him.
 
@@ -82,7 +84,9 @@ Joel stopped reading.
 
 He did not stop being read.
 
-His fiancee read longer than he did. Not the comments, she told him, and not the amateur maps people posted with red circles and arrows, but the agency updates, the corrections, the names spelled wrong and then fixed. She did not report these things to him unless he asked. He almost never asked. Sometimes she shut the laptop with both hands as if closing a box that had begun to leak.
+Mara read longer than he did. Not the comments, she told him, and not the amateur maps people posted with red circles and arrows, but the agency updates, the corrections, the names spelled wrong and then fixed. She did not report these things to him unless he asked. He almost never asked. Sometimes she shut the laptop with both hands as if closing a box that had begun to leak.
+
+She had always been better than he was at the civic machinery of things: forms, minutes, revised agendas, the quiet violence of getting ten adults to agree on a date. Before the route, that competence had embarrassed him when it turned toward the wedding. Afterward it kept the house from dissolving into unopened envelopes and messages he could not return. She did not make a virtue of it. She printed what needed printing, called who needed calling, then went to the porch and breathed through her mouth where he would not have to see her cry.
 
 Families called.
 
@@ -96,7 +100,7 @@ The answer came too fast. It had been trained into him by phones, by childhood, 
 
 She asked whether Will had been afraid.
 
-Joel stood in his kitchen in clean socks, one hand on the counter, the other holding the phone away from his face by half an inch, as if distance mattered. The room smelled of coffee and dish soap. His fiancee was in the doorway in a cardigan, arms folded around herself, not interrupting, not leaving.
+Joel stood in his kitchen in clean socks, one hand on the counter, the other holding the phone away from his face by half an inch, as if distance mattered. The room smelled of coffee and dish soap. Mara was in the doorway in a cardigan, arms folded around herself, not interrupting, not leaving.
 
 "Yes," Joel said.
 
@@ -138,7 +142,7 @@ It was not Alex's laugh. It was lower and shorter. Grief came out of him wrong, 
 
 Joel put the phone flat on the table and stepped away from it.
 
-His fiancee looked at him.
+Mara looked at him.
 
 He shook his head.
 
@@ -156,7 +160,7 @@ Joel told him about Second Camp only up to the fire. That felt wrong, so he went
 
 Joel did not say that the woods had thought so too.
 
-After the calls, his fiancee sat beside him without touching him until he moved first. She had learned that faster than anyone should have had to learn it. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A sourced touch. A body attached to the comfort.
+After the calls, Mara sat beside him without touching him until he moved first. She had learned that faster than anyone should have had to learn it. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A sourced touch. A body attached to the comfort.
 
 "You don't have to do all of them," she said.
 
@@ -182,7 +186,9 @@ He had no answer for that. She went to the sink and washed the mug Will's mother
 
 Weeks passed. The world resumed its insulting competence.
 
-Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. His fiancee went back to work and came home carrying the odors of other rooms: printer toner, rain on wool, somebody's microwave popcorn, the sharp soap from the restroom there. She put her keys in the blue bowl by the door even when he asked her not to drop them from standing height. Some nights she went for a run before dinner and returned red-faced and angry with herself for needing air that did not include him.
+Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. Mara went back to work and came home carrying the odors of other rooms: printer toner, rain on wool, somebody's microwave popcorn, the sharp soap from the restroom there. Her job had a thousand small schedules in it, people moved from one room to another, meetings shifted, budgets corrected, names spelled right before a document went out. It was work made of coordination, and some evenings she came home with no patience left for managing his fear too.
+
+She put her keys in the blue bowl by the door even when he asked her not to drop them from standing height. Some nights she went for a run before dinner and returned red-faced and angry with herself for needing air that did not include him.
 
 Someone from work asked whether he planned to ease back in. His manager used phrases like no pressure and whenever you're ready, which meant there was pressure and a date had to exist somewhere. His laptop waited on the desk. The cursor blinked in old code as if no week could be large enough to stop it.
 
@@ -194,7 +200,7 @@ Joel took notes on paper.
 
 He wrote names beside voices when he could.
 
-MARA - SCHEDULE.
+PRIYA - SCHEDULE.
 
 DEVON - API.
 
@@ -220,7 +226,7 @@ NEIGHBOR DOG, HIGH BARK, WEST SIDE.
 
 He did not show these pages to anyone.
 
-His fiancee found one anyway because he left it on the counter under a mug.
+Mara found one anyway because he left it on the counter under a mug.
 
 She read it while he watched her face. There was no pity in it at first. Pity would have been easier to refuse. What came instead was concentration, as if she had been handed a map and was trying to understand the scale before deciding where to stand.
 
@@ -238,7 +244,7 @@ He laughed once. The sound surprised both of them. It came out rough and brief, 
 
 Her eyes filled and she looked away before he had to.
 
-They did not set a wedding date. They had already had one, then lost it in the administrative wake after the trip. Venue emails kept arriving in cheerful fonts. Floral deposit. Catering adjustment. Final guest count. Joel had once found the whole machinery embarrassing. Now it seemed like evidence from a species he had only read about.
+They did not set a wedding date. They had already had one, then lost it in the administrative wake after the trip. Venue emails kept arriving in cheerful fonts. Floral deposit. Catering adjustment. Final guest count. Joel had once found the whole machinery embarrassing. He had been the one to make jokes about chair covers and signature drinks while Mara tried to find out whether his mother needed the accessible entrance and whether Will could be trusted with a toast. Now the old choices seemed like evidence from a species he had only read about.
 
 She cancelled the tasting without asking him.
 
@@ -304,9 +310,11 @@ NO CEREMONY UNTIL ROAD.
 
 He did not remember writing the last one. It undid him more completely than the others.
 
-His fiancee found him with his forehead on the table and his hands flat beside the notebook, not touching it. She said his name from the doorway. He heard the sound and saw her body and nodded before she came closer.
+Mara found him with his forehead on the table and his hands flat beside the notebook, not touching it. She said his name from the doorway. He heard the sound and saw her body and nodded before she came closer.
 
 "Do you want me to read it?" she asked.
+
+He heard what she did not add. Do you want me to know it. Do you want me to carry it. Do you want me to become another place where it lives.
 
 He did not know.
 
@@ -382,7 +390,7 @@ He ate three at the kitchen table and put the rest in a drawer.
 
 Snow came early and did not stay. It lay on the deck rail in a thin white line, then vanished by noon, leaving the boards wet and dark. The gutters ticked all morning. He could have gone outside and checked them. He did not. Not every sound needed an investigation. That was one of the rules he was trying to learn after the rules.
 
-His fiancee asked him once, gently, whether he thought the thing had followed him.
+Mara asked him once, gently, whether he thought the thing had followed him.
 
 They were in bed. The lamp was off. Her body was visible as a shape beside him, but not clear. He did not answer at first because the question had waited in the room for weeks and he hated that she had found its voice.
 
@@ -426,7 +434,7 @@ He wanted her to say it was all right. She did not. He loved her for that too.
 
 The night it came, if it came, rain had been falling since before dinner.
 
-Not hard at first. A steady city rain, practical and without drama, hissing under tires, darkening the sidewalk, shining in the porch light. By midnight it strengthened. Water ran in the gutter and found the bad seam near the downspout. Tick. Tick. Tick. Faster when the wind moved. Slower when it settled. Joel lay awake beside the woman he loved and counted the interval until counting became another way to listen.
+Not hard at first. A steady city rain, practical and without drama, hissing under tires, darkening the sidewalk, shining in the porch light. By midnight it strengthened. Water ran in the gutter and found the bad seam near the downspout. Tick. Tick. Tick. Faster when the wind moved. Slower when it settled. Joel lay awake beside Mara and counted the interval until counting became another way to listen.
 
 He got up because not moving had become worse.
 
@@ -482,7 +490,7 @@ He did not call out. He did not stand. He did not wake her. His body wanted ever
 
 The house did what a house did.
 
-Rain filled the gutters. A car passed, tires hissing over wet pavement. Upstairs, the bed gave one faint sound as his fiancee turned in sleep.
+Rain filled the gutters. A car passed, tires hissing over wet pavement. Upstairs, the bed gave one faint sound as Mara turned in sleep.
 
 Joel kept his eyes on the kitchen doorway until morning began to make the windows gray.
 

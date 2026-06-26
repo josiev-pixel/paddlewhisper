@@ -26,6 +26,12 @@ Will came out carrying the food barrel. "If that box is coming with us, I'm stay
 
 Joel carried his pack out last and set it beside Will's truck. The morning was cool and bright. Dew stood on the canoes in dull beads. The motel's security light had clicked off, and the place looked worse in honest day: tape on one corner of the office window, cigarette butts flattened near the ice machine, a plastic chair turned upside down beside Room 4. The ditch behind the building held a skin of fog over black water. Mosquitoes floated in the shadow under the eaves, slow from cold but alive enough.
 
+His phone buzzed once before he pocketed it. Mara had written: Water today?
+
+Joel looked at the canoes on the truck and the Highlander with its open hatch and the men sorting themselves into the morning they had promised one another. Not yet, he typed. Shuttle first. On the water late morning. Love you.
+
+The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, the last ordinary proof that a voice could leave one place and arrive in another without changing shape.
+
 Will's truck looked competent under the two canoes. Long bed, cap, roof rack, gear tucked tight beneath. Mike's Highlander sat beside it, faded gray and square, its rear hatch lifted halfway like a tired jaw. One taillight had red tape over a crack. The bumper was pocked with old rust and stickers from outfitters that may or may not still exist.
 
 The plan was simple in the way plans were simple before weather, fatigue, and human nature got involved. Mike would drive the Highlander to North Road Bridge, the intended take-out. Will would follow in the truck with the boats and most of the gear. They would leave the Highlander at the bridge, put everyone into Will's truck, drive back south and east along the forest roads to the old landing, then launch.
@@ -34,7 +40,7 @@ Will and Mike had worked it out over three phone calls, two maps, and one argume
 
 Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not see the bad assumption yet.
 
-It also meant the bad assumption had been dressed as competence. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing they had decided not to need.
+It also meant the bad assumption had been dressed as competence. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing that had failed to become an object.
 
 Mike stood beside the Highlander with his phone in one hand, looking at the screen.
 
@@ -152,6 +158,8 @@ They reached North Road Bridge a little after nine.
 
 It was not much of a bridge. Concrete slab, low rails, tannin water moving under it between alder banks. A gravel pullout opened on the far side. There was a post with no sign, two beer cans in the weeds, and a place where someone had cut a sapling and left the pale stump angled toward the road. The bridge made the river smaller and harder. Water went into the dark under it and came out with a different voice.
 
+On the rail, initials had been scratched into the concrete and softened by weather until they looked less written than worn. A strip of orange tape hung from a branch below the road, old enough to have faded toward white. Human signs were everywhere if Joel looked for them, and none of them said much. Somebody had stood here. Somebody had meant something by the mark. The place had kept the mark and lost the message.
+
 Mike pulled the Highlander into the gravel and parked it facing out. Will stopped the truck beside him and left it running.
 
 For a few seconds nobody spoke.
@@ -226,7 +234,7 @@ Mike stared at the phone another second, then shoved it into his pocket. "No ser
 
 "No service is a species of spotty."
 
-Alex laughed, and the sound went under the bridge and came back thinner. Joel heard the first bark, then a second version of it under concrete, lower and farther away. It was not wrong. It was only separated from him, shaved down by water and stone until it belonged for a second to the bridge instead of the man. Alex looked pleased with himself, as if he had done that on purpose.
+Alex laughed, and the sound went under the bridge and came back thinner. Joel heard the first bark, then a second version of it under concrete, lower and farther away. It was not wrong. It was only separated from him, shaved down by water and stone until it belonged for a second to the bridge instead of the man who made it. Alex looked pleased with himself, as if he had done that on purpose.
 
 "Nice acoustics," he said.
 
@@ -248,7 +256,7 @@ Mike checked his watch. Before he spoke, he cleared his throat, a small preparat
 
 They left the Highlander in the gravel, backed Will's truck around, and drove away.
 
-For a while the empty fact of the staged vehicle sat in the cab with them. Joel looked back once through the rear window and saw the Highlander shrinking between the canoe hulls. Then the road bent, and it was gone.
+For a while the empty fact of the staged vehicle sat in the cab with them. It was the first object they had placed ahead of themselves and trusted to wait. Joel looked back once through the rear window and saw the Highlander shrinking between the canoe hulls. Then the road bent, and it was gone.
 
 Alex said, "I hope it doesn't get lonely."
 
@@ -325,6 +333,8 @@ The old landing appeared without ceremony.
 The forest road widened into a muddy clearing sloped toward dark water. A weathered signboard stood at an angle near the brush. Whatever notices had once been pinned there were gone or reduced to pale rectangles under rusted staples. There was a fire ring full of wet ash, a length of old rope in the weeds, and two boot tracks hardened in mud from some earlier party. The lake lay narrow and black-green below the landing, held between spruce and low shelves of granite. Morning fog still lingered over the far shore though the sun had lifted above the trees.
 
 No other vehicles were there.
+
+Joel checked his phone once before he put it away for good. No bars. Mara's message sat above his answer, already from another weather. There was no new reply, and he was glad for that in the small cowardly way a man could be glad not to owe one more sentence before doing the thing he had come to do.
 
 Will parked facing out, because Mike told him to before he could do it himself. For a moment nobody moved. The truck engine ticked. Somewhere near the signboard, a mosquito whined against the glass.
 
@@ -468,7 +478,7 @@ Joel said, "I understand I'm sitting behind you and don't want to watch you fall
 
 Will made the cough-laugh again and turned away to hide it badly.
 
-Mike checked his own PFD, then the little yellow pouch clipped inside it. He pressed the roll once, hard, and tucked it flat.
+Mike checked his own PFD, then the little yellow pouch clipped inside the left side of it. He pressed the roll once, hard, and tucked it flat.
 
 "Key still there?" Will asked.
 

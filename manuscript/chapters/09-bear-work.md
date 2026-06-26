@@ -120,6 +120,8 @@ The mud made no simple testimony. It accepted some marks too well and refused ot
 
 Joel made himself slow down. He put one hand on a root and felt cold water squeeze up between his fingers. He tried to read direction from bent grass, weight from depth, animal from accident. The ground gave him pieces and refused the line between them.
 
+He had never wanted to be the kind of man who studied the mud around a friend's body. He had wanted facts in other forms: a map folded on a tailgate, a forecast, a mileage note in Will's handwriting, a text from Mara asking for a photograph of the lake because she knew he would forget to send one unless asked. Facts that stayed useful because nobody had died beside them. Here every fact arrived with a cost. To know where Alex had stepped was to picture him stepping. To know whether a mark was a paw was to stand longer where something might still be listening.
+
 Beyond Alex's shoulder was a broad mark in the mud.
 
 It could have been a paw.
@@ -234,6 +236,28 @@ Will looked away.
 
 There were other objects. Alex's missing sandal lay upside down in the water weeds, where the current worried the strap. One glove had been mashed into mud. A torn corner of rain jacket hung from a broken alder stem. The cracked headlamp was back at camp in the cookpot where Joel had put it because he could not hold it and could not put it with anyone's personal gear. The inventory became an accusation. Things could be recovered. A man could not.
 
+Mike took out his phone before they covered anything.
+
+For a second no one spoke. The phone belonged to calls, weather, photos of fish, proof that a person had stood smiling on a rock before weather and distance made the smile worth keeping. Mike held it in both hands, the way a person might hold something fragile or loaded.
+
+"We need pictures," he said.
+
+Will's eyes went hard. "Of him?"
+
+"Of the place."
+
+"Say what you mean."
+
+Mike looked down at the screen. "Of enough."
+
+Joel wanted to tell him no. He wanted to tell him yes. He wanted some future person with a badge or radio to have more than three shaking men and one word none of them trusted. Mike photographed the alder gap from camp-facing angles, the possible print without stepping closer, the spray where Joel had found it before Joel moved it, the orange pepper dust on leaves, the torn jacket caught on the stem. When he lifted the phone toward Alex himself, Will made a small flat sound.
+
+Mike lowered it.
+
+"Enough," Joel said.
+
+Mike nodded once and put the phone away without checking the picture.
+
 They did what they could for Alex.
 
 No one called it burial. The ground was root and water and cold stone under a skin of mud. They had no shovel, no safe time, no tool equal to the task. Mike brought the gray groundsheet from Alex's tent. Will objected because it was Alex's, then stopped because every object was Alex's or no one's now.
@@ -338,6 +362,10 @@ Second Camp. Body ten yards east/channel side of camp. Covered with gray grounds
 
 His handwriting looked calm. The letters did not know what they were beside.
 
+He added the objects because objects were all he could make himself trust: Alex's spray safetied. Body minimally moved to cover. Food barrel intact at camp. No service. Three survivors.
+
+Survivors looked wrong on the page. It made the three of them into a category too soon. It made Alex into what the category excluded.
+
 Will watched the pen move. "Write bear."
 
 Mike looked at him.
@@ -413,6 +441,8 @@ Then, from closer, from the alder behind the groundsheet or the channel bend or 
 It was soft. Almost fond. Almost annoyed.
 
 The phrase came with the exact little drop on mothering, the way Alex had said it when warnings bored him but attention pleased him. It was not a scream from beyond death. It was not even a call. It was conversational, as if he were just out of sight adjusting a strap, expecting one of them to roll his eyes and let him continue.
+
+That was the cruelty of it. Not that it sounded monstrous. That it sounded social. It arrived with a little room around it, the old request for reaction built into the words. Alex had spent the trip making himself answerable, tugging at the group until someone looked up, sighed, laughed, corrected him, gave him the heat of attention. The sound knew that shape. Or it had kept the shape after Alex could not.
 
 Will made a sound like his body had been struck.
 
@@ -568,7 +598,9 @@ They divided Alex's gear into necessities, evidence, and things too personal to 
 
 Necessities: spray, fuel, batteries, first-aid odds and ends, one fleece layer, food. Evidence: headlamp, wallet, phone, the note about the site, photographs if they could take them, the fact of the safety clip still on the spray. Things too personal to abandon: a small notebook with mileage estimates and grocery lists, the hot sauce because Will had already claimed it, the phone sealed uselessly in a dry bag as if service might wake inside it if kept dry enough.
 
-Mike photographed the camp edge and the alder from as many angles as he could stand. Then he held his phone up and checked service though he knew. No bars. No emergency call. The blankness of the screen had become another way for the world to refuse them.
+Mike photographed the camp edge once more from where the fire ring could be seen, then the low food hang, then the note under the fly. The phone made a small official sound each time. Click. Click. Click. Each one turned a piece of the morning into something flat enough to show later. None of them looked at the screen.
+
+Then Mike held the phone up and checked service though he knew. No bars. No emergency call. The blankness of the screen had become another way for the world to refuse them.
 
 "Battery," Joel said.
 
@@ -668,6 +700,8 @@ Joel wrote bear attack suspected because leaving the word out felt like cowardic
 
 He tucked the note under Alex's tent fly folded beneath a rock near the fire ring. It looked too small to do what they needed from it. It looked like a thing a person wrote to make himself less guilty.
 
+Will read it once after it was sealed. His lips moved around the words without giving them sound. When he reached BEAR ATTACK SUSPECTED, his mouth flattened and stayed that way. He did not ask Joel to change it. That was the worst permission.
+
 They finished packing.
 
 Mike loaded the canoes as if load order could repair reality. He put the heaviest packs low, centered the food barrel, tied the loose painter with too much force. Will repacked the map case twice. Joel checked the stove cap, then checked it again because he could not remember doing it. They kept Alex's wallet, phone, cracked headlamp, unused spray, hot sauce, some food, and one fleece layer. They left the rest under a rock-weighted tent fly with the note and the marker visible from camp.
@@ -709,6 +743,8 @@ Will whispered, "No."
 Joel said, "Don't answer it."
 
 The words left him before he could weigh them. They were too loud in the morning and still not loud at all.
+
+They were also a rule, though he did not know that yet. A bad first draft of one. Do not answer what has no body. Do not give the woods the courtesy that belonged to friends. Do not let a sound turn you before your eyes had finished their work.
 
 Mike lifted the mostly spent spray toward the alder, then lowered it. Something in his face had gone older and smaller.
 

@@ -10,11 +10,11 @@ Mike told him to just keep moving.
 
 Alex asked if he was coming or writing a poem.
 
-Will coughed from ahead, behind, and once from so close that Joel felt the old expectation of breath on the back of his neck, though no breath came with it.
+Will coughed from ahead, behind, and once from so close that Joel felt the old expectation of breath on the back of his neck. No breath came with it.
 
 Joel kept the canoe on his shoulders and did not turn.
 
-The portage bent through black spruce and alder, then dropped and climbed in small unnecessary humps that had seemed minor when there had been two men under load, three men before that, four before the world had begun spending them. Now each rise forced him to stop and set his feet. The yoke pressed into the bruised base of his neck. The hull narrowed his sight to mud, root, branch, his own hands on the gunwales, and the thin strip of trail under green Kevlar.
+The portage bent through black spruce and alder, then dropped and climbed in small unnecessary humps that had seemed minor when there had been two men under load, three before that, four before the world had begun spending them. Now each rise forced him to stop and set his feet. The yoke pressed into the bruised base of his neck. The hull narrowed his sight to mud, root, branch, his own hands on the gunwales, and the thin strip of trail under green Kevlar.
 
 The canoe had become both rescue and blindfold. He needed it to cross the last water. He hated it for taking the sky away.
 
@@ -52,7 +52,7 @@ He started to tear the page loose, then stopped with the paper half-stressed und
 
 The pencil shook in his fingers. He put it away before he wrote a name by accident.
 
-Names had become openings. Not magic. Not superstition. Something simpler. A name made a shape in the air. It asked for a body to answer. It gave grief a handle.
+Names had become openings. Not magic. Not superstition. A name made a shape in the air. It asked for a body to answer. It gave grief a handle.
 
 He wanted to say Will's name.
 
@@ -92,7 +92,7 @@ The sleeping bag lay under the tree like something already finished.
 
 Joel tightened the remaining strap and moved.
 
-After that the pack rode higher and worse. Weight had a morality now. Anything kept meant another minute under the yoke, another stumble, another opening for sound. Anything left meant a future crossed out. Survival did not feel like choosing life. It felt like becoming the kind of person who could leave evidence of himself in the brush and keep walking.
+After that the pack rode higher and worse. Weight had its own blunt judgment now. Anything kept meant another minute under the yoke, another stumble, another opening for sound. Anything left meant a future crossed out. Survival did not feel like choosing life. It felt like becoming the kind of person who could leave evidence of himself in the brush and keep walking.
 
 The map was next to fail him, though he could not leave it. The case had grit in the seal. Water had gone in through a corner days ago and made the paper soft. Contour lines blurred where his thumb had pressed them too often. The blue shapes of lakes still held. The black portage line still appeared in pieces. The final lake was there, narrow at its south end, spreading north, then pinching toward the outlet and North Road Bridge.
 
@@ -150,7 +150,7 @@ He wanted the correction so sharply that wanting became almost audible inside hi
 
 From the right, Will coughed.
 
-Not words. Worse, maybe, because the cough had no argument in it. It was Will before speech. Will about to explain. Will alive in the half-second before language armed him.
+Not words. Worse, maybe, because the cough had no argument in it. It was Will before speech. Will about to explain. Will alive in the half second before language armed him.
 
 Joel closed his eyes.
 
@@ -172,7 +172,7 @@ He thought of the group before sound had become poisonous. Four men took up spac
 
 Now it was weight and green hull and the fact of the last lake.
 
-At the next rise, the trail narrowed under young spruce. Branches clawed both sides of the canoe. He had to turn sideways, lower the bow, back up, lift again, and push through by inches. Each touch made the hull speak. Scratch, knock, scrape. The portage repeated the sounds ahead of him and behind him until the whole trail seemed to be carrying a canoe badly.
+At the next rise, the trail narrowed under young spruce. Branches clawed both sides of the canoe. He had to turn sideways, lower the front, back up, lift again, and push through by inches. Each touch made the hull speak. Scratch, knock, scrape. The portage repeated the sounds ahead of him and behind him until the whole trail seemed to be carrying a canoe badly.
 
 He stopped once to drink.
 
@@ -182,7 +182,7 @@ The filter squeaked from the trees.
 
 Then Alex said, "Jesus, listen to this guy."
 
-It was almost funny. The wrongness of it, the timing, the old line dropped into a moment with no guy left to listen to. Joel felt laughter rise in him as nausea. He bent over with both hands on his knees and kept his mouth shut until the impulse passed.
+It was almost funny. The timing, the old line dropped into a moment with no guy left to listen to. Joel felt laughter rise in him as nausea. He bent over with both hands on his knees and kept his mouth shut until the impulse passed.
 
 If he laughed, it would have his laugh.
 
@@ -224,7 +224,7 @@ The name did what a hand would have done. It touched him.
 
 He almost turned.
 
-The canoe saved him by being stupid and heavy. To turn, he would have to commit the whole hull. He would have to step back, pivot, let the bow swing into spruce, make a racket large enough to call the dead from every side. The physical difficulty gave the rule time to catch up.
+The canoe saved him by being stupid and heavy. To turn, he would have to commit the whole hull. He would have to step back, pivot, let the front swing into spruce, make a racket large enough to call the dead from every side. The physical difficulty gave the rule time to catch up.
 
 ONLY SEEN IS REAL.
 
@@ -256,11 +256,15 @@ The sounds did not overlap. They took turns like men around a fire, each waiting
 
 Joel crouched beside the canoe and inventoried what could go forward.
 
-Small pack: map, filter, bottle, headlamp with weak batteries, knife, two energy bars crushed into meal, first-aid roll reduced to tape and dirty gauze, lighter in a plastic sleeve, pencil, notebook when it was not in his jacket. Hatchet at belt. Key in inner pocket. Emergency paddle under the front seat in the blue dry bag with a pair of socks, the torn corner of the old repair sleeve, and the little orange whistle nobody had used because whistles were sound and sound had become meat.
+Small pack: map, filter, bottle, headlamp with weak batteries, knife, two energy bars crushed into meal, first-aid roll reduced to tape and dirty gauze, lighter in a plastic sleeve, pencil, notebook when it was not in his jacket. Hatchet at belt. Key in inner pocket. Emergency paddle under the front seat in the blue dry bag with a pair of socks, the torn corner of the old repair sleeve, and the little orange whistle nobody had used because a whistle was only a mouth made of plastic.
 
 He clicked the headlamp on against his palm. The light came up yellow and weak, then steadied. He clicked it off before the small plastic switch could become an invitation. The lamp would be for the map only. Not for searching trees. Not for proving voices wrong. Light was not the same as sight if fear chose where to point it.
 
-He took the whistle out and threw it into the lake.
+He took the whistle out and held it.
+
+It was almost weightless, molded orange plastic, practical in exactly the way the old world had been practical. Three blasts for distress. A small signal that assumed anyone hearing it would want to help. It had not done anything wrong. It was still impossible to keep.
+
+Joel threw it into the lake.
 
 Not far. His throw was bad with fatigue. It struck water five yards out and floated for a moment, bright and ridiculous, before a small ripple turned it over. He watched until it drifted beyond reach.
 

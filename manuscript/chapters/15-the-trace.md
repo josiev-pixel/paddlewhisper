@@ -2,6 +2,10 @@
 
 The trace disappeared three times before it became a road again.
 
+For the first twenty minutes after the false Mike had told them to keep moving, no one did.
+
+They walked, but the word moving had changed. It no longer meant progress. It meant bodies kept in sight, boots placed where the ground would take them, packs watched for stray sounds, every branch that snapped assigned to a branch before the sound could become a voice. Mike led with the cracked paddle in one hand and the old map under his rain jacket. Will followed with his shoulders drawn up around his ears. Joel came last and watched both of them as if attention were a rope he had to keep tight.
+
 The first loss happened so gently that Joel did not know it had happened until Mike stopped. A minute before, the old path had been grass and mud, two shallow wheel ruts holding brown water, alder leaning in from both sides. Then it was only wet brush. No ruts. No cut stumps. No straightness. The woods took back the human mark without drama, as if the mark had never been more than grass pressed briefly in one direction.
 
 Mike lifted one hand.
@@ -10,7 +14,7 @@ Will stopped behind him. Joel stopped behind Will. The order still mattered. Mik
 
 No one spoke.
 
-Rain from the night before still lived in the branches. It fell one drop at a time onto hoods, pack lids, the backs of their bare calves above the hiking sandals. Mosquitoes had returned with the mildness after the weather. They worked at wrists and ears and the seams where collars had loosened. Joel let one land on the back of his hand and fill itself. Slapping it would make sound. That was ridiculous. It was also what his body believed now.
+Rain from the night before still lived in the branches. It fell one drop at a time onto hoods, pack lids, the backs of their bare calves above the hiking sandals. Mosquitoes had returned with the mildness after the weather. They worked at wrists and ears and the seams where collars had loosened. Joel let one land on the back of his hand and fill itself. Slapping it would make sound. The old Joel would have laughed at that. This one watched the insect darken with blood and kept his hand still.
 
 Mike crouched and pushed wet grass aside with the cracked paddle Joel had carried from camp. He used it like a staff, like a probe, like proof that one broken thing could be made useful if a man refused embarrassment. The orange cord on the shaft had darkened in the wet. It touched a rotted stump hidden under fern, then stopped there while Mike leaned closer.
 
@@ -38,7 +42,7 @@ Seen.
 
 Then they went on.
 
-The trace took them uphill at an angle that made no clean sense from the map. It might have followed old grade, or avoided low marsh, or corrected around a place where the road had always been bad. The map did not show such things. It showed intent. It did not show water sitting black in a rut for thirty years, or a poplar dropping across both wheel lines and becoming soil, or spruce seedlings growing where tires had once pressed the earth open. It did not show the way a loaded pack made every small rise into a choice.
+The trace took them uphill at an angle that made no clean sense from the map. It might have followed old grade, or avoided low marsh, or corrected around a place where the road had always been bad. The map did not show such things. It showed intent. It did not show water sitting black in a rut for thirty years, or a poplar dropping across both wheel lines and becoming soil, or spruce seedlings growing where tires had once pressed the earth open. It did not show the way a loaded pack made every small rise into a choice. It did not show the time they had promised themselves they would still have when they turned around.
 
 Will wanted to say this. Joel could feel the want in him the way he felt heat from a stove. It came off his shoulders. It worked in his jaw. Twice he raised his good hand as if to stop Mike and begin a diagram in the air. Twice he lowered it.
 
@@ -158,7 +162,7 @@ LESS TALK.
 
 He underlined it once. Not as command. As fact. The pencil groove cut through the damp top fibers of the page.
 
-They found the trace again where the blowdown thinned. Mike found it, really. He angled left when the easier ground went right, cut around a wet hollow, and stopped beside a line of stones sunk under moss. The stones had been laid by hand. Maybe to hold a culvert, maybe to harden mud, maybe by men who had never imagined three strangers decades later reading their labor as if it were scripture.
+They found the trace again where the blowdown thinned. Mike found it, really. He angled left when the easier ground went right, cut around a wet hollow, and stopped beside a line of stones sunk under moss. The stones had been laid by hand. Maybe to hold a culvert, maybe to harden mud, maybe by men who had never imagined three strangers decades later reading their labor for permission to keep going.
 
 Mike touched the stones with the paddle tip.
 
@@ -170,7 +174,7 @@ At midday, or what Joel guessed was midday from the pale place above the clouds,
 
 No one wanted to stop. All three needed to.
 
-Mike checked his watch. The face was scratched and fogged at the edge. He checked the compass next, then the map in its cloudy case. He did it with the care of someone handling evidence after being accused. Joel could see him choosing not to say the time.
+Mike checked his watch. The face was scratched and fogged at the edge. His thumb stayed on the rim too long. He checked the compass next, then the map in its cloudy case. He did it with the care of someone handling evidence after being accused. Joel could see him choosing not to say the time.
 
 Will sat on the rock and peeled the dirty bandage from his palm. The cut had opened. Not badly, but enough. Blood made a bright line in the wet crease below his thumb. He looked at it with irritation, as if his hand were making a poor argument.
 
@@ -195,6 +199,10 @@ Joel nodded. He wrote anyway:
 JOEL SAID SORRY - TO WILL HAND.
 
 It felt foolish to inventory kindness as if it were a dropped wrapper. It felt worse not to. The notebook had become a ledger of what they had given away and a place where ordinary decency went after it became unsafe aloud.
+
+Will read the line while Joel wrapped the new gauze. He did not smile. He touched two fingers to the clean edge of the bandage, then to the page.
+
+Seen.
 
 They ate bars because the body would not negotiate forever. Mike divided them by sight on the rock: three damp rectangles, two with chocolate gone gray at the edges, one oat thing that Alex would have refused with a face elaborate enough to make a meal out of it.
 
@@ -364,6 +372,8 @@ No one said so. Saying it would have made the false voice right in a way none of
 
 The cedar thinned into mixed spruce and birch. The ground firmed. A faint roadbed reappeared, broad enough now that they could walk not quite single file. Light entered from the west in a colorless wash. The afternoon had advanced without permission. Shadows were longer. Or Joel was imagining shadows because the idea of dusk had entered him and begun to work.
 
+Mike did not look back for credit. That made it harder to refuse him credit. He had chosen the higher ground. The false voice had chosen lower. Skill still mattered. That was the worst part of depending on him now: the same confidence that had narrowed the world badly could still find a road inside brush.
+
 They crossed a shallow ditch where a culvert had collapsed. Black water moved under broken metal. The culvert pipe was rusted through in two places, its edges thin as torn paper. Mike stopped there and looked at it with a strange expression.
 
 "Road," he said.
@@ -470,7 +480,7 @@ The trees opened onto a small clearing. Grass grew high and yellow-green around 
 
 Mike stopped at the edge of the clearing and looked back at them.
 
-Something like vindication crossed his face before exhaustion pulled it down. He had not imagined the square. He had not led them to nothing. That mattered, even if it did not matter enough, and Joel hated the part of himself that was relieved on Mike's behalf.
+Something like vindication crossed his face before exhaustion pulled it down. He had not imagined the square. He had not led them to nothing. That mattered, even if it did not matter enough. Joel hated the part of himself that was relieved on Mike's behalf, and hated more that relief could still be earned by so little as a roof.
 
 Will was too tired to deny him.
 

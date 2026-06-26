@@ -8,13 +8,13 @@ Joel and Will sat with their backs to the least rotten wall and their feet brace
 
 Neither slept.
 
-Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain, and Joel's body returned all at once to the cabin, to the floor, to the weight zipped against his chest.
+Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain. Joel returned all at once to the floorboards, to the table leg under his heel, to the weight zipped against his chest.
 
 The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted the key so badly that needing it had felt like betrayal. Now that he had it, it seemed less like rescue than evidence.
 
 The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road real. It only proved that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had given it back.
 
-Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. He had stopped crying after the light went completely, or at least stopped making visible signs of it. Sometimes his shoulders moved once, and Joel knew not to count it.
+Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. When he tried to flex the fingers, only the first two moved cleanly. He had stopped crying after the light went completely, or at least stopped making visible signs of it. Sometimes his shoulders moved once, and Joel knew not to count it.
 
 Outside, sometime after the rain thinned, Mike said, "We're fine."
 
@@ -68,7 +68,7 @@ NO ANSWER.
 
 Will stared at the two words. His eyes were wet again, but he did not look away from the page.
 
-The page did what Joel needed it to do and failed at everything else. It removed tone. It removed Mike's stolen steadiness, Will's tremor, Joel's own urge to make an order sound like care. It left marks that could be pointed at, obeyed, hated.
+The page did one useful thing and failed at everything else. It removed tone. It removed Mike's stolen steadiness, Will's tremor, Joel's urge to make an order sound like care. It left marks that could be pointed at, obeyed, hated.
 
 After a while he took the pencil with his bad hand. The grip hurt him; Joel saw it in the whitening around his mouth. Will wrote beneath Joel's line:
 
@@ -76,7 +76,7 @@ NO ANSWER EVER?
 
 Joel read it and looked toward the door.
 
-The old rule, the first rule, had been too simple. Do not answer. It had worked when the voices came cleanly from places where no body stood. It had worked at the edge of camp, under rain, on water when sound crossed ahead of sight. But Mike had died inside a harder problem. A real man could be ten yards away and need help. A real key could lie at the threshold. A true fact could be bait and still be true.
+The old rule, the first rule, had been too simple. Do not answer. It had worked when the voices came cleanly from places where no body stood. It had worked at the edge of camp, under rain, on water when sound crossed ahead of sight. But Mike had died inside a harder problem. A real man could be ten yards away and need help. A real key could lie at the threshold.
 
 That was the part the rule did not want to hold. False sounds were almost easy. They asked to be refused. True things asked to be paid for.
 
@@ -102,7 +102,11 @@ Then he opened them and wrote, slower than before:
 
 YOU'RE MAKING RULES LIKE HIM.
 
-Joel looked at the sentence until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A frightened man could call himself careful and still become command.
+Then Will added, smaller:
+
+JUST QUIETER.
+
+Joel looked at the sentences until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A frightened man could call himself careful and still become command.
 
 He wrote:
 
@@ -154,7 +158,7 @@ He scanned from left to right the way Mike would have scanned a landing: close g
 
 On the mud below the wall was a mark.
 
-Not a footprint. Not enough of one. A long pressure in the wet soil and two deeper points beside it, as if weight had been set down and lifted without the courtesy of an animal pattern. Joel looked at it until the mark began to become several things at once. Bear. Root. Dragged branch. Knee. A shape made by weight, not by any story he could use.
+Not a footprint. Not enough of one. A long pressure in the wet soil and two deeper points beside it, as if weight had been set down and lifted without the courtesy of an animal pattern. A strand of orange thread lay near the deepest point, or else a pine needle had gone bright with wet. Joel looked at the mark until it became several things at once. Bear. Root. Dragged branch. Knee. A shape made by weight, not by any story he could use.
 
 He made himself look away before the shape taught him anything he could not use.
 
@@ -384,9 +388,9 @@ Will read that, then wrote:
 
 HOW DO WE KNOW IT ONLY USES WHAT IT HEARD?
 
-Joel almost wrote a clean answer. Because it repeats exact phrases. Because it misplaces context. Because it has not said anything new with new facts. Because it says "we're fine" when no one is fine, "map says there's a cabin" after the cabin has failed, "answer if seen" without knowing why the phrase mattered. Because if it could invent freely they would already be dead.
+Joel almost wrote a clean answer. Because it repeats exact phrases. Because it misplaces context. Because it says "we're fine" when no one is fine, "map says there's a cabin" after the cabin has failed, "answer if seen" without knowing why the phrase mattered. Because if it could invent freely, they would already be dead.
 
-Or maybe that was not evidence. Maybe it was only hope, damaged enough to look like a rule.
+Or maybe that was not evidence. Maybe it was only hope, pressed flat enough to look like a rule.
 
 He looked at Will's question for a long time.
 
@@ -396,7 +400,15 @@ Joel wrote:
 
 WE DON'T.
 
-Then:
+Then he wrote what he had wanted to make true:
+
+ONLY WHAT IT HEARD.
+
+He stared at the line, then boxed it badly and added:
+
+ASSUME. NOT PROOF.
+
+Below that:
 
 ACT LIKE IT.
 
@@ -406,7 +418,7 @@ Joel looked toward the door.
 
 No echo answered.
 
-That felt like luck, which meant it was not a thing to trust.
+That felt like luck, which meant it was not a thing to spend.
 
 While Will cinched the top of his pack, a strap creaked from the other side of the door.
 
@@ -422,7 +434,7 @@ That was worse in its way. The thing did not need Mike for every order. It could
 
 They finished packing.
 
-Before they left, Joel made one more page. He wrote large enough that Will could read without taking the notebook from him.
+Before they left, Joel made one more page. The letters came out blocky and uneven, more sign than handwriting. He wrote large enough that Will could read without taking the notebook from him.
 
 DO NOT ANSWER UNLESS SEEN.
 
@@ -444,7 +456,7 @@ NO COMFORT OUT LOUD.
 
 The second line hurt more. It sat there among the practical instructions like an exposed nerve.
 
-Joel wanted to cross it out. He wanted to tell Will there were kinds of comfort the woods could not use. A hand on a shoulder. Food pushed toward him. A turn taken under a heavier pack. He wanted to say they were not empty just because they could not speak. He wanted to say Mike and Alex had not been reduced to sound by the thing that killed them.
+Joel wanted to cross it out. He wanted to tell Will there were kinds of comfort the woods could not use. A hand on a shoulder. Food pushed toward him. A turn taken under a heavier pack. He wanted to say they were not empty just because they could not speak. He wanted to say Mike and Alex had not been reduced to sound by the thing that killed them, even if sound was what remained available.
 
 But the page was right. It removed what the woods could use.
 
