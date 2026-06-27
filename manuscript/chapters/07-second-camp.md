@@ -38,11 +38,11 @@ Joel looked back at the water.
 
 "Marsh is where features go to die," Will said.
 
-They unloaded because unloading was what came next. That was the mercy of trips like this, before the mercy ended: the body could be given orders. Pull the boat higher. Put packs above the wet line. Take the rods away from where they could be stepped on. Find the stove bag. Find the filter. Find a place to sleep. The work did not require anyone to decide whether the site was bad. It only required hands.
+They unloaded because unloading was what came next. That was the mercy of trips like this: the body could still be given orders. Pull the boat higher. Put packs above the wet line. Take the rods away from where they could be stepped on. Find the stove bag. Find the filter. Find a place to sleep. The work did not require anyone to decide whether the site was bad. It only required hands.
 
-They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, the whole camp shaped less like shelter than a pause in something larger.
+They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, no clean place for a man to stand and look outward.
 
-Joel tied the canoes to a spruce root though they were already well above the water. He laid the paddles where he could see them from the fire ring, blades crossed, handles in. It was not a rule. It was only an arrangement, the kind of small order a person made because the larger order had begun to fail. On the granite shelf the night before, the boats had looked like boats wherever they lay. Here they looked like objects that might be needed quickly.
+Joel tied the canoes to a spruce root though they were already well above the water. He laid the paddles where he could see them from the fire ring, blades crossed, handles in. It was not a rule. It was only an arrangement. On the granite shelf the night before, the boats had looked like boats wherever they lay. Here they looked like objects that might be needed quickly.
 
 "This is what there is," Mike said.
 
@@ -56,7 +56,7 @@ Will looked toward the channel. The west wind had begun to move down it in short
 
 The flat ground above the landing was smaller than it had looked from the water. One tent would fit near the fire ring if its corners were staked into roots and old ash. The second could be forced between two spruce where the ground rose and fell in slow damp lumps. Joel's hammock needed two trees far enough apart and not already claimed by brush. There were jack pines at the back of camp, but their trunks were narrow, and one of them bent when he put his weight into the strap.
 
-Joel checked his phone while Mike and Will argued over the tent footprint. He did it for the time and because the hand went to the pocket by itself. No service. He had not expected bars here, but the words still made the camp smaller. At First Camp he had almost sent Mara a picture of the fire on granite, then decided the signal was not worth standing on a rock for. Now he typed nothing. The screen reflected spruce needles, his own cheek dark with stubble, and the pale bite swelling on the back of his hand.
+Joel checked his phone while Mike and Will argued over the tent footprint. He did it for the time and because the hand went to the pocket by itself. No service. He had not expected bars here, but the words still made the camp smaller. At First Camp he had almost sent Mara a picture of the fire on granite, then decided the signal was not worth standing on a rock for. He had imagined her seeing it at the kitchen counter in Madison, between a contractor email and the wedding spreadsheet, proof that the trip was doing what he had said it would do. Now there was only the dead screen reflection: spruce needles, his own cheek dark with stubble, the pale bite swelling on the back of his hand.
 
 He put the phone away, set his weight into the jack pine again, and watched it bend.
 
@@ -78,7 +78,7 @@ Joel looked at him.
 
 Alex lifted both hands. "Bad phrasing. Withdrawn."
 
-He said it lightly, but he did withdraw it. That was one of the unfair things about Alex. He pushed until someone looked at him with actual resistance, and then sometimes he stepped back without needing applause for the decency. Joel looped the strap higher on the trunk and tested it again. The pine bent, but not as much. It would hold or it would not. The day had reduced standards.
+He said it lightly, but he did withdraw it. Alex could push until someone looked at him with actual resistance, then step back without making a speech about decency. Joel looped the strap higher on the trunk and tested it again. The pine bent, but not as much. It would hold or it would not. The day had reduced standards.
 
 Mike set his tent body down near the fire ring. "Will, get the food up before dark."
 
@@ -110,7 +110,7 @@ Not again. Not the same sound. Probably not. A twig, maybe. A strap buckle under
 
 He turned.
 
-The spruce behind camp stood too close for looking. Their lower branches were dead and gray, crossed in layers. Beyond them, alder and shadow. No road, no line of sight, no reason for the sound to have gone there except that sounds in tight places went where they wanted.
+The spruce behind camp stood too close for looking. Their lower branches were dead and gray, crossed in layers. Beyond them, alder and shadow. No road. No line of sight. No reason for the sound to have gone there except that in this tight place sound had stopped behaving like a thing with an owner.
 
 "You good?" Will asked.
 
@@ -170,7 +170,7 @@ Will tied it. The barrel went up awkwardly, swinging once into the trunk with a 
 
 Joel looked toward the water. The channel held evening in pieces: black water, green alder, a pale strip of sky caught between leaves. The canoes had been pulled high. The paddles lay crossed near the packs. Nothing there had answered anything.
 
-The barrel hung lower than anyone would have liked. It was off the ground and away from the tents, but not by much, and the branch sagged under the weight with a green patience Joel did not trust. A determined bear could reach it, probably. A lazy bear might still take offense. The thought was ordinary enough to be useful, and useful enough to keep.
+The barrel hung lower than anyone would have liked. It was off the ground and away from the tents, but not by much, and the branch sagged under the weight with a green patience Joel did not trust. A determined bear could reach it, probably. A lazy bear might still take offense. The thought gave the unease a known shape, so Joel kept it.
 
 "Good enough," Mike said.
 
@@ -324,7 +324,7 @@ Alex stirred his noodles. "I respect Will's commitment to making dinner feel lik
 
 "A humble paste."
 
-Joel ate what was handed to him and let their voices move around the fire. He was too tired to contribute much. The old rhythm still worked, even here. That made the night briefly worse. Their talk did not prove safety. It only proved that men could reproduce themselves in bad conditions. They could assemble the shape of friendship anywhere: around a kitchen island, in a motel room, on a granite shelf, in a dark little camp where the brush stood close enough to take the heat off their backs.
+Joel ate what was handed to him and let their voices move around the fire. He was too tired to contribute much. The old rhythm still worked, even here, which helped and did not help. They had made the same rough circle around kitchen islands, motel beds, picnic tables, granite shelves. Now they made it in a dark little camp where the brush stood close enough to take the heat off their backs.
 
 Cold began under the sweat in Joel's shirt. It came first along his spine, then through the damp cuffs at his wrists. He put on a fleece without standing. The fabric stuck at his shoulder where bug spray had dried tacky on his skin.
 
@@ -360,7 +360,7 @@ Will pointed the spoon at him. "Doom has inputs."
 
 "Doom has vegetables, apparently."
 
-Joel laughed. It surprised him. Not because the joke deserved it, but because the day had left some last small piece of him available to be moved. Alex caught the laugh and smiled into his noodles without looking up. That was one of his needs too, Joel thought: not only to perform, but to know the performance had landed. The thought came with an unkindness Joel regretted before it was done forming. Why shouldn't a man want proof he had reached the people he had come this far to be with?
+Joel laughed. It surprised him. Not because the joke deserved it, but because the day had left some last small piece of him available to be moved. Alex caught the laugh and smiled into his noodles without looking up. Joel saw the need in it and disliked himself for naming it. Why shouldn't a man want proof he had reached the people he had come this far to be with?
 
 Dark thickened. The fire stayed small. The wood was damp enough to smoke but dry enough to burn reluctantly, making little red tunnels in itself. Sparks rose and vanished under the spruce boughs. Beyond the ring of light, the brush took every outline and kept it.
 
@@ -426,7 +426,7 @@ Mosquitoes whined. The stove, cooling, ticked once. Somewhere behind the camp th
 
 "Branch," Joel said.
 
-He said it because it was plausible and because plausible things needed saying before other things tried to enter the space. Branch. Animal. Rope. Water. Echo. Camp gear cooling. The world had a large vocabulary of ordinary causes.
+He said it because it was plausible and because plausible things needed saying first. Branch. Animal. Rope. Water. Echo. Camp gear cooling. The world still had a large vocabulary of ordinary causes.
 
 Alex looked at him across the fire. "Madison with the emotional support branch."
 
@@ -478,13 +478,13 @@ Joel watched the light instead of the dark beyond it. That was the more useful t
 
 "We're in the woods. Outside camp starts everywhere."
 
-Mike came back and sat down harder than he needed to.
+Mike came back and sat down harder than he needed to. The orange bear-spray canister stood beside his pack, untouched and upright, its label bright in the firelight.
 
-Joel listened past the fire. That was the mistake, if it was a mistake. Listening made the dark productive. It brought forward the small brush sounds, the water sounds, the high movement of wind. It made every ordinary noise audition for meaning. He could hear Alex breathing through his nose as he tied off his tent guyline. He could hear Will's spoon scraping one last time, though dinner was finished. He could hear Mike swallow. He could hear his own pulse inside the tender places where the pack straps had ridden.
+Joel listened past the fire. That was the mistake, if it was a mistake. Listening made the dark productive. It brought forward the small brush sounds, the water sounds, the high movement of wind. Every ordinary noise auditioned. He could hear Alex breathing through his nose as he tied off his tent guyline. He could hear Will's spoon scrape once, though dinner was finished. He could hear Mike swallow. He could hear his own pulse inside the tender places where the pack straps had ridden.
 
 First Camp had been open enough to let sound leave. Here sound went into the brush and came back handled.
 
-Joel thought of the old maintenance cabin Mike had pointed to on the map, the tiny square inland, the promise that something human had once stood in all this and been useful. A cabin on a map, a fire ring in a bad camp, old foil in ash: marks people made against being swallowed by distance. The marks lasted longer than the reasons for them. Then other people came along and treated the marks as permission.
+Joel thought of the old maintenance cabin Mike had pointed to on the map, the tiny square inland, the promise that something human had once stood in all this and been useful. A cabin on a map, a fire ring in a bad camp, old foil in ash: marks people made against being swallowed by distance. The marks lasted longer than the reasons for them. Then other people came along and mistook them for permission.
 
 "You okay?" Alex asked.
 
@@ -602,7 +602,7 @@ He looked toward the water.
 
 "That's becoming a genre."
 
-Joel almost told him. Then he did not, because saying it would make it more than it was. A sound could be made larger by description. Fear was bad at scale. It took what fit in the hand and built a room around it.
+Joel almost told him. Then he did not, because saying it would give the sound a second life. Fear was bad at scale. It took what fit in the hand and built a room around it.
 
 The fire settled lower. Wind moved in the spruce tops but did not come down to the ground. The camp smelled of smoke, damp nylon, bug spray, old ash, marsh water, sweat cooling in synthetic shirts. Joel rubbed one thumb along the edge of his spoon and felt a nick in the metal he had never noticed before.
 

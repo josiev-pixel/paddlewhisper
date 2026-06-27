@@ -2,7 +2,9 @@
 
 Alone simplified the arithmetic and ruined everything else.
 
-Joel had one canoe, one small pack cut down to what could still be called useful, one map soft at the folds, one Highlander key, one hatchet, one filter, one weak headlamp, two crushed bars, one blue dry bag lashed under the front seat with the emergency paddle inside it, one wet sleeping bag he did not plan to unroll, and daylight draining through low cloud.
+Joel had one canoe, one small pack cut down to what could still be called useful, one map soft at the folds, one Highlander key, one hatchet, one filter, one weak headlamp, two crushed bars, one wet sleeping bag he did not plan to unroll, and one blue dry bag wedged under the front seat with the emergency paddle inside it.
+
+He had daylight draining through low cloud.
 
 He also had three dead men behind him who would not stop speaking.
 
@@ -16,7 +18,7 @@ Joel kept the canoe on his shoulders and did not turn.
 
 The portage bent through black spruce and alder, then dropped and climbed in small unnecessary humps that had seemed minor when there had been two men under load, three before that, four before the world had begun spending them. Now each rise forced him to stop and set his feet. The yoke pressed into the bruised base of his neck. The hull narrowed his sight to mud, root, branch, his own hands on the gunwales, and the thin strip of trail under green Kevlar.
 
-The canoe had become both rescue and blindfold. He needed it to cross the last water. He hated it for taking the sky away.
+The canoe had become both rescue and blindfold. He needed it for the last water. He hated it for taking the sky away.
 
 He reached a place where the trail widened around a fallen cedar and set the canoe down as quietly as he could.
 
@@ -28,7 +30,7 @@ From the brush, the same water-click answered.
 
 Joel stood over the canoe and waited. Not because waiting was safe. Movement without knowing what had moved was worse.
 
-The click came again from ten yards off the trail. Then farther away. Then behind him.
+The click came again from ten yards off the trail. Then farther away. Then behind him, quick as if a hand had learned only the last inch of the motion.
 
 Not a voice. Not a command. Only the boat making itself somewhere the boat was not.
 
@@ -52,7 +54,7 @@ He started to tear the page loose, then stopped with the paper half-stressed und
 
 The pencil shook in his fingers. He put it away before he wrote a name by accident.
 
-Names had become openings. Not magic. Not superstition. A name made a shape in the air. It asked for a body to answer. It gave grief a handle.
+Names opened the air. Not magic. Not superstition. A name made a shape a body was supposed to fill. It gave grief a handle.
 
 He wanted to say Will's name.
 
@@ -68,9 +70,9 @@ He put one palm on the canoe hull. Its surface was cold and slick with old rain.
 
 Joel lifted the canoe.
 
-The next quarter mile took the rest of his old life apart in pieces small enough to carry.
+The next quarter mile made him count what a man could leave.
 
-At first he made a practical pile: the damp tarp folded once and left under spruce, the extra pot set inside it, the stove wrapped in a sock because the metal ticked when loose. He stood there too long looking at the stove. It had been ordinary as a hinge all week. Click, fuel, flame. Coffee, oats, soup, something hot enough to tell the body it had not been discarded yet.
+At first he made a practical pile: the damp tarp folded once under spruce, the extra pot set inside it, the stove wrapped in a sock because loose metal ticked. He stood too long looking at the stove. It had been ordinary as a hinge all week. Click, fuel, flame. Coffee, oats, soup, something hot enough to tell the body it had not been discarded yet.
 
 He left it.
 
@@ -92,7 +94,7 @@ The sleeping bag lay under the tree like something already finished.
 
 Joel tightened the remaining strap and moved.
 
-After that the pack rode higher and worse. Weight had its own blunt judgment now. Anything kept meant another minute under the yoke, another stumble, another opening for sound. Anything left meant a future crossed out. Survival did not feel like choosing life. It felt like becoming the kind of person who could leave evidence of himself in the brush and keep walking.
+After that the pack rode higher and worse. Weight had its own blunt judgment now. Anything kept meant another minute under the yoke, another stumble, another opening for sound. Anything left meant a future crossed out. Survival did not feel like choosing life. It felt like leaving proof of himself in the brush and continuing anyway.
 
 The map was next to fail him, though he could not leave it. The case had grit in the seal. Water had gone in through a corner days ago and made the paper soft. Contour lines blurred where his thumb had pressed them too often. The blue shapes of lakes still held. The black portage line still appeared in pieces. The final lake was there, narrow at its south end, spreading north, then pinching toward the outlet and North Road Bridge.
 
@@ -120,7 +122,7 @@ Those were facts. His feet. His hands. The trail he could see.
 
 He moved.
 
-The thing changed tactics when the voices did not turn him.
+When the voices did not turn him, the portage used smaller sounds.
 
 A boot scraped stone behind him. One scrape, then another, spaced like a tired man following. Joel kept walking until the scrape came again, closer. He stopped and turned with the whole canoe, slow, because the hull would catch if he spun.
 
@@ -132,7 +134,7 @@ A boot scraped stone ahead.
 
 Joel faced forward again.
 
-He did not write a new rule. The old one covered it. SOUND IS BAIT. He repeated the words in his head without moving his mouth.
+He did not write a new rule. The old one covered it. SOUND IS BAIT. He repeated the words without moving his mouth.
 
 The portage dropped into a wet section where old planks had once crossed the mud. Only three remained, black, slick, and half sunk. He set the canoe down before them and made himself plan the passage. One man under a canoe could not see where the back end swung. One man could not have another voice say left, easy, hold up, your end's catching. One man had to become both ends and still remain only one body.
 
@@ -158,7 +160,7 @@ Only briefly. Too briefly for the dark behind his lids to become anything. Then 
 
 He lifted the canoe again.
 
-The emergency paddle was a joke of a thing by canoe-trip standards: aluminum shaft, black plastic blade, two pieces that screwed together with a collar. Mike had mocked it when he saw it packed under the front seat, then kept it because even mockery had limits around water. The proper paddles had been lashed to Will's heavy pack. They were gone with him into the alder, with the food barrel, most of the remaining food, the repair kit, and the folded tarp line Joel had meant to keep.
+The emergency paddle was a joke of a thing by canoe-trip standards: aluminum shaft, black plastic blade, two pieces that screwed together with a collar. Mike had mocked it when he saw it packed under the front seat, then kept it because even mockery had limits around water. The proper paddles had been lashed to Will's heavy pack. They were gone with him into the alder, with the food barrel, most of the remaining food, the repair kit, and the coil of cord Joel had meant to keep.
 
 The emergency paddle clicked under the seat each time the canoe tilted.
 
@@ -186,13 +188,13 @@ It was almost funny. The timing, the old line dropped into a moment with no guy 
 
 If he laughed, it would have his laugh.
 
-He had not thought of that before with enough force. The entity had Joel's voice. It had "Wait. Just wait." It had "Stop." It had Will's name, said with pleading in it. It might not have his laugh. Joel had not laughed much after the first day. He could not remember the last time. The possibility made silence feel not only tactical but possessive. His remaining sounds were the last private things he owned.
+He had not thought of that before with enough force. The entity had Joel's voice. It had "Wait. Just wait." It had "Stop." It had Will's name, said with pleading in it. It might not have his laugh. Joel had not laughed much after the first day. He could not remember the last time. The possibility made silence possessive. His remaining sounds were the last private things he owned.
 
 He stood.
 
 The trail changed near late afternoon. He knew it by light before map. The spruce thinned. The ground began a long, steady drop. Air moved differently ahead, cooler and wider, carrying the mineral smell of open water and wet stone instead of only rot and needles. A raven called once from somewhere high. He waited for the call to repeat wrong, but the sky gave him nothing.
 
-The ordinary world had not stopped. Some sounds were still only sounds. Water still dripped from branches. Birds still moved through black spruce. Wind still rubbed the lake ahead, indifferent to whether men reached it.
+The ordinary world had not stopped. Some sounds were still only sounds. Water still dripped from branches. Birds still moved through black spruce. Wind still rubbed the lake ahead, indifferent to whether one man reached it.
 
 The final stretch of portage was rockier. Granite showed through the moss in gray backs. His sandals slipped twice. The canoe's weight had become a fact beyond pain, a number too large to use. His shoulders went numb and then sharpened again. The yoke seemed to settle into bone.
 
@@ -216,7 +218,7 @@ Joel stopped. The canoe rocked on his shoulders.
 
 He did not know how long he stood there.
 
-The woods waited with him. Or did not wait. It was impossible to tell the difference between patience and absence when the thing had no face.
+The woods waited with him. Or did not. It was impossible to tell patience from absence when the thing had no face.
 
 From the brush at his left, close enough that the alders trembled after the sound, Will whispered, "Joel."
 
@@ -252,11 +254,11 @@ Will said, "I can make it contradict itself."
 
 Alex laughed.
 
-The sounds did not overlap. They took turns like men around a fire, each waiting for the old rhythm to receive him. The arrangement hurt more than noise would have. It made a circle out of absence.
+The sounds did not overlap. They took turns like men around a fire, each waiting for the old rhythm to receive him. The arrangement hurt more than noise would have.
 
 Joel crouched beside the canoe and inventoried what could go forward.
 
-Small pack: map, filter, bottle, headlamp with weak batteries, knife, two energy bars crushed into meal, first-aid roll reduced to tape and dirty gauze, lighter in a plastic sleeve, pencil, notebook when it was not in his jacket. Hatchet at belt. Key in inner pocket. Emergency paddle under the front seat in the blue dry bag with a pair of socks, the torn corner of the old repair sleeve, and the little orange whistle nobody had used because a whistle was only a mouth made of plastic.
+Small pack: map, filter, bottle, headlamp with weak batteries, knife, two energy bars crushed into meal, first-aid roll reduced to tape and dirty gauze, lighter in a plastic sleeve, pencil, notebook when it was not in his jacket. Hatchet at belt. Key in inner pocket. Blue dry bag under the front seat, with the emergency paddle, a pair of socks, the torn corner of the old repair sleeve, and the little orange whistle nobody had used because a whistle was only a mouth made of plastic.
 
 He clicked the headlamp on against his palm. The light came up yellow and weak, then steadied. He clicked it off before the small plastic switch could become an invitation. The lamp would be for the map only. Not for searching trees. Not for proving voices wrong. Light was not the same as sight if fear chose where to point it.
 
@@ -292,11 +294,11 @@ He could not ask the dead.
 
 He needed bait with no grief in it.
 
-The thought came without drama. It was not bravery. It was procedure. The entity could use what it heard. It used old things because old things were what the men had given it. So give it one new thing. Give it a stone with no blood on it. A fact so flat it could not tug unless the wrongness of its use exposed it.
+The thought came without drama. It was not bravery. It was procedure. The thing used what the men had given it. So give it one new thing. A stone with no blood on it. A fact so flat it could not tug unless the wrongness of its use exposed it.
 
 He looked for an object.
 
-The blue dry bag sat under the front seat. It was visible. Its color had no memory except inventory. Not Alex's food complaints. Not Mike's route certainty. Not Will's correction habit. Not Joel's own pleading. A bag. Blue. Under the front.
+The blue dry bag sat under the front seat. It was visible. Its color had no memory except inventory. Not Alex's food complaints. Not Mike's route certainty. Not Will's correction habit. Not Joel's own pleading. Bag. Blue. Under the front.
 
 He opened the notebook to the wet rules page and wrote under SOUND IS BAIT:
 

@@ -28,6 +28,10 @@ Here, the others had started the old argument before coffee. They could argue ov
 
 This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions, four men making order by touching every object once and arguing over half of them. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. Pretend the knot was order because the knot held.
 
+Mara would have made one list and taped it to a cabinet. She would have put a square beside each name and item, then crossed things off with a satisfaction too small to call joy and too visible to miss. Joel had watched her do it for the wedding seating chart two nights before he left, barefoot in the kitchen, hair pinned badly off her neck, one hand in a bag of pretzels while she moved entire family histories by dragging names across a screen. He had loved her most in moments like that, when competence was not an argument but a form of care.
+
+He had also left her with the list.
+
 Joel got out.
 
 Will turned from the truck. “Madison has arrived.”
@@ -268,9 +272,13 @@ The drive north passed in stages. Suburbs gave way to fields, then to towns buil
 
 At the first stop, Mike walked around the truck and touched every strap.
 
-“We’re fine,” Will said.
+Mike tugged the rear line, watched the canoe settle, and gave the strap one last flat-palmed slap.
 
-Mike tugged the rear line anyway. “We are fine because I check.”
+“We’re fine,” he said.
+
+Will looked at him. “Because you touched it or because physics continues to exist?”
+
+“Both.”
 
 Alex came out of the gas station with coffee, crackers, and a banana. “You guys have any idea how hard it is to find food with no personality?”
 
@@ -566,6 +574,6 @@ Outside, a truck went by on the road and faded north. The canoes rested on Will�
 
 Through the wall, Alex laughed once more. The sound came through plaster changed but still his: hard, bright, wanting an answer. After that came Mike’s lower voice, indistinct, then the click of a door latch somewhere down the row, then the building settling into its cheap nighttime silence. The sounds were ordinary because everyone who made them was accounted for.
 
-Joel listened until the sounds separated into their ordinary parts: road, wall, latch, men in the next room, a cheap building cooling around them.
+Joel listened until he could attach each sound to a body or object: road, wall, latch, men in the next room, a cheap building cooling around them.
 
 Then he slept.

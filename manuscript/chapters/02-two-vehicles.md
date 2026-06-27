@@ -32,6 +32,8 @@ Joel looked at the canoes on the truck and the Highlander with its open hatch an
 
 The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, the last ordinary proof that a voice could leave one place and arrive in another without changing shape.
 
+He pictured Mara seeing it in the kitchen in Madison, one shoulder tipped against the counter, coffee going cold while she answered an email she would claim was simple and then make complicated because simple things deserved to be done right. He liked that about her and had been leaving it to her too often. The thought passed cleanly through him and was gone, because the morning had work in it.
+
 Will's truck looked competent under the two canoes. Long bed, cap, roof rack, gear tucked tight beneath. Mike's Highlander sat beside it, faded gray and square, its rear hatch lifted halfway like a tired jaw. One taillight had red tape over a crack. The bumper was pocked with old rust and stickers from outfitters that may or may not still exist.
 
 The plan was simple in the way plans were simple before weather, fatigue, and human nature got involved. Mike would drive the Highlander to North Road Bridge, the intended take-out. Will would follow in the truck with the boats and most of the gear. They would leave the Highlander at the bridge, put everyone into Will's truck, drive back south and east along the forest roads to the old landing, then launch.
@@ -40,7 +42,7 @@ Will and Mike had worked it out over three phone calls, two maps, and one argume
 
 Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not see the bad assumption yet.
 
-It also meant the bad assumption had been dressed as competence. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing that had failed to become an object.
+Competence dressed its own blanks. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing that had failed to become an object.
 
 Mike stood beside the Highlander with his phone in one hand, looking at the screen.
 
@@ -100,7 +102,7 @@ Mike shut the hood. "We're fine."
 
 He said it without looking at anyone, as if speaking to the engine.
 
-The words did what he wanted them to do. They closed the subject. They always had a small lid-like sound when Mike said them, a thing being put away before anyone could touch what was inside. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant the discussion had cost enough.
+The words did what he wanted them to do. They closed the subject. They always had a small lid-like sound when Mike said them, a thing being put away before anyone could touch what was inside. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant the cost of talking had reached Mike's limit.
 
 Will made his dry cough into his coffee. "Define fine."
 
@@ -166,7 +168,7 @@ For a few seconds nobody spoke.
 
 Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No door latches. No road traffic after their own engines died. The river under the bridge moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog clung low upstream in torn bands.
 
-This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned.
+This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned, then trusting the day not to change while they were gone.
 
 Alex walked to the bridge rail and looked down. "This is where we come out?"
 
@@ -346,7 +348,7 @@ Packs came out first. Food barrel. Rod tubes. Paddles. PFDs. Rain gear. The spar
 
 Joel stood at the back of the truck and looked over the spread. The gear had been handled so many times already that it seemed less like preparation than rehearsal. Everything had a category. Things that needed to stay dry. Things that could get wet. Things needed at lunch. Things needed only if something went wrong. Things they had brought because last year someone had not brought them.
 
-Things that had not been brought had no category. That was the trick. No empty place on the mud for the satellite messenger. No missing weight in a pack. No visible hole in the plan. Only the fact of it, still small enough that nobody had to pick it up.
+Things not brought had no category. That was the trick. No empty place on the mud for the satellite messenger. No missing weight in a pack. Only the fact of it, still small enough that nobody had to pick it up.
 
 Will stood over the lunch bag, counting with his lips.
 
@@ -421,6 +423,8 @@ Alex watched them set it down. "Ninety-dollar mistake avoided."
 Mike said, "It would not have been ninety dollars."
 
 "You don't know that. Spiritually."
+
+Alex put one hand on the hull while Mike turned away for a strap end. It was a small steadying touch, almost accidental, and the canoe stopped rocking. He was loud about useless things and quiet about useful ones often enough that Joel kept revising him.
 
 The second canoe came down easier. They laid both near the water and began loading. Heavy packs low. Food barrel near the middle of Mike and Will's boat because they argued over front and back weight until Joel suggested middle and both accepted it as if they had invented compromise. Rods along the side where Will could reach them if they stopped. Rain gear near the top. First-aid kit in the red bag. Spare paddle lashed. Bear spray clipped where Alex could not bury it in a duffel.
 

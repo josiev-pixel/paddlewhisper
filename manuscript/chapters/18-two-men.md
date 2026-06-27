@@ -10,11 +10,11 @@ Neither slept.
 
 Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain. Joel returned all at once to the floorboards, to the table leg under his heel, to the weight zipped against his chest.
 
-The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted the key so badly that needing it had felt like betrayal. Now that he had it, it seemed less like rescue than evidence.
+The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted it so badly that needing it had felt like betrayal. Now that he had it, the want did not leave him. It hardened.
 
-The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road real. It only proved that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had given it back.
+The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road ahead of them passable. It proved only that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had returned it.
 
-Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. When he tried to flex the fingers, only the first two moved cleanly. He had stopped crying after the light went completely, or at least stopped making visible signs of it. Sometimes his shoulders moved once, and Joel knew not to count it.
+Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. When he tried to flex the fingers, only the first two moved cleanly. He had stopped crying after the light went completely, or at least stopped making visible signs of it. Sometimes his shoulders moved once. Joel saw it and looked back at the door.
 
 Outside, sometime after the rain thinned, Mike said, "We're fine."
 
@@ -36,7 +36,7 @@ The voice did not come again for a long time.
 
 Long enough for the cabin to rebuild itself into ordinary misery. Wet wood. Mouse stink. Old ash in the stove they could not trust. The sour pepper of bear spray still trapped in their clothes from the clearing. Rain ticking through roof gaps and making little black circles in the dust. Joel's legs ached from holding the table in place. His left foot had fallen asleep and then come back wrong, bright with needles. Hunger came in dull waves and withdrew when fear rose.
 
-He made himself inventory without moving, because counting was quieter than prayer and more useful than grief.
+He made himself inventory without moving, because counting was quieter than prayer and left less behind.
 
 Two men.
 
@@ -44,13 +44,13 @@ One key.
 
 One hatchet.
 
-No useful bear spray in the cabin. Mike had carried Alex's full canister out toward the road, and it was gone with him. Mike's own near-spent canister was back with the cached gear, or useless even if it was not. One usable headlamp and Will's dim one with the battery already suspect. One notebook, damp at the lower edge. One pencil shortened and cracked, one pen that worked only if held at an angle. Food divided among packs. Wet socks. Damp sleeping bags. A cracked but repaired canoe at the cache. A better canoe hidden near it. Two paddles there, maybe three if nothing had shifted. One route that no longer had Mike inside it.
+No useful bear spray in the cabin. Mike had carried Alex's full canister out toward the road, and it was gone with him. Mike's own near-spent canister was back with the cached gear, or useless even if it was not. One usable headlamp and Will's dim one with the battery already suspect. One notebook, damp at the lower edge. One pencil shortened and cracked, one pen that worked only if held at an angle. Food divided among packs. Wet socks. Damp sleeping bags. A cracked but repaired canoe at the cache. A better canoe hidden near it. Two paddles there, maybe three if nothing had shifted. One route that no longer had Mike to argue it into shape.
 
 Two mouths.
 
 That was part of the inventory too, though Joel did not write it yet. Two men meant two bodies and two witnesses. It also meant two remaining supplies of sound.
 
-The count was a form of superstition. It did not save anything. But it held the night in objects, and objects could still be looked at.
+The count did not save anything. It held the night in objects, and objects could still be looked at.
 
 Near morning, Mike said, "Just keep moving."
 
@@ -68,7 +68,7 @@ NO ANSWER.
 
 Will stared at the two words. His eyes were wet again, but he did not look away from the page.
 
-The page did one useful thing and failed at everything else. It removed tone. It removed Mike's stolen steadiness, Will's tremor, Joel's urge to make an order sound like care. It left marks that could be pointed at, obeyed, hated.
+The page did one useful thing and failed at everything else. It removed tone. It took Mike's stolen steadiness out of the order, took Will's tremor out of the question, took Joel's need to make command sound like care. It left marks that could be pointed at, obeyed, hated.
 
 After a while he took the pencil with his bad hand. The grip hurt him; Joel saw it in the whitening around his mouth. Will wrote beneath Joel's line:
 
@@ -94,7 +94,7 @@ He took the pencil back.
 
 BODY IN SIGHT. SOURCE CONFIRMED.
 
-He almost added TRUST, then did not. Sight did not deserve that much. Sight had lost Mike when Joel turned his head for half a second. Sight was not faith. It was only work that had to be done again and again until the body failed.
+He almost added TRUST, then did not. Sight did not deserve that much. Sight had lost Mike when Joel turned his head for half a second. Sight was not faith. It was work that had to be done again and again until the body failed.
 
 Will read it and shut his eyes.
 
@@ -106,7 +106,7 @@ Then Will added, smaller:
 
 JUST QUIETER.
 
-Joel looked at the sentences until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A frightened man could call himself careful and still become command.
+Joel looked at the sentences until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A man could mistrust his own authority and still use it.
 
 He wrote:
 
@@ -122,11 +122,11 @@ Will wrote:
 
 IT CAN WAIT.
 
-Joel nodded. That was fair. It could wait. Or the woods could. The difference had begun to matter less in the body than in the notebook.
+Joel nodded. That was fair. The scrape had not repeated. Whatever made it had no need to hurry.
 
 At dawn, the window gaps grayed before the clearing did. The cabin did not brighten so much as lose its edges. Corners withdrew from black into wet brown. The old stove showed its rusted door. A shelf emerged above it, bare except for mouse droppings and a nail bent sideways. The floorboards were cupped with damp. Their packs sagged against the wall where they had left them. Will's face appeared by degrees, hollow under the eyes and bearded with the roughness of men who had stopped belonging to mornings.
 
-Daylight did not make the place safe. It only made evidence possible again, and evidence had begun to feel less like help than a new form of labor.
+Daylight did not make the place safe. It only made evidence possible again, and evidence had become another kind of labor.
 
 Joel eased his feet off the table and waited for pain to travel up both legs. He moved one joint at a time. Knee. Ankle. Hip. Neck. His body had slept in no position and punished him for all of them.
 
@@ -154,9 +154,9 @@ Joel stepped onto the threshold.
 
 The boards outside were slick. The key lay heavy in his pocket. He had an absurd urge to apologize to Mike for having it. He did not.
 
-He scanned from left to right the way Mike would have scanned a landing: close ground first, brush line second, route beyond. Grass. Door sill. Mud. The old road's raised back. Alder stems still wet and bowed. Spruce boughs dripping into themselves. The cabin wall to his left, where the scrape had sounded in the night.
+He scanned from left to right the way Mike would have scanned a landing: close ground first, brush line second, route beyond. Grass. Door sill. Mud. The old road's raised back. Alder stems wet and bowed. Spruce boughs dripping into themselves. The cabin wall to his left, where the scrape had sounded in the night.
 
-On the mud below the wall was a mark.
+In the mud below the wall was a mark.
 
 Not a footprint. Not enough of one. A long pressure in the wet soil and two deeper points beside it, as if weight had been set down and lifted without the courtesy of an animal pattern. A strand of orange thread lay near the deepest point, or else a pine needle had gone bright with wet. Joel looked at the mark until it became several things at once. Bear. Root. Dragged branch. Knee. A shape made by weight, not by any story he could use.
 
@@ -172,7 +172,7 @@ Joel added:
 
 STUDY AFTER EXIT. NOT NOW.
 
-That was a lie. There would be no after for the mark. No return with tape and photographs and a ranger kneeling in mud. But the notebook made the lie less like comfort and more like triage, and Will let it stand.
+That was a lie. There would be no after for the mark. No return with a camera, no ranger kneeling in mud, no patient reconstruction of weight and angle. But the notebook made the lie less like comfort and more like triage, and Will let it stand.
 
 They drank without cooking. Cold water from a bottle that tasted faintly of plastic and smoke. They split a crushed bar and a handful of trail mix. Will picked out raisins with the automatic disgust of a normal man, stared at them in his palm as if the old preference had come from someone else, and put them in his mouth anyway.
 
@@ -180,11 +180,11 @@ Joel almost smiled.
 
 Will saw the almost and looked down.
 
-That was the morning's first mercy: a joke too small to say, therefore safe.
+That was the morning's first mercy: a joke too small to say.
 
 They inventoried properly in the gray light.
 
-Will laid items on the floor in rows. Food. Filter. Lighter. Pot. Headlamps. Spare batteries, two good and one questionable. First-aid bag, lighter than it should have been. Map case damp at one corner. Compass. Joel's knife. Will's fishing pliers, useless except as pliers now. The hatchet. The key. Will's truck key, still sealed in the dry pouch in his pack, a second vehicle on the wrong end of the route and therefore only a fact.
+Will laid items on the floor in rows. Food. Filter. Lighter. Pot. Headlamps. Spare batteries, two good and one questionable. First-aid bag, lighter than it should have been. Map case damp at one corner. Compass. Joel's knife. Will's fishing pliers, useless except as pliers now. The hatchet. The Highlander key. Will's truck key, still sealed in the dry pouch in his pack, a second vehicle on the wrong end of the route and therefore only a fact.
 
 Mike's absence took up more floor than any object.
 
@@ -204,7 +204,7 @@ BODY?
 
 The word sat between them.
 
-Joel did not answer quickly. He looked out the open door. The clearing waited with terrible patience. The brush beyond the road was close enough that a man could throw a stone into it. Close enough that a living Mike, hurt and hidden, should have been able to crawl, call, curse, make any human sound they could trust.
+Joel did not answer quickly. He looked out the open door. The clearing waited. The brush beyond the road was close enough that a man could throw a stone into it. Close enough that a living Mike, hurt and hidden, should have been able to crawl, call, curse, make some human sound they could trust.
 
 But the woods had already used him cleanly.
 
@@ -220,7 +220,7 @@ WE LEFT ALEX.
 
 The letters dug hard into the damp page. The X at the end of Alex tore the paper.
 
-Joel looked at the word and saw the groundsheet at Second Camp, stones along the edge, Alex's hand not fully covered until Mike went back and fixed it. The note they had left. The absurd formality of naming a suspected bear attack in pencil while the woods listened.
+Joel looked at the word and saw the groundsheet at Second Camp, stones along the edge, Alex's hand not fully covered until Mike went back and fixed it. The note they had left. The absurd formality of writing suspected bear attack while the woods listened.
 
 He wrote:
 
@@ -266,7 +266,7 @@ The throat-clear was worse in daylight. Night had given it room to be a sound am
 
 Will's eyes went to Joel's hand on the door.
 
-Joel did not close it. He did not open it wider. The sentence hung in the wet air with all its old usefulness. On the first muddy portage it would have been correct. On the beaver dams it had kept Alex from making every log a debate. In rain and bad footing and fatigue, it had been a good rule. It was still a good rule, and that was why it could kill them.
+Joel did not close it. He did not open it wider. The sentence hung in the wet air with all its old usefulness. On the first muddy portage it would have been correct. On the beaver dams it had kept Alex from making every log a debate. In rain and bad footing and fatigue, it had been a good rule. That was why it could kill them.
 
 Joel took the notebook and wrote:
 
@@ -278,7 +278,7 @@ RIGHT SOURCE CAN BE WRONG WORDS.
 
 Joel looked at him.
 
-For the first time since Mike disappeared, Will looked almost present. Ruined, wet-eyed, trembling, but present. His mind was still reaching. Still making distinctions. Still himself in the way that would later endanger him, because the best part of a man was rarely separated cleanly from the worst.
+For the first time since Mike disappeared, Will looked almost present. Ruined, wet-eyed, trembling, but present. His mind was still reaching. Still making distinctions. Still himself in the way that would later endanger him, because the best part of a man did not separate cleanly from the worst.
 
 Joel tapped Will's sentence once.
 
@@ -288,7 +288,7 @@ They closed the door long enough to pack.
 
 Packing without speech made them slow and mean in small ways. Joel pointed at the food bag and Will thought he meant the filter. Will held up the map and Joel shook his head too hard because the road trace did not get another chance to lie. Will tried to strap Mike's repair kit to the outside of his pack one-handed and failed twice before Joel reached for it. Will jerked away, then held it out. Apology without apology. Acceptance without saying thank you.
 
-The little economies of speech had held the group together for years. Move. Grab that. You got it? Quit blocking the path. Nice work, genius. They had been rude with each other because rudeness saved time and hid care. Without it, even help had to be negotiated by hand, and every offered hand looked for a second like control.
+The little economies of speech had held the group together for years. Move. Grab that. You got it? Quit blocking the path. Nice work, genius. They had been rude with each other because rudeness saved time and hid care. Without it, every offered hand looked for a second like control.
 
 Joel wrote lists.
 
@@ -348,7 +348,7 @@ Will underlined it.
 
 That left the road trace forward and back to the canoes.
 
-The old road beyond the cabin might go somewhere human. It might not. It might become muskeg, vanish in second growth, cross private logging land, end at a washout, or loop toward a place no one had used in twenty years. Mike had needed it to mean exit. The map had needed nothing. It had only carried an old mark forward until men mistook memory for promise.
+The old road beyond the cabin might go somewhere human. It might not. It might become muskeg, vanish in second growth, cross private logging land, end at a washout, or loop toward a place no one had used in twenty years. Mike had needed it to mean exit. The map had needed nothing. It had carried an old mark forward until men mistook memory for promise.
 
 The canoes were known. Damaged, awkward, frightening, but known. The cache had a location on ground their own feet had crossed. The water beyond it connected to the route. The planned route connected, eventually, to North Road Bridge and the Highlander key in Joel's pocket. The river did not become safe because it was mapped. But it was the shape of the trip they had left, and all the remaining exits were attached to it.
 
@@ -418,7 +418,7 @@ Joel looked toward the door.
 
 No echo answered.
 
-That felt like luck, which meant it was not a thing to spend.
+That felt like luck, and Joel did not trust any luck that noticed them.
 
 While Will cinched the top of his pack, a strap creaked from the other side of the door.
 
@@ -430,7 +430,7 @@ Joel waited for a voice to follow it.
 
 No voice came.
 
-That was worse in its way. The thing did not need Mike for every order. It could use work. It could use the sound of men getting ready to leave.
+That was worse in its way. The thing did not need Mike for every order. It could use work. It could use men getting ready to leave.
 
 They finished packing.
 
@@ -456,7 +456,7 @@ NO COMFORT OUT LOUD.
 
 The second line hurt more. It sat there among the practical instructions like an exposed nerve.
 
-Joel wanted to cross it out. He wanted to tell Will there were kinds of comfort the woods could not use. A hand on a shoulder. Food pushed toward him. A turn taken under a heavier pack. He wanted to say they were not empty just because they could not speak. He wanted to say Mike and Alex had not been reduced to sound by the thing that killed them, even if sound was what remained available.
+Joel wanted to cross it out. He wanted to tell Will there were kinds of comfort the woods could not use. A hand on a shoulder. Food pushed toward him. A turn taken under a heavier pack. He wanted to say they were not empty just because they could not speak. He wanted to say Mike and Alex had not been reduced to sound just because sound was what remained available.
 
 But the page was right. It removed what the woods could use.
 
@@ -474,7 +474,7 @@ He kept the cabin at his back for only three seconds, then turned so Will could 
 
 Two men.
 
-The phrase had seemed like inventory in the night. In daylight it became a condition. Two men meant every task took longer. Two men meant one injured hand mattered. Two men meant no one could scout, no one could watch both directions, no one could carry grief as a private weight because the other man would see it bend him. Two men also meant the group was not yet gone. A line still existed between bodies. Joel could look at Will and know one sound in the world had a source.
+The phrase had seemed like inventory in the night. In daylight it became a condition. Two men meant every task took longer. Two men meant one injured hand mattered. Two men meant no one could scout, no one could watch both directions, no one could carry grief privately because the other man would see it bend him. Two men also meant the group was not yet gone. A line still existed between bodies. Joel could look at Will and know one sound in the world had a source.
 
 At the clearing edge, Will stopped and looked back.
 
