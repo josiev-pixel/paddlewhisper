@@ -30,7 +30,7 @@ His phone buzzed once before he pocketed it. Mara had written: Water today?
 
 Joel looked at the canoes on the truck and the Highlander with its open hatch and the men sorting themselves into the morning they had promised one another. Not yet, he typed. Shuttle first. On the water late morning. Love you.
 
-The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, one more clean transaction between voice and source.
+The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, his hand reaching hers by a method both of them still understood.
 
 He pictured Mara seeing it in the kitchen in Madison, one shoulder tipped against the counter, coffee going cold while she answered an email she would claim was simple and then make complicated because simple things deserved to be done right. He liked that about her and had been leaving it to her too often. Then Mike shut the Highlander's hatch, Will said something about lunch, and the morning took the thought out of Joel's hands.
 
@@ -40,9 +40,9 @@ The plan was simple in the way plans were simple before weather, fatigue, and hu
 
 Will and Mike had worked it out over three phone calls, two maps, and one argument about whether the logging road between the bridge and the landing was faster than the paved loop. The paved loop had won after Will found a road report from six years earlier and Mike called it "probably still true enough."
 
-Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not yet see where the bad assumption sat.
+Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he had not found the loose strap in it.
 
-Competence dressed its own blanks. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like a decision in that company. It looked like a space nobody had assigned to gear.
+Their competence made the blank harder to see. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like a decision in that company. It had no shape, no weight, no empty slot in the truck bed where a man could point and say, there.
 
 Mike stood beside the Highlander with his phone in one hand, looking at the screen.
 
@@ -102,7 +102,7 @@ Mike shut the hood. "We're fine."
 
 He said it without looking at anyone, as if speaking to the engine.
 
-The words did what he wanted them to do. They closed the subject. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant the cost of talking had reached Mike's limit.
+The words did what he wanted them to do. They closed the subject. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant talking had reached the edge of what Mike believed talking could fix.
 
 Will made his dry cough into his coffee. "Define fine."
 
@@ -166,7 +166,7 @@ Mike pulled the Highlander into the gravel and parked it facing out. Will stoppe
 
 For a few seconds nobody spoke.
 
-Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No door latches. No road traffic after their own engines died. The river under the bridge moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog clung low upstream in torn bands.
+Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No door latches. No road traffic after their own engines died. Under the concrete, the current thickened and released, thickened and released. The river moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog clung low upstream in torn bands.
 
 This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned, then asking the day to hold still.
 
@@ -214,7 +214,7 @@ Will saw him. "Still?"
 
 "To who?" Alex asked.
 
-Mike did not answer. He typed something, waited, then frowned.
+Mike did not answer. He turned his shoulder a little from the group, typed something, waited, then frowned.
 
 Joel said, "It go?"
 
@@ -226,7 +226,7 @@ Joel said, "It go?"
 
 Will leaned against the truck. "You keep saying checking when you mean worrying."
 
-"Worrying is checking before it has a task."
+"Worrying gets a task, it becomes checking."
 
 "That's bleakly accurate."
 
@@ -258,7 +258,7 @@ Mike checked his watch. Before he spoke, he cleared his throat, a small preparat
 
 They left the Highlander in the gravel, backed Will's truck around, and drove away.
 
-For a while the empty fact of the staged vehicle sat in the cab with them. It was the first object they had placed ahead of themselves and trusted to wait. Joel looked back once through the rear window and saw the Highlander shrinking between the canoe hulls. Then the road bent, and it was gone.
+For a while the staged vehicle sat in the cab with them as a fact no one needed to discuss. It was the first object they had placed ahead of themselves and trusted to wait. Joel looked back once through the rear window and saw the Highlander shrinking between the canoe hulls. Then the road bent, and it was gone.
 
 Alex said, "I hope it doesn't get lonely."
 
@@ -346,7 +346,7 @@ The practical work took them.
 
 Packs came out first. Food barrel. Rod tubes. Paddles. PFDs. Rain gear. The spare tarp. Alex's personal bag of edible beige things, which Mike placed in the wrong pile on purpose and Alex retrieved with dignity. Will checked his tackle bag and then checked it again. Mike took the map case from the front seat and set it on the hood.
 
-Joel stood at the back of the truck and looked over the spread. The gear had been handled so many times already that it seemed less like preparation than rehearsal. Everything had a category. Things that needed to stay dry. Things that could get wet. Things needed at lunch. Things needed only if something went wrong. Things they had brought because last year someone had not brought them.
+Joel stood at the back of the truck and looked over the spread. The gear had been handled so many times already that it seemed less like preparation than rehearsal. Everything had a category. Things that needed to stay dry. Things that could get wet. Things needed at lunch. Things needed only if something went wrong. Things they had brought because last year someone had said it would be fine without them.
 
 Things not brought had no category. That was the trick. No empty place on the mud for the satellite messenger. No missing weight in a pack. Only the fact of it, still small enough that nobody had to pick it up.
 
@@ -426,7 +426,7 @@ Mike said, "It would not have been ninety dollars."
 
 Alex put one hand on the hull while Mike turned away for a strap end. It was a small steadying touch, almost accidental, and the canoe stopped rocking. He was loud about useless things and quiet about useful ones often enough that Joel kept revising him.
 
-The second canoe came down easier. They laid both near the water and began loading. Heavy packs low. Food barrel near the middle of Mike and Will's boat because they argued over front and back weight until Joel suggested middle and both accepted it as if they had invented compromise. Rods along the side where Will could reach them if they stopped. Rain gear near the top. First-aid kit in the red bag. Spare paddle lashed. Bear spray clipped where Alex could not bury it in a duffel.
+The second canoe came down easier. They laid both near the water and began loading. Heavy packs low. Food barrel near the middle of Mike and Will's boat because they argued over front and back weight until Joel suggested middle and both accepted it as if they had invented compromise. Rods along the side where Will could reach them if they stopped. Rain gear near the top. First-aid kit in the red bag. Spare paddle lashed. Bear spray clipped where a hand could find it, not where Alex could bury it in a duffel.
 
 "No," Mike said, moving the spray.
 
@@ -450,7 +450,7 @@ Mike looked at the map one more time, though the first leg was not complicated. 
 
 Mike did not look up. "The squeeze doesn't get a vote."
 
-Joel looked past Mike's finger to the lake. On paper the first water was a shape that could be mastered by folding. In front of them it had no border except shore and no explanation except what the trees allowed them to see. He knew the rule well enough. A map did not lie. It told the truth it had been made to tell. Trouble started when men asked it for promises.
+Joel looked past Mike's finger to the lake. On paper the first water was a shape that could be mastered by folding. In front of them it had no border except shore and no explanation except what the trees allowed them to see. A map did not lie. It told the truth it had been made to tell. Trouble started when men asked it for promises.
 
 The bugs thickened as the sun warmed the brush. Mosquitoes came from the shaded ditch. Blackflies found wrists and the backs of ears. Alex slapped his neck.
 
@@ -500,7 +500,7 @@ Will held up both hands. "I said good."
 
 The truck had to be made into the thing they would return to only by mistake. That was the quiet part of the shuttle. They stripped it of what mattered. Joel checked the cab for maps, wallets, phone batteries, sunglasses, loose snacks, one of Will's rod tips that had slid under the seat. Mike checked under the cap as if gear might breed in shadow. Will locked the doors, unlocked them, opened the rear door, took out a forgotten lighter, then locked them again.
 
-No one said goodbye to the truck. That would have been ridiculous. Still, each of them touched it once more than he needed to.
+No one said goodbye to the truck. That would have been ridiculous. Still, they found reasons to touch it once more.
 
 "Key," Mike said.
 
@@ -510,7 +510,7 @@ Will held up a small blue dry pouch. The truck key was inside, along with a fold
 
 "That's generally been my position," Will said.
 
-By ten-twenty the truck was locked, the key sealed in Will's pack, and the boats sat half in water. The Highlander key rode in Mike's pouch, clipped down and checked twice. Mike stood at the edge of the landing with the map case under one arm and his paddle in the other hand. The old signboard leaned behind him. The road they had come in on already looked less like an exit than a scar that might heal over.
+By ten-twenty the truck was locked, the key sealed in Will's pack, and the boats sat half in water. The Highlander key rode in Mike's pouch, clipped down and checked twice. Mike stood at the edge of the landing with the map case under one arm and his paddle in the other hand. The old signboard leaned behind him. The road they had come in on already looked less like an exit than a cut the trees had begun closing.
 
 Mike looked at the boats, the packs, the men. He cleared his throat again.
 
@@ -548,7 +548,7 @@ For a moment they floated half a canoe length from shore while Mike adjusted som
 
 Joel looked back.
 
-Will's truck sat alone in the muddy clearing. The old landing showed their boot prints and the two grooves where the canoes had slid. The signboard had nothing to tell them. The road disappeared into spruce and alder so quickly that it seemed improbable a truck had come through it at all. Already the place was changing back from departure to evidence.
+Will's truck sat alone in the muddy clearing. The old landing showed their boot prints and the two grooves where the canoes had slid. The signboard had nothing to tell them. The road disappeared into spruce and alder so quickly that it seemed improbable a truck had come through it at all. Already the place was turning from departure into evidence.
 
 A paddle knocked once against Will's gunwale.
 
@@ -572,6 +572,6 @@ Joel felt Alex's first few strokes, strong and uneven in the front. Will and Mik
 
 Joel matched them and let the old rhythm find his shoulders.
 
-Behind them, the landing slipped out of sight. The truck vanished first, then the signboard, then the road. The last thing Joel saw was the pale mud where they had stood arranging gear as if arrangement could save them from disorder.
+Behind them, the landing slipped out of sight. The truck vanished first, then the signboard, then the road. The last thing Joel saw was the pale mud where they had stood arranging gear as if arrangement could hold.
 
 Then the trees closed the gap, and there was only water ahead.

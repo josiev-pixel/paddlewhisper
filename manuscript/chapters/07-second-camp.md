@@ -40,7 +40,9 @@ Joel looked back at the water.
 
 They unloaded because unloading was what came next. That was the mercy of trips like this: the body could still be given orders. Pull the boat higher. Put packs above the wet line. Take the rods away from where they could be stepped on. Find the stove bag. Find the filter. Find a place to sleep. The work did not require anyone to decide whether the site was bad. It only required hands.
 
-They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, no clean place for a man to stand and look outward.
+They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. The arrangement had the poor authority of evidence placed for a photograph: boats, packs, men, fire ring, all of it asking the brush to accept the claim.
+
+Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, no clean place for a man to stand and look outward.
 
 Joel tied the canoes to a spruce root though they were already well above the water. He laid the paddles where he could see them from the fire ring, blades crossed, handles in. It was not a rule. It was only an arrangement. On the granite shelf the night before, the boats had looked like boats wherever they lay. Here they looked like objects that might be needed quickly. If they knocked, he wanted to see them knock.
 
@@ -156,6 +158,8 @@ Mike took the rope. "Watch."
 
 His first throw cleared the limb. He did not smile. He only handed the free end to Will as if the world had briefly remembered hierarchy.
 
+Before he stepped back he touched the left side of his PFD, a quick check at the yellow pouch clipped there. The motion was almost hidden by the strap across his chest. Key, Joel thought, and then disliked that the thought made the camp seem smaller: a vehicle waiting somewhere beyond days of water, metal and glass reduced to a dry pouch at Mike's ribs.
+
 "Beautiful," Will said. "I hope the branch snaps."
 
 "Tie it."
@@ -184,7 +188,7 @@ They put the tents where they would fit. Mike and Will took the one near the fir
 
 "History will note my sacrifice."
 
-The tent poles clicked together too neatly. Nylon slid over brush. Alex's zipper snagged twice before it closed, then opened again because he had trapped a sleeve in the door. The second zipper pull made a thin metallic stutter that seemed to come from the front of the tent and then from behind it. Alex swore at the fabric, not the sound, and Joel let himself do the same.
+The tent poles clicked together too neatly. Nylon slid over brush. The little domes looked temporary even before they were staked, two pale claims in a place that did not care whether claims were made. Alex's zipper snagged twice before it closed, then opened again because he had trapped a sleeve in the door. The second zipper pull made a thin metallic stutter that seemed to come from the front of the tent and then from behind it. Alex swore at the fabric, not the sound, and Joel let himself do the same.
 
 Will coughed into his sleeve. A dry little cough, half laugh, half tick. "You are one mosquito away from becoming unbearable."
 
@@ -192,7 +196,7 @@ Will coughed into his sleeve. A dry little cough, half laugh, half tick. "You ar
 
 Joel clipped his hammock suspension and pulled the fabric from its sack. The nylon made its soft sliding sound, intimate and domestic in the darkening trees. He found himself wanting to set up carefully, to do one task well enough that the day could be answered. The first strap was too low. He moved it. The second tree flexed. He moved that too and lost the angle. Mosquitoes landed on his forehead. Sweat and repellent had made a bitter paste at the edge of his lips.
 
-At First Camp, the water had been visible from everywhere. It had made the site feel held open. Here the camp was a room with no walls and too many doors. Brush pressed in on three sides. The channel, barely visible through alder, seemed less like an edge than a way in.
+At First Camp, the water had been visible from everywhere. It had made the site feel held open. Here the camp was a room with no walls and too many doors. Brush pressed in on three sides. The channel, barely visible through alder, seemed less like an edge than a way in. Joel could turn once and lose the canoes, turn again and lose Alex's tent, turn a third time and find the food barrel hanging lower than memory wanted it. Nothing vanished. It only slipped out of the same look.
 
 He pulled the hammock tight and sat in it. The pine bent, complained without sound, and held. He imagined waking in the night to the tree easing over by inches, lowering him into brush while everyone else slept. The image was ridiculous and practical at once. He got up and tightened the strap again.
 
@@ -333,6 +337,8 @@ Mike checked his phone once, holding it low as if embarrassed by the gesture. Th
 "Then don't."
 
 Mike put the phone away. Joel noticed that he did not make a joke about it. Earlier, at the take-out, Mike had checked service with annoyance, as if towers were another thing the world owed him for planning correctly. Here he checked like a man touching a pocket where a key should be. The absence was expected and still became information.
+
+He touched the left side of his PFD again before he sat, confirming the little yellow pouch without looking down. The Highlander key was still there. That should have been reassuring. Instead it made the route feel like a long sentence with the verb hidden at the end.
 
 "We're fine," Mike said.
 
@@ -559,6 +565,8 @@ Joel looked at him.
 "I know."
 
 Mike seemed ready to say more, then did not. The restraint had the feel of fatigue rather than tact. He went back to the fire and used the same stick to push the ends of two small logs inward. Sparks rose and died. Will lowered himself onto a pack, then immediately stood again because something under it had shifted. He swore softly and adjusted the straps.
+
+His headlamp had been on his forehead for the last check of the landing. Now he pulled it down to save the battery, then forgot what he had done with it and let the strap hang loose around his neck.
 
 From beyond the alder came the small ordinary sound of a man pissing in the woods. It should have made the camp feel normal. Instead, because they all heard it and pretended not to, it made the boundary of camp more exact. Here were the men by the fire, not looking. There was Alex past the last agreed-upon edge, also pretending he had not gone beyond anything.
 

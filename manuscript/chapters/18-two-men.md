@@ -10,9 +10,9 @@ Neither slept.
 
 Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain. Joel returned all at once to the floorboards, to the table leg under his heel, to the weight zipped against his chest.
 
-The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted it so badly that needing it had felt like betrayal. Now that he had it, the want did not leave him. It hardened.
+The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted it so badly that needing it had felt like betrayal. Now that he had it, the want did not leave. It hardened.
 
-The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road ahead passable. It proved only that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had returned it.
+The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road ahead passable. It proved only that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had given it back.
 
 Will watched the door for most of the night. He had the hatchet in his good hand. His bandaged hand lay in his lap, palm up, fingers slightly curled, as if it had become an object he was required to carry but not use. The bandage had gone brown at the center and stiff at the edges. When he tried to flex the fingers, only the first two moved cleanly. He had stopped crying after the light went completely, or at least stopped letting Joel see it. Sometimes his shoulders moved once. Joel saw it and looked back at the door.
 
@@ -48,9 +48,9 @@ No useful bear spray in the cabin. Mike had carried Alex's full canister out tow
 
 Two mouths.
 
-That was part of the inventory too, though Joel did not write it yet. Two men meant two bodies and two witnesses. It also meant two remaining supplies of sound.
+That was part of the inventory too, though Joel did not write it yet. Two men meant two bodies, two witnesses, and two remaining supplies of sound. It meant every useful sentence had to be weighed against the possibility that usefulness itself was what the thing wanted.
 
-The count did not save anything. It held the night in objects, and objects could still be looked at.
+The count did not save anything. It held the night in objects. Objects could still be looked at.
 
 Near morning, Mike said, "Just keep moving."
 
@@ -68,7 +68,7 @@ NO ANSWER.
 
 Will stared at the two words. His eyes were wet again, but he did not look away from the page.
 
-The page did one useful thing and failed at everything else. It removed tone. It took Mike's stolen steadiness out of the order, took Will's tremor out of the question, took Joel's need to make command sound like care. It left marks that could be pointed at and hated.
+The page did one useful thing and failed at everything else. It removed tone. It took Mike's stolen steadiness out of the order, took Will's tremor out of the question, took Joel's need to make command sound like care. It left marks that could be pointed at and, if necessary, hated.
 
 After a while he took the pencil with his bad hand. The grip hurt him; Joel saw it in the whitening around his mouth. Will wrote beneath Joel's line:
 
@@ -78,7 +78,7 @@ Joel read it and looked toward the door.
 
 The old rule, the first rule, had been too simple. Do not answer. It had worked when the voices came cleanly from places where no body stood. It had worked at the edge of camp, under rain, on water when sound crossed ahead of sight. But Mike had died inside a harder problem. A real man could be ten yards away and need help. A real key could lie at the threshold.
 
-That was the part the rule did not want to hold. False sounds were almost easy. They asked only to be refused. True things asked to be paid for.
+That was the part the rule did not want to hold. False sounds were almost easy. They asked only to be refused. True things had a price.
 
 He wrote:
 
@@ -106,7 +106,7 @@ Then Will added, smaller:
 
 JUST QUIETER.
 
-Joel looked at the sentences until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A man could mistrust his own authority and still use it.
+Joel looked at the sentences until the words lost their accusation and became only shapes. Will was not wrong. Joel had Mike's key in his pocket and Mike's habit in his hand: reduce, direct, make the next action smaller than the fear around it. The difference was supposed to be that Joel distrusted himself. He did not know whether that mattered. A man could mistrust his own authority and still spend it.
 
 He wrote:
 
@@ -182,9 +182,31 @@ Will saw the almost and looked down.
 
 That was the morning's first mercy: a joke too small to say.
 
+Joel pointed at Will's hand.
+
+Will shook his head.
+
+Joel pointed again, then at the first-aid bag. The gesture came out sharper than he meant. Will's mouth tightened. For a second they were back in the old shape of themselves, one man overcorrecting another, both of them ready to mistake care for insult. Then Will set his bad hand on his knee and looked away.
+
+Joel unwrapped only the outer layer. The cloth stuck where it had dried. Will's fingers curled against the pain, and Joel stopped until they straightened again. The cut had gone puffy at the edges. The skin around it looked too tight and pale, the knuckles reddened from cold and use. He cleaned what he could with two square inches of gauze and water that was too precious to waste and too little to help. He wrapped it flatter, not better.
+
+Will flexed once. Only the first two fingers answered cleanly.
+
+Joel wrote:
+
+USE LESS.
+
+Will looked at the words with a tired contempt that had almost become humor.
+
+He wrote beneath them:
+
+WITH WHAT THIRD HAND.
+
+Joel gave him one raisin from the trail mix pile. Will stared at it, then put it in his mouth.
+
 They inventoried properly in the gray light.
 
-Will laid items on the floor in rows. Food. Filter. Lighter. Pot. Headlamps. Spare batteries, two good and one questionable. First-aid bag, lighter than it should have been. Map case damp at one corner. Compass. Joel's knife. Will's fishing pliers, useless except as pliers now. The hatchet. The Highlander key. Will's truck key, still sealed in the dry pouch in his pack, a second vehicle on the wrong end of the route and therefore only a fact.
+Will laid items on the floor in rows. Food. Filter. Lighter. Pot. Headlamps. Spare batteries, two good and one questionable. First-aid bag, lighter than it should have been. Map case damp at one corner. Compass. Joel's knife. Will's fishing pliers, useless except as pliers now. The hatchet. The Highlander key. Will's truck key, still sealed in the small blue dry pouch in his pack, a second vehicle on the wrong end of the route and therefore only a fact.
 
 Mike's absence took up more floor than any object.
 

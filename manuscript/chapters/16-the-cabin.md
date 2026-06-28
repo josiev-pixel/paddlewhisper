@@ -4,11 +4,11 @@ No one moved toward the voice.
 
 For a few seconds that counted as discipline. Then Joel realized none of them had breathed.
 
-The false Mike did not repeat itself. It had come from outside the cabin, from the far side of the clearing or the old road beyond it, and then it left the sentence hanging in the room. Map says there's a cabin. The words were ordinary. That was the damage. They were not even wrong. The cabin was here. Mike had brought them to the thing he had promised, and the promise had failed by being true.
+The false Mike did not repeat itself. It had come from outside the cabin, from the far side of the clearing or the old road beyond it, and then it left the sentence hanging in the room. Map says there's a cabin. The words were ordinary. They were not even wrong. The cabin was here. Mike had brought them to the thing he had promised, and the promise had failed by being true.
 
 The sentence still worked. It named the square on the map and the roof over their heads. It did what a useful sentence was supposed to do, except it had arrived from a mouth no one could see.
 
-Rainwater dripped through the roof into a black pot on the floor. One drop, then another, each one making a thin metallic note. Somewhere in the wall a mouse worked at paper. The real Mike stood with the old map half folded in both hands, looking more exposed than Joel had ever seen him. In the motel, at the put-in, on every bad landing since, he had carried certainty like gear: irritating, useful, always strapped where he could reach it. Here it hung loose on him.
+Rainwater dripped through the roof into a black pot on the floor. One drop, then another, each one making a thin metallic note. Somewhere in the wall a mouse worked at paper. The real Mike stood with the old map half folded in both hands, looking more exposed than Joel had ever seen him. In the motel, at the put-in, on every bad landing since, he had carried certainty like gear: irritating, useful, always strapped where he could reach it. Here it hung loose on him. His shoulders had not changed, the same broad wet orange of his PFD, the same set jaw, but the room had taken the use out of the posture.
 
 The room accepted his competence and refused the conclusion he needed from it.
 
@@ -46,7 +46,7 @@ REAL MIKE SEEN INSIDE.
 
 Mike read it. His eyes stayed on the last line longer than the first. Joel thought of the motel room, of Mike standing over the maps with his throat-clear and certainty, turning a wilderness into lines and timing. It was not that Mike had been useless. That would have been easier. He had read water. He had found lost trail. He had kept them moving when stopping would have become another form of collapse. His competence had brought them here, and here was the worst kind of nothing: a thing.
 
-There were walls. There was a roof with holes in it. There had been a stove and a shelf and men with knives cutting names into soft pine. A useless object could still be real. A bad plan could still have skill inside it.
+There were walls. There was a roof with holes in it. There had been a stove and a shelf and men with knives cutting names into soft pine. A bad plan could still have skill inside it.
 
 Will looked around the cabin as if the room itself might now be shamed into producing a radio.
 
@@ -90,7 +90,7 @@ Joel almost said that telling was answering if there was something outside to he
 
 Will pried at the box. His cut hand made him clumsy. Joel crossed the room to help, and for a moment they worked shoulder to shoulder as they had in another life: a stuck cooler latch, a tire chain, a tent pole sleeve in rain. Will smelled of wet wool, old sweat, iodine, and the sourness of fear kept too long in the body. The lid came up with a soft tearing sound.
 
-Inside were papers, but not a logbook. Permits, maybe. Carbon forms. A map brittle with mildew and eaten through at the folds. A printed sheet of radio frequencies so old the paper had browned at the edges. Columns of numbers. Call signs. The ghost of contact. A little vinyl pouch held three batteries furred white at the terminals, their ends swollen and split.
+Inside were papers, but not a logbook. Permits, maybe. Carbon forms. A map brittle with mildew and eaten through at the folds. A printed sheet of radio frequencies so old the paper had browned at the edges. Columns of numbers. Call signs. The ghost of contact. A little vinyl pouch held three batteries furred white at the terminals, their ends swollen and split. The pouch had once been clear. Now it was cloudy enough to make the dead batteries look underwater.
 
 Mike took the sheet from Will.
 
@@ -150,7 +150,7 @@ They finished the search with the same thoroughness they had brought to every ca
 
 The cabin gave up nothing current.
 
-No radio. No working batteries. No first-aid kit. No flare. No tarp worth taking. No tool but a rusted file with the handle missing. No rope that would hold weight. No food. No recent tracks in the dirt floor beyond theirs. No ash new enough to hold shape. No sign that anyone had slept there this season or last season or in any season close enough to matter. People had once been here. That was all.
+No radio. No working batteries. No first-aid kit. No flare. No tarp worth taking. No tool but a rusted file with the handle missing. No rope that would hold weight. No food. No recent tracks in the dirt floor beyond theirs. No ash new enough to hold shape. People had once been here. That was all.
 
 Outside, water dripped from the roof at the back corner into something metal. The same note as the pot inside, but lower. Two drips. Two little bells. Joel watched Mike hear it and look toward the wall.
 
@@ -158,7 +158,7 @@ Not now, Joel thought. Don't let even water become another message.
 
 Mike stepped to the broken window and peered through the gap where the board had shrunk away from the frame. Late afternoon light sat low in the clearing. The grass had gone a flat green, each blade holding water. The old road beyond the cabin was a darker opening between young spruce, not a path so much as the idea of one. Joel could see Mike measuring it already. Not out of optimism. Out of the same hard practical insistence that made him test a dead lighter twice.
 
-If the road was gone, then the cabin had failed. If the road still held for any distance, the day might not yet be a waste, or at least not the kind of waste that had to be admitted while light remained. Joel understood the trap because it was not only Mike's. The room had nothing. The road might. That was enough to make a tired brain lean toward it.
+If the road was gone, then the cabin had failed. If the road still held for any distance, the day might not yet be a waste, or at least not the kind of waste that had to be admitted while light remained. Joel understood the trap because it was not only Mike's. The room had nothing. The road might. That was enough.
 
 "We need to see the road," Mike said.
 
@@ -210,7 +210,7 @@ At last he pointed to himself, then to the road, then held up three fingers.
 
 All three.
 
-They left the packs inside except for water, Alex's bear spray, the notebook, Mike's map, and the small first-aid kit. Leaving gear in the cabin felt wrong. Carrying everything felt worse. The choice had no good shape. Joel watched Mike set his pack against the wall and then touch the left zip pocket of his PFD where the Highlander key sat. The gesture had become involuntary now, a little proof he could perform with his hand.
+They left the packs inside except for water, Alex's bear spray, the notebook, Mike's map, and the small first-aid kit. Leaving gear in the cabin felt wrong. Carrying everything felt worse. The choice had no good shape. Joel watched Mike set his pack against the wall and then touch the left zip pocket of his PFD where the yellow Highlander-key pouch sat. The gesture had become involuntary now, a little proof he could perform with his hand.
 
 Joel wrote:
 
@@ -306,7 +306,7 @@ Will looked like he wanted to take the sentence back. The page would not give it
 
 They retreated to the clearing.
 
-No one said retreat. Mike walked first because the path was too narrow to rearrange without ceremony. Joel watched his back. The PFD made him broad and orange, dulled by mud, ridiculous on land and indispensable because of one key in one pocket. Beyond the PFD, beyond the old road and cabin failure, was the Highlander at North Road Bridge, ordinary and locked, windshield probably filmed with road dust, stale coffee smell trapped in the upholstery. The thought of it hurt. Help had become not a voice on a radio but a key shape in a pocket.
+No one said retreat. Mike walked first because the path was too narrow to rearrange without ceremony. Joel watched his back. The PFD made him broad and orange, dulled by mud, ridiculous on land and indispensable because of a pouch in one pocket. Beyond the PFD, beyond the old road and cabin failure, was the Highlander at North Road Bridge, ordinary and locked, windshield probably filmed with road dust, stale coffee smell trapped in the upholstery. The thought of it hurt. Help had become not a voice on a radio but a hard pouch under wet orange fabric.
 
 At the cabin door, Will stopped.
 
@@ -330,13 +330,13 @@ Mike's hand went to his PFD pocket.
 
 Joel saw the thought arrive. Gear. Key. Pouch. Something misplaced. Something critical. The whole trip had trained them to answer such sounds with action. A buckle meant a bag not sealed. A latch meant food exposed. A shift in gear meant water inside, something lost, something that would matter later.
 
-Mike pressed the pocket flat. The key shape was there. He closed his hand over it through the fabric.
+Mike pressed the pocket flat. The hard pouch was there. He closed his hand over it through the fabric.
 
 "It's on me," he said.
 
 Joel wrote:
 
-KEY FELT THROUGH POCKET.
+YELLOW KEY POUCH FELT THROUGH POCKET.
 
 Will read it and nodded. He had begun to tremble, not violently, only a fine shaking in his shoulders that might have been cold or rage or the effort of swallowing every sentence that tried to rise.
 
@@ -362,7 +362,7 @@ Mike watched him write. Some of the anger went out of his face and left only fat
 
 Then, because he knew, he added nothing.
 
-They checked the packs by sight. Buckles closed. Roll-tops tight enough. Food not there; food had been cached with the boats except for the small ration bag in Mike's pack. Water bottles half full. Map case present. First-aid kit on the table. Alex's bear spray with Mike. Alex's absence was everywhere, even here, in the way no one had a fourth pack to count, no fourth complaint about the smell, no one making the dead cabin into a bit about rustic accommodations.
+They checked the packs by sight. Buckles closed. Roll-tops tight enough. Food not there; food had been cached with the boats except for the small ration bag in Mike's pack. Water bottles half full. Map case present. First-aid kit on the table. Alex's bear spray with Mike. Yellow key pouch still in Mike's left PFD pocket. Alex's absence was everywhere, even here, in the way no one had a fourth pack to count, no fourth complaint about the smell, no one making the dead cabin into a bit about rustic accommodations.
 
 Will leaned against the table and closed his eyes.
 
@@ -446,7 +446,7 @@ The light left the clearing in layers. First the grass lost color. Then the old 
 
 They had the door mostly shut by then, table against it, a gap at the side wide enough for a blade of evening. The cabin smelled worse as it cooled. Wet wood. Mouse. Old ash. Human breath. The metal pot under the leak rang at longer intervals now as the roof emptied itself.
 
-Mike sat nearest the door with the bear spray across his knees. Will sat against the back wall, injured hand elevated on his pack because Joel had pointed until he did it. Joel sat where he could see both men and the window gap. The notebook rested open on his thigh.
+Mike sat nearest the door with Alex's bear spray across his knees. Will sat against the back wall, injured hand elevated on his pack because Joel had pointed until he did it. Joel sat where he could see both men and the window gap. The notebook rested open on his thigh.
 
 Outside, something clicked.
 
@@ -480,7 +480,7 @@ Mike stood.
 
 Joel stood with him.
 
-Mike did not reach for the table. He did not open the door. He only stood, bear spray in one hand, the other hand going to the pocket with the key. But standing had changed the room. It had put motion into him. It had made a future in which the door opened.
+Mike did not reach for the table. He did not open the door. He only stood, bear spray in one hand, the other hand going to the pocket with the yellow pouch. But standing had changed the room. It had put motion into him. It had made a future in which the door opened.
 
 Joel shook his head.
 
@@ -576,7 +576,7 @@ Joel grabbed for him and caught only the slick shoulder of the PFD. Mike twisted
 
 Mike looked back.
 
-For that moment Joel had him. The living Mike was in the gap, one boot inside, one boot on the soft threshold, bear spray in his hand, face white with the effort of being still. His left PFD pocket was zipped. The key was still there. The whole road out of the wilderness was still the size of a small hard shape under wet orange fabric.
+For that moment Joel had him. The living Mike was in the gap, one boot inside, one boot on the soft threshold, bear spray in his hand, face white with the effort of being still. His left PFD pocket was zipped. The yellow pouch was still there. The whole road out of the wilderness was still the size of a small hard shape under wet orange fabric.
 
 From the trees behind him, Mike's throat cleared.
 
@@ -596,7 +596,7 @@ Three feet from the door. Then five.
 
 Joel pushed through after him.
 
-Will caught the back of Joel's jacket. Joel shook him off without meaning to. The clearing had gone blue with dusk. The cabin threw one crooked bar of shadow over the grass. Mike stood at the edge of it, facing the old road, bear spray raised but not extended. His PFD pocket was still zipped. The key was still with him. His body was there. Seen. Seen. Seen.
+Will caught the back of Joel's jacket. Joel shook him off without meaning to. The clearing had gone blue with dusk. The cabin threw one crooked bar of shadow over the grass. Mike stood at the edge of it, facing the old road, bear spray raised but not extended. His PFD pocket was still zipped. The key pouch was still with him. His body was there. Seen. Seen. Seen.
 
 "Mike," Joel said.
 

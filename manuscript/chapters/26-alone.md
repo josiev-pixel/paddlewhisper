@@ -8,6 +8,8 @@ He had daylight draining through low cloud.
 
 He also had three dead men behind him who would not stop speaking.
 
+They did not come as a chorus. The woods spent them one at a time, which was worse. A chorus would have become weather. One voice at a time remained a person long enough to hurt.
+
 Mike told him to just keep moving.
 
 Alex asked if he was coming or writing a poem.
@@ -34,6 +36,8 @@ The click came again from ten yards off the trail. Then farther away. Then behin
 
 Not a voice. Not a command. Only the boat making itself somewhere the boat was not.
 
+It had learned to use the small work after the large grief. A man could teach himself not to answer his dead friend. He still had to know whether the boat had shifted.
+
 He took the notebook from inside his jacket. Mud had dried along the spine and cracked when he opened it. The pages near the middle were swollen into one another. Earlier rules showed through later pages like bruises: DO NOT ANSWER. SIGHT. RIGHT WORDS WRONG SOURCE. TWO MEN.
 
 He crossed out nothing.
@@ -50,11 +54,11 @@ ONLY SEEN IS REAL.
 
 SOUND IS BAIT.
 
-He started to tear the page loose, then stopped with the paper half-stressed under his thumb. Tearing was sound. Everything was sound. He folded the notebook open instead and pinned the page under the frayed map cord on the canoe thwart, where he could see the first two lines when the boat was on the ground and remember the rest when it was on his shoulders.
+He started to tear the page loose, then stopped with the paper half-stressed under his thumb. Tearing was sound. Everything was sound. He held the notebook open long enough to learn the page as an object: four black blocks, bottom right, mud thumbprint at the margin. When the boat was on his shoulders he would have only memory. He closed the notebook and put it back inside his jacket.
 
 The pencil shook in his fingers. He put it away before he wrote a name by accident.
 
-Names opened the air. Not magic. Not superstition. A name made a shape a body was supposed to fill.
+Names opened the air. A name made a shape a body was supposed to fill.
 
 He wanted to say Will's name.
 
@@ -66,7 +70,7 @@ From the portage behind him, Will said, "There's a difference."
 
 Joel let the sentence pass through him like cold water through a sleeve. The living Will had been right about differences. That was part of the damage. Right source, wrong source. Sound, sight. Repetition, understanding. A man could be right all the way to the wrong place.
 
-He put one palm on the canoe hull. Its surface was cold and slick with old rain. Real, because it resisted him. Real, because when he pressed harder his hand hurt.
+He put one palm on the canoe hull. Its surface was cold and slick with old rain. Real because it resisted him. Real because when he pressed harder his hand hurt.
 
 Joel lifted the canoe.
 
@@ -76,9 +80,13 @@ At first he made a practical pile: the damp tarp folded once under spruce, the e
 
 He left it.
 
+There was no one to witness the choice, which made it feel less like sacrifice than littering. He hated that. He had been raised to pack out wrappers, orange peels, fishing line, the smallest human evidence. Now he was leaving a stove under spruce because the living part of him had become lighter than the etiquette of the woods.
+
 Ten minutes later he left the wet sleeping bag.
 
 That was harder. Not because he believed he would sleep. Sleep had become a thing that belonged to another species. But a sleeping bag meant a plan extending past dark. It meant a man was not only moving but expected to stop and still continue. It was a promise of a body worth warming.
+
+Mara would have asked about it if he reached her. Not first. First would be where are you, are you hurt, who is with you, words with their ordinary claims on answer and body. Later, when the facts had been divided into what could be said and what had to stay in the notebook, she would ask if he had kept warm. He would have to tell her no in a language that did not include this hollow under balsam.
 
 He unstrapped it from the small pack, water heavy in the insulation, and pushed it into a hollow under balsam limbs. He did not hide it well. He did not have enough hope to hide it well.
 
@@ -101,6 +109,8 @@ The map was next to fail him, though he could not leave it. The case had grit in
 The map said the take-out was beyond the lake.
 
 The map had also said there was a cabin.
+
+That was what maps did badly. They did not lie. They kept old agreements after the world had stopped honoring them.
 
 Joel folded it along a crease that no longer wanted to fold and slid it back under the cord. The Highlander key pressed cold against his sternum in the inner pocket of his jacket. It had become more intimate than a key should be. A little cut piece of another man's confidence, carried against Joel's heart.
 
@@ -175,6 +185,14 @@ He thought of the group before sound had become poisonous. Four men took up spac
 Now it was weight and green hull and the fact of the last lake.
 
 At the next rise, the trail narrowed under young spruce. Branches clawed both sides of the canoe. He had to turn sideways, lower the front, back up, lift again, and push through by inches. Each touch made the hull speak. Scratch, knock, scrape. The portage repeated the sounds ahead of him and behind him until the whole trail seemed to be carrying a canoe badly.
+
+Then his own voice said, from a bend he had not reached, "Stop."
+
+The word was small and plain. It did not have the pleading drag that had been in Will's name. It was the word he had given the woods with his hands on Will's vest, breath hot and useless between them.
+
+Joel stood under the canoe until the sound thinned out.
+
+He had already failed that once. He would not fail it for himself.
 
 He stopped once to drink.
 
@@ -314,7 +332,7 @@ The woods stayed quiet.
 
 Quiet was not consent. Quiet was only the absence of a sound he had noticed.
 
-He tucked the torn margin under the thwart cord beside the rules, facing up. He wanted the words where his eyes could find them after his mind began to slip. Then he stood at the edge of the landing, facing the lake, not the woods.
+He tucked the torn margin under the thwart cord, facing up. He wanted the words where his eyes could find them after his mind began to slip. Then he stood at the edge of the landing, facing the lake, not the woods.
 
 His throat did not want to open. It had learned too late.
 

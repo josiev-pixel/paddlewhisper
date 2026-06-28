@@ -4,7 +4,7 @@ Mike died because he was almost right.
 
 That was the part Joel kept returning to when he tried to put the week in an order that would hold. Mike did not run into the dark because a dead friend teased him. He did not forget the rule in a clean, stupid way. He moved ten yards into brush to confirm the things he had spent his life confirming: whether a road continued, whether a dark shape was bear or stump or nothing, whether a pocket was still zipped and a key still where it belonged.
 
-Joel understood the motion as it happened. He understood the decency in it. Mike had made a life out of checking what other men hoped was fine. Buckles. Straps. Roads. Weather. Time. That kind of man was useful until usefulness could be made to answer.
+Joel understood the motion as it happened. He understood the decency in it, and the danger. Mike had made a life out of checking what other men hoped was fine. Buckles. Straps. Roads. Weather. Time. That kind of man was useful until usefulness could be made to answer.
 
 For a few seconds after Mike crossed into the young spruce, no one moved.
 
@@ -26,7 +26,7 @@ Joel stepped into the grass.
 
 "Mike."
 
-The word left him before he could stop it. The clearing took it. The woods took it. The syllable hung below the wet spruce tips, useless and available.
+The word left him before he could stop it. It hung below the wet spruce tips, useless and available.
 
 Will made a small sound behind him. Not a word. A swallowed warning, hard enough to hurt.
 
@@ -106,7 +106,7 @@ Mike twisted free. "Key."
 
 "Then leave it."
 
-The old argument almost found them there. At a landing, in another life, Alex would have made the line funny. Will would have added the technical distinction that annoyed both of them. Mike would have called Joel a hall monitor with a paddle.
+The old argument almost found them there. At a landing, in another life, Alex would have made the line funny. Will would have added the technical distinction that annoyed both of them. Mike would have called Joel a hall monitor with a paddle and checked the pocket anyway.
 
 Instead Mike pressed his left hand to the PFD pocket.
 
@@ -115,6 +115,8 @@ The zipper was still closed. Joel saw it. The little black pull lay flat against
 "There," Joel said.
 
 Mike looked down at the pocket as if his own body had become evidence entered by someone else. His face changed, not yielding, only losing one layer of certainty.
+
+His thumb stayed on the zipper pull. He rubbed it once, hard, as if the teeth of it could report back.
 
 From the cabin came Will's voice.
 
@@ -162,7 +164,7 @@ Mike lifted Alex's bear spray.
 
 His voice was lower now. "Come on, then."
 
-The words were not brave in the way a story would make them brave. They were tired. Angry. Humiliated. A man addressing a problem because the alternative was to let the problem speak first.
+The words were not brave in the way a story would make them brave. They were tired. Angry. Humiliated. A man addressing a problem because the alternative was to let the problem choose the terms.
 
 Joel saw all of Mike in the line of his arm: the canoe dealer who could spot a warped hull from a driveway, the man who checked straps twice and complained about everyone else's knots, the man who had shown Joel how to read a faint current seam and then acted as if the lesson were obvious. Once, on a spring trip years back, Mike had walked knee-deep into black water to free a pinned boat and come back cursing them for letting him be the only adult. Obnoxious, useful, first in.
 
@@ -194,7 +196,7 @@ Mike turned back. His face was red under mud and rain. He looked less like a lea
 
 "You think I don't know that?"
 
-The volume was too loud. The woods took it.
+The words were too loud. Joel could feel them leave Mike and become part of the clearing.
 
 Will made a broken gesture from the clearing. Down. Quiet. Please.
 
@@ -254,7 +256,7 @@ Not wide. Not like a door. The alder stems leaned apart in a shallow breathing m
 
 Mike fired Alex's bear spray.
 
-The orange mist burst into the brush and came back on the damp air. Joel's eyes stung at once. His throat closed. Mike shouted, not a word but a refusal, and drove another burst into the moving alder. The can hissed in his hand. For half a second he looked like exactly the man they needed: feet set, arm straight, doing the practical thing with the practical tool Alex had never used.
+The orange mist burst into the brush and came back on the damp air. Joel's eyes stung at once. His throat closed. Will coughed from the clearing and bent over his injured hand. Mike shouted, not a word but a refusal, and drove another burst into the moving alder. The can hissed in his hand. For half a second he looked like exactly the man they needed: feet set, arm straight, doing the practical thing with the practical tool Alex had never used.
 
 For one wild second the world became almost ordinary. Bear spray. Brush. Men coughing. An animal charge. A bad but known story.
 
@@ -272,7 +274,7 @@ Then the woods folded over him.
 
 Will screamed his name.
 
-The sound tore out once and stopped. He clapped his good hand over his mouth as if he could shove the name back inside. His eyes were huge behind his glasses.
+The sound tore out once and stopped. He clapped his good hand over his mouth as if he could shove the name back inside. His eyes were huge behind his glasses, wet from the spray and from something that had arrived too fast to be grief yet.
 
 Joel moved forward.
 
@@ -346,7 +348,7 @@ No one turned.
 
 "We have to get him," Will said.
 
-The sentence came out flat. Not argument. Obligation making one last official attempt.
+The sentence came out flat. Not argument. Obligation making one last attempt to sound like a thing men could still obey.
 
 Joel took the notebook from his pocket. His hands shook enough that the pencil tore the damp page.
 
@@ -472,7 +474,7 @@ Then from far up the old road, Mike's voice said, pleasantly, "Answer if seen."
 
 Will folded at the waist.
 
-Joel put a hand between his shoulder blades and felt the fine shaking there. He did not know whether it was grief or cold. The body did not separate them anymore.
+Joel put a hand between his shoulder blades and felt the fine shaking there. He did not know whether it was grief or cold. The body did not separate them anymore. Will did not pull away.
 
 Something dragged in the brush beyond the road. Not toward them. Not away in a straight line. Sideways through alder, heavy enough to move stems, slow enough to sound deliberate whether or not anything deliberate stood behind it. Joel listened for Mike in it and heard only weight.
 
@@ -488,7 +490,7 @@ Will sank against the back wall.
 
 The hatchet slipped from his hand and struck the floor.
 
-Joel looked at it. Hatchet. Will. Floor. Source confirmed.
+Joel looked at it. Hatchet. Will. Floor. Source confirmed. He picked it up and set it beside Will's knee, handle first, where Will could reach it without looking.
 
 Will's face was wet. He was crying without sound, the tears running straight down into the dirt beside his mouth. He did not cover his face. Maybe he had run out of hands. Maybe he knew that any hand over his eyes was another way to lose sight.
 
@@ -570,7 +572,7 @@ Joel crouched. He moved the table only as far as his forearm needed. The door op
 
 The key lay just outside the threshold. Not in the room. Not far enough away to excuse leaving it. Close enough that reaching would put his wrist in the dark.
 
-The Toyota fob was mud-slick and absurdly domestic, black plastic with worn buttons and a metal key folded into it. A torn strip of orange nylon clung to the ring. The zipper pull from Mike's PFD pocket hung there too, bent open, its teeth still holding two threads of orange fabric.
+The Toyota fob was mud-slick and absurdly domestic, black plastic with worn buttons and a metal key folded into it. A torn strip of orange nylon clung to the ring. The zipper pull from Mike's left PFD pocket hung there too, bent open, its teeth still holding two threads of orange fabric.
 
 Joel stared at it.
 

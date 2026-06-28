@@ -4,7 +4,7 @@ Morning did not make Alex easier to see. It only made the world stop helping the
 
 There was no sunrise. The dark thinned into gray by small degrees, giving back one shape at a time: the turned canoe by the fire ring, the wet black circle of ash, the food barrel hanging too low in the back of camp. Then the alder gap, which had been only a wound in the dark and now was brush again: stems, leaves, mud, a corridor wide enough for a man to step through and not come back.
 
-Fog sat on the channel. It did not move like weather yet. It lay low over the water, torn on alder branches, thickening where the channel bent out of sight. The camp smelled of wet ash, pepper spray, mud, blood, crushed leaves, and three men who had not slept. They had spent the night under the tarp with layers pulled over damp clothes, jerking awake whenever water fell from the seam or spruce needles ticked on nylon. Headlamp straps had cut lines into their foreheads. Their hands were stiff. Their eyes looked smaller in their faces.
+Fog sat on the channel. It did not move like weather yet. It lay low over the water, torn on alder branches, thickening where the channel bent out of sight. The camp smelled of wet ash, pepper spray, mud, blood, crushed leaves, and three men who had not slept. They had spent the night under the tarp with layers pulled over damp clothes, jerking awake whenever water fell from the seam or spruce needles ticked on nylon. Headlamp straps had cut lines into their foreheads. Their hands were stiff. Their eyes looked smaller in their faces, as if the night had pressed them farther back.
 
 Will still sat with his back against the canoe they had dragged sideways as a useless wall. He held the map case in both hands. He had held it for most of the night, maybe because it had edges, maybe because it was the only thing in camp still claiming that the world could be flattened, named, and followed.
 
@@ -24,6 +24,8 @@ Mike looked toward the alder. His jaw worked once. The skin under his eyes was r
 
 Joel stood before Mike could answer.
 
+He did not feel brave. He felt the old pressure of a task no one wanted and no one could make disappear.
+
 His knees hurt. The cold had stiffened them, and the night had put a private age into every joint. He picked up the hatchet from beside the packs. The orange handle was nicked and sticky with old pitch. Two nights ago Alex had held it badly while Mike told him to choke up, and Alex had said, "Quit mothering me," without changing his grip. It had been a camp tool then. A small corrective object. In Joel's hand now it became more serious and no more useful.
 
 Will watched him. "You too?"
@@ -40,7 +42,7 @@ Will gave a dry laugh. "Good. Great. We have a plan."
 
 Mike's head turned a fraction.
 
-Will's mouth stayed open, but whatever he had meant to put through it did not come. He got up slowly, the map case still under one arm.
+Will's mouth stayed open, but whatever he had meant to put through it did not come. He got up slowly, the map case still under one arm. He looked as if standing had become a kind of consent.
 
 "Leave that," Mike said.
 
@@ -56,9 +58,9 @@ Joel said, "Enough."
 
 The word was not strong. It worked because none of them had strength for a better argument. Mike stopped. Will tucked the map case against his ribs and followed.
 
-They went through the same gap in the alder they had made in the night. In daylight the distance was obscene. Ten yards. Less than the length of two canoes. A man could have thrown a mug from the fire ring and hit the place where Alex had died. All night Joel had made the distance larger in his head because terror needed space to justify itself. Morning took that away.
+They went through the same gap in the alder they had made in the night. In daylight the distance was obscene. Ten yards. Less than the length of two canoes. A man could have thrown a mug from the fire ring and hit the place where Alex had died. All night Joel had made the distance larger in his head because terror needed space to justify itself. Morning took that away and gave them the shame of proximity.
 
-The alder kept the record badly. Branches were snapped at shoulder height and knee height. Leaves hung torn and silver-backed. Mud had dried in thumb-thick smears on stems. The black ground underfoot had been cut by sandals, knees, roots, something broader, something dragged. Bear spray had left orange dust on low leaves. In the gray light the dust looked artificial and almost clean, and the cleanness made the rest of the place worse.
+The alder kept the record badly. Branches were snapped at shoulder height and knee height. Leaves hung torn and silver-backed. Mud had dried in thumb-thick smears on stems. The black ground underfoot had been cut by sandals, knees, roots, something broader, something dragged. Bear spray had left orange dust on low leaves. In the gray light the dust looked artificial and almost clean, and the cleanness made the rest of the place worse. It was the only part of the scene that admitted a human hand.
 
 Joel tried not to step in blood and found that there was no clean path.
 
@@ -70,7 +72,7 @@ That fact had its own violence. Joel had known it would be true, but the night h
 
 Joel kept his eyes on the hand.
 
-It was less terrible than the rest and therefore worse. Mud had dried in the creases of the palm. One fingernail was broken. The fingers were slightly curled. It was recognizably Alex's hand, not evidence, not a casualty, not the neutral thing a report would later try to make. The hand that had stirred peanut-butter noodles with solemn incompetence. The hand that had reached back without being asked to steady Joel's canoe over a beaver dam.
+It was less terrible than the rest and therefore worse. Mud had dried in the creases of the palm. One fingernail was broken. The fingers were slightly curled. It was recognizably Alex's hand, not evidence, not a casualty, not the neutral thing a report would later try to make. The hand that had stirred peanut-butter noodles with solemn incompetence. The hand that had reached back without being asked to steady Joel's canoe over a beaver dam. The hand that had always seemed to be starting a bit before Alex's mouth caught up.
 
 "No, no," Will said.
 
@@ -96,7 +98,7 @@ Mike's face tightened. "Because you're going to make a federal case out of the w
 
 "Inaccuracy got us here."
 
-The sentence hit harder than Will seemed to expect. Mike's eyes changed. For a moment the whole route stood between them with Alex at its center: the old map, the staged Highlander, the missing beacon none of them had been embarrassed enough to insist on, Mike's certainty, Joel's willingness to let certainty do work for him.
+The sentence hit harder than Will seemed to expect. Mike's eyes changed. For a moment the whole route stood between them with Alex at its center: the old map, the staged Highlander, the missing beacon none of them had been embarrassed enough to insist on, Mike's certainty, Joel's willingness to let certainty do work for him. The trip had been built from small agreements that had felt like competence until one of them failed.
 
 Joel stepped between the next words before they could happen.
 
@@ -120,13 +122,13 @@ The mud made no simple testimony. It accepted some marks too well and refused ot
 
 Joel made himself slow down. He put one hand on a root and felt cold water squeeze up between his fingers. He tried to read direction from bent grass, weight from depth, animal from accident. The ground gave him pieces and refused the line between them.
 
-He had never wanted to be the kind of man who studied the mud around a friend's body. He had wanted facts in other forms: a map folded on a tailgate, a forecast, a mileage note in Will's handwriting, a text from Mara asking for a photograph of the lake because she knew he would forget unless asked. Facts that stayed useful because nobody had died beside them. Here every fact charged admission. To know where Alex had stepped was to picture him stepping. To know whether a mark was a paw was to stand longer where something might still be listening.
+He had never wanted to be the kind of man who studied the mud around a friend's body. He had wanted facts in other forms: a map folded on a tailgate, a forecast, a mileage note in Will's handwriting, a text from Mara asking for a photograph of the lake because she knew he would forget unless asked. Facts that stayed useful because nobody had died beside them. Here every fact charged admission. To know where Alex had stepped was to picture him stepping. To decide whether a mark was a paw was to stand longer where something might still be listening.
 
 Beyond Alex's shoulder was a broad mark in the mud.
 
 It could have been a paw.
 
-That was the worst of it. It could have been. Wide. Deep at one edge. A dragged smear where claws or roots or a slipping heel had cut through the top layer. Joel knew too little about bear tracks to argue it away. He knew enough about fear to distrust how badly he wanted one answer, and enough about Mike to distrust how badly Mike wanted another.
+That was the worst of it. It could have been. Wide. Deep at one edge. A dragged smear where claws or roots or a slipping heel had cut through the top layer. Joel knew too little about bear tracks to argue it away. He knew enough about fear to distrust how badly he wanted one answer, and enough about Mike to distrust how badly Mike wanted the answer that could be acted on.
 
 "There," Mike said.
 
@@ -174,7 +176,7 @@ No one moved.
 
 Fog pulled through the alder behind Alex, thinned, caught again.
 
-Joel felt the word from the night open in him. What. Alex's voice, irritated and curious, speaking to something just beyond his light. Not afraid yet. Not performing. Answering.
+Joel felt the word from the night open in him. What. Alex's voice, irritated and curious, speaking to something just beyond his light. Not afraid yet. Not performing. Answering before anyone knew answer could be a category of danger.
 
 Mike said, "He heard brush."
 
@@ -202,7 +204,7 @@ Will gave one dry little break of laughter. "Great. Very useful."
 
 Mike lowered the bear spray. "The more we stand here talking, the less daylight we have."
 
-Daylight. The word had sounded generous under the tarp. Here it was already being spent. Above the trees the cloud deck moved faster than the fog below it. Wind worked in the spruce tops first, high and dry, then came down in pieces. Later it would find open water.
+Daylight. The word had sounded generous under the tarp. Here it was already being spent. Above the trees the cloud deck moved faster than the fog below it. Wind worked in the spruce tops first, high and dry, then came down in pieces. Later it would find open water and make the map smaller than weather.
 
 They found Alex's bear spray six feet from his body, half under leaves, safety still in place.
 
@@ -250,7 +252,7 @@ Will's eyes went hard. "Of him?"
 
 Mike looked down at the screen. "Of enough."
 
-Joel wanted to tell him no. He wanted to tell him yes. He wanted some future person with a badge or radio to have more than three shaking men and one word none of them trusted. Mike photographed the alder gap from camp-facing angles, the possible print without stepping closer, the spray where Joel had found it before Joel moved it, the orange pepper dust on leaves, the torn jacket caught on the stem. When he lifted the phone toward Alex himself, Will made a small flat sound.
+Joel wanted to tell him no. He wanted to tell him yes. He wanted some future person with a badge or radio to have more than three shaking men and one word none of them trusted. Mike photographed the alder gap from camp-facing angles, the possible print without stepping closer, the place where Alex's spray had lain before Joel moved it, the orange pepper dust on leaves, the torn jacket caught on the stem. When he lifted the phone toward Alex himself, Will made a small flat sound.
 
 Mike lowered it.
 
@@ -260,7 +262,7 @@ Mike nodded once and put the phone away without checking the picture.
 
 They did what they could for Alex.
 
-No one called it burial. The ground was root and water and cold stone under a skin of mud. They had no shovel, no safe time, no tool equal to the task. Mike brought the gray groundsheet from Alex's tent. Will objected because it was Alex's, then stopped because every object was Alex's or no one's now.
+No one called it burial. The ground was root and water and cold stone under a skin of mud. They had no shovel, no safe time, no tool equal to the task. Mike brought the gray groundsheet from Alex's tent. Will objected because it was Alex's, then stopped because every object was Alex's or no one's now. Ownership had become another thing the morning did not know how to honor.
 
 They unfolded the sheet beside him. It snapped softly in the damp air.
 
@@ -358,7 +360,7 @@ Joel wrote the first note in Will's little waterproof notebook because his own w
 
 Second Camp. Body ten yards east/channel side of camp. Covered with gray groundsheet. Orange marker on alder. Date. Approximate time.
 
-His handwriting looked calm. The letters did not know where they were.
+His handwriting looked calm. The letters did not know where they were. They belonged to grocery lists, route notes, a name on a dry bag. They did not belong beside Alex.
 
 He added the objects because objects were all he could make himself trust: Alex's spray safetied. Body minimally moved to cover. Food barrel intact at camp. No service. Three survivors.
 
@@ -402,7 +404,7 @@ No one asked which bird.
 
 The laugh did not repeat.
 
-Joel waited for his mind to reject it. Grief, exhaustion, memory, a raven, a fox, water hitting a hollow root, Will making some involuntary sound and Joel assigning it the wrong owner. Explanations were available. They were ordinary. They were also too late.
+Joel waited for his mind to reject it. Grief, exhaustion, memory, a raven, a fox, water hitting a hollow root, Will making some involuntary sound and Joel assigning it the wrong owner. Explanations were available. They were ordinary. They were also too late. The sound had already found the part of him that knew Alex before it found the part that needed proof.
 
 He did not pick one up.
 
@@ -440,7 +442,7 @@ It was soft. Almost fond. Almost annoyed.
 
 The phrase came with the exact little drop on mothering, the way Alex had said it when warnings bored him but attention pleased him. It was not a scream from beyond death. It sounded conversational, as if he were just out of sight adjusting a strap, waiting for one of them to roll his eyes.
 
-That was the cruelty of it. The old request for reaction was still inside the words. Alex had spent the trip tugging at the group until someone looked up, sighed, laughed, corrected him. The sound kept that shape after Alex could not.
+That was the cruelty of it. The old request for reaction was still inside the words. Alex had spent the trip tugging at the group until someone looked up, sighed, laughed, corrected him. The sound kept that shape after Alex could not. It wanted the old arrangement back, with Alex at the center and everyone else made into response.
 
 Will made a sound like his body had been struck.
 
@@ -478,7 +480,7 @@ Will spat. "Don't say bear."
 
 Mike took two steps toward him and stopped with the spray canister hanging useless at his side. His control had not returned. Only the outline of it. "Because staying beside him is worse."
 
-Joel looked at the groundsheet. Fog had gathered on the plastic and begun to run in narrow lines toward the mud. One bead hung at the edge, swelled, and fell onto a leaf. The leaf dipped and came back up.
+Joel looked at the groundsheet. Fog had gathered on the plastic and begun to run in narrow lines toward the mud. One bead hung at the edge, swelled, and fell onto a leaf. The leaf dipped and came back up. The shape under the sheet did not change, and that steadiness was another kind of horror.
 
 He wanted to say Alex's name. Not to the brush, not as answer, not as lure. Just once, properly, to the covered shape on the ground. He did not. The wanting itself frightened him. It felt like stepping toward a voice.
 
@@ -516,7 +518,7 @@ All three men looked toward the alder.
 
 Nothing answered.
 
-One expected bad thing failed to arrive.
+For once, the world withheld the answer they feared.
 
 Mike opened the barrel. Oatmeal. Coffee. Noodles. Peanut butter. Rice packets. Will's spices in doubled bags. Alex's plain rice meals with his name written on duct tape in thick marker because he had claimed otherwise they would all get ideas. Everything was there. Nothing torn. No claw marks in the plastic. No food dragged through camp.
 
@@ -634,7 +636,7 @@ Mike spread the map on the turned canoe. He put stones on two corners. Will came
 
 "Back to First Camp," Will said.
 
-"Forward to the larger lake, then the marked site if we can make it," Mike said.
+"Forward to the larger lake, then the next marked camp if we can make it," Mike said.
 
 "If we can make it is not a plan."
 
@@ -740,7 +742,7 @@ Joel said, "Don't answer it."
 
 The words left him before he could weigh them. They were too loud in the morning and still not loud at all.
 
-They were also a rule, though he did not know that yet. A bad first draft of one. Do not answer what has no body. Do not let a sound turn you before your eyes had finished their work.
+They were also a rule, though he did not know that yet. A bad first draft of one. Do not answer what has no body. Do not let a sound turn you before your eyes have finished their work.
 
 Mike lifted the mostly spent spray toward the alder, then lowered it. Something in his face had gone older and smaller.
 

@@ -26,9 +26,11 @@ He had driven in from Madison the day before and slept badly on Will’s couch, 
 
 Here, the others had started the old argument before coffee. They could argue over rope, fuel, departure time, whether a cooler counted as a food-management system, whether a seven-day route meant six dinners or seven, whether a man approaching forty should still own a foam sleeping pad from college.
 
-This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions, four men making order by touching every object once and arguing over half of them. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. Pretend the knot was order because the knot held.
+This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions, four men making order by touching every object once and arguing over half of them. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. If the knot held, they called it order.
 
 Mara would have made one list and taped it to a cabinet. She would have put a square beside each name and item, then crossed things off with a satisfaction too small to call joy and too visible to miss. Joel had watched her do it for the wedding seating chart two nights before he left, barefoot in the kitchen, hair pinned badly off her neck, one hand in a bag of pretzels while she moved entire family histories across a screen. When she caught him watching, she had tipped one pretzel into his mouth without looking away from the chart. He had loved her most in moments like that, when competence was not an argument but a form of care.
+
+He wanted the life they were building. He wanted the house after the bad plumbing, the wedding after the deposits and tastings, the ordinary future past all the paperwork. What he did not want, or did not know how to want without flinching, was the constant saying of it. The trip offered a week with fewer nouns. Water. Pack. Fire. Rain. Food. Sleep.
 
 He had also left her with the list.
 
@@ -122,7 +124,7 @@ Alex turned to Joel. “Jesus, listen to this guy.”
 
 “Branching is a process.”
 
-Joel smiled despite himself and went to his trunk for the rest of his gear. He had packed neatly enough, but not obsessively. Will and Mike did the planning. They made the lists, argued routes, watched water levels, compared portage reports, and decided which old map was trustworthy enough to carry and which old map was trustworthy enough to mock. Joel asked a few practical questions, then showed up with what he was told to bring plus what he knew he would want when wet and tired. He was competent on the water, more than casual, less than Will and Mike, but he only got one real trip a year now if he was lucky. Work, code releases, travel from Madison, wedding machinery, house things, the ordinary undertow. He liked the trip because it made a week into one sentence: move north and keep the gear dry.
+Joel smiled despite himself and went to his trunk for the rest of his gear. He had packed neatly enough, but not obsessively. Will and Mike did the planning. They made the lists, argued routes, watched water levels, compared portage reports, and decided which old map was trustworthy enough to carry and which old map was trustworthy enough to mock. Joel asked a few practical questions, then showed up with what he was told to bring plus what he knew he would want when wet and tired. He was competent on the water, more than casual, less than Will and Mike, but he only got one real trip a year now if he was lucky. Work, code releases, travel from Madison, wedding machinery, house things, the ordinary undertow. He liked the trip because it made a week into one line: move north, keep the gear dry, get everyone back.
 
 Will and Mike went several times some years. Small rivers, shoulder-season overnights, route tests, gear shakedowns that sounded to Joel like recreation disguised as logistics. Mike sold and resold canoes and took it personally when anyone used the wrong tie-down. Will fished every piece of water that looked like it might tolerate him.
 
@@ -176,7 +178,7 @@ Mike pointed at the rods. “They better not be in the way.”
 
 “That I believe.”
 
-By ten-thirty they had loaded enough to reveal what would not fit. This produced a second round of decision-making. The cooler was reduced. Alex surrendered a camp chair after accusing everyone of anti-comfort extremism. Mike tried to remove Joel’s extra fleece and was denied. Will argued for a second tarp on grounds of weather, group size, and general human fragility.
+By ten-thirty they had loaded enough to reveal what would not fit. This produced a second round of decision-making. The cooler was reduced. Alex surrendered a camp chair after accusing everyone of anti-comfort extremism, then carried the rejected cooler back to the garage without being asked. Mike tried to remove Joel’s extra fleece and was denied. Will argued for a second tarp on grounds of weather, group size, and general human fragility.
 
 Mike said, “Forecast is clean.”
 
@@ -238,7 +240,7 @@ Alex kept his own life closer. Or emptier. Joel could never tell which. There we
 
 Joel was engaged, which in the group made him both suspect and useful. Someone had to know about venues, contracts, and the price of flowers. The others treated it like a foreign war he had volunteered for. He let the jokes pass because answering made the subject larger, and because some part of him liked having one future the group could not vote on.
 
-That future had Mara in it, and a kitchen calendar with held dates crossed out and rewritten, and a house list that kept growing in the margins. The trip had none of that density yet. It was still clean on paper. Seven days, six nights. A blue line through old green, two vehicles at either end, men he knew by sound before sight.
+That future had Mara in it, and a kitchen calendar with held dates crossed out and rewritten, and a house list that kept growing in the margins. It had children as a question they had not answered and a guest room they kept pretending was only a guest room. The trip had none of that density yet. It was still clean on paper. Seven days, six nights. A blue line through old green, two vehicles at either end, men he knew by sound before sight.
 
 At the front rack, Alex stopped joking long enough to put one hand under the canoe while Mike worked the strap through the buckle. He had bad boat habits but good hands. When the hull shifted, he caught the weight and held it without calling attention to himself.
 
@@ -272,7 +274,7 @@ The drive north passed in stages. Suburbs gave way to fields, then to towns buil
 
 At the first stop, Mike walked around the truck and touched every strap.
 
-Mike tugged the rear line, watched the canoe settle, and gave the strap one last flat-palmed slap.
+Mike tugged the rear line, watched the canoe settle, and gave the strap one last flat-palmed slap. Worrying was checking before it had a task. Mike was better once his hands could do something with it.
 
 “We’re fine,” he said.
 
@@ -344,7 +346,7 @@ Joel saw Will’s mouth move around an answer and then close on it. Will did not
 
 Alex leaned over the map from the wrong side. “Where’s the cabin?”
 
-Mike’s finger moved to a small square back from the water. “Old maintenance cabin. Probably nothing. It’s on the old map.”
+Mike’s finger moved to a small square back from the water. “Map says there’s a cabin. Old maintenance cabin. Probably nothing.”
 
 “Cabin,” Alex said. “Now we’re talking.”
 

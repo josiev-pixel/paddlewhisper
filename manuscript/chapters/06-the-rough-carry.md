@@ -28,7 +28,7 @@ The current carried the first canoe around a low grass point. For a second only 
 
 Joel did not know why he kept the empty second in his mind. A man saw a boat vanish behind brush and come back. That was what bends did. The day was still only a day.
 
-Still, the channel had begun to shift sounds around. A hull scrape came from ahead after the hull that made it had cleared the gravel. Mike's paddle knocked once against a submerged stem and the note came back duller from the bank. Will said something too low to catch, and the alder returned only the shape of it. Nothing was wrong. Water carried sound. Brush broke it apart. The ordinary world had enough tricks without becoming anything else.
+Still, the channel had begun to loosen sound from source. A hull scrape arrived from ahead after the hull that made it had cleared the gravel. Mike's paddle knocked once against a submerged stem and the note came back duller from the bank. Will said something too low to catch, and the alder returned only the shape of it. Nothing was wrong. Water carried sound. Brush broke it apart. The ordinary world had enough tricks without becoming anything else.
 
 Beyond the run, the water widened.
 
@@ -84,7 +84,7 @@ Alex rolled his shoulders. His sleeves were still damp from the beaver work, and
 
 "Yes, Dad."
 
-Joel did not answer that, partly because the wind took the canoe then and partly because fatherhood, even as a joke, belonged to a room he had not entered yet. He and Mara had talked about children in the careful half-specific way people used when they wanted a future but did not want to set a trap for it. Maybe. Someday. If work held. If the house was not too small. If wanting did not turn too quickly into duty. She had said this at the kitchen counter in Madison, one hand on the mail, the other on a tape measure because they were supposed to be deciding whether a crib would ever fit in the small back room. Then she had put the cold end of the tape against his chest and told him to stop looking like a man asked to approve municipal debt. Joel had laughed. He had said there was time. He had been saying that about many things.
+Joel did not answer that, partly because the wind took the canoe then and partly because fatherhood, even as a joke, belonged to a room he had not entered. He and Mara had talked about children in the half-specific way people used when they wanted a future but did not want to trap it. Maybe. Someday. If work held. If the small back room could be made into something other than storage and postponement. She had stood there with a tape measure in one hand and contractor mail under the other, then touched the cold metal end to his chest and told him to stop looking like a man asked to approve municipal debt. Joel had laughed. He had said there was time. He had been saying that about many things.
 
 Here there was no room for the future to be that grammatical. There was only the next stroke, the next gust, Alex in front of him dipping too hard on one side, the canoe wanting to turn its face to the wind.
 
@@ -152,7 +152,7 @@ A few strokes later, after Mike's canoe had gone behind a standing dead pine on 
 
 Stay in.
 
-Not a voice, Joel told himself. Not even words, really. Wind in spruce. Mike's last call snagged and thrown back by the bank, thinned until it sounded as if the shore had kept only the useful part. The lake was shaped for tricks: rock face, water, trees bent in one direction, all of it taking a simple sound and shaving the source from it. Joel looked ahead until he had Mike's shoulders in the back of the canoe, Will's cap low over the map case, both bodies attached to the sound after the fact. Sight settled the matter, or gave him permission to keep paddling.
+Not a voice, Joel told himself. Not even words, really. Wind in spruce. Mike's last call snagged and thrown back by the bank, thinned until it sounded as if the shore had kept only the useful part. The lake was shaped for tricks: rock face, water, trees bent in one direction, all of it taking a simple sound and shaving the source from it. Joel looked ahead until he had Mike's shoulders in the back of the canoe, Will's cap low over the map case, both bodies attached to the sound after the fact. Sight did not explain the echo. It only gave him permission to keep paddling.
 
 "What?" Alex said.
 
@@ -234,7 +234,7 @@ Will rolled his shoulders. The pack sat better. "That was almost useful."
 
 "Also multitudes of crackers."
 
-Joel looked away before Alex could catch him looking. He had wanted the clean pleasure of annoyance and had been handed evidence against it. That was Alex's worst habit, maybe: not the performing, not the needling, but the way some small honest usefulness would appear inside it and make judgment feel cheap. A man could be exhausting and still good. The hard part was having to keep both facts.
+Joel looked away before Alex could catch him looking. He had wanted the clean pleasure of annoyance and had been handed evidence against it. That was Alex's worst habit, maybe: not the performing, not the needling, but the way some small honest usefulness would appear inside it and make judgment feel cheap. A man could be exhausting and still good. The hard part was not letting either fact erase the other.
 
 Will did not thank him again, but when he lifted the pack he lifted it as if trusting the adjustment. That was the kind of gratitude their group allowed: an argument dropped before it could become one, a correction swallowed, a hand not slapped away the second time. Alex missed it because he was wringing water from one sleeve and making a face at the lake. Joel did not miss it.
 
@@ -348,7 +348,7 @@ Joel tilted right. Alex lifted the nose just enough. The canoe cleared the blowd
 
 Not silent. Still.
 
-Joel stood on the far side, breathing hard. The canoe pressed his shoulders. A fly landed on his cheek and walked there. Somewhere beyond the blowdown, the brush held the shape of their passage and then lost it.
+Joel stood on the far side, breathing hard. The canoe pressed his shoulders. A fly landed on his cheek and walked there. Somewhere beyond the blowdown, the brush held the shape of their passage and then lost it. One alder stem kept trembling after everything else had stopped.
 
 "You're welcome," Alex said, but softly, as if the stillness had reached him too.
 
@@ -397,6 +397,8 @@ Alex looked at Joel. "See? Answered."
 Joel started walking.
 
 There were explanations, and because there were explanations Joel used them. Sound bent under a canoe. Sound bounced off rock. Will might have coughed ahead and the hull might have held it, then thrown it behind him. A bird might make a dry click almost like a cough. Another group might be somewhere on the route, though they had seen no boats and heard no voices. He had seen Will cough now. He put that fact on top of the other sound and made it heavier.
+
+He did not tell Alex what he had checked for: Will's red PFD, Mike's shoulders, the empty trail behind him. He was not ready for the act of checking to need an audience.
 
 He told himself all this while the trail climbed.
 
@@ -514,7 +516,7 @@ Halfway down, something cracked off to the right.
 
 All four men stopped. Not dramatically. Just the same small halt, bodies arriving at caution before conversation.
 
-The crack was followed by a brushy movement low in the spruce and alder, quick enough to be an animal and brief enough to be nothing.
+The crack was followed by a brushy movement low in the spruce and alder, quick enough to be an animal and brief enough to be nothing. Joel found the three other men before he let himself study the brush: Mike with one hand still near the barrel strap, Will half-turned, Alex gone still with his mouth closed.
 
 Will whispered, "You guys hear that?"
 
@@ -560,7 +562,7 @@ On the climb back, the food barrel took turns punishing each of them. Mike carri
 
 The barrel latch clicked once against the buckle when he shifted it higher, the same clean plastic sound Alex had made fixing Will's strap.
 
-He knew what it was. He was holding it. Still, the small hard sound made him look down. An object could be in his hand and still make him check its source.
+He knew what it was. He was holding it. Still, the small hard sound made him look down. He saw the latch, the buckle, his own hand whitening around the strap. The source was present and still he had to confirm it.
 
 At the rise, they loaded again. Nobody said lunch. Lunch had happened in the boats, in pieces, hours ago. Nobody said second camp as if naming it would make it closer. The afternoon had moved from warm to heavy. The light under the trees had flattened, and the brightness over the water beyond the trail had taken on the dull pewter look that came before evening.
 
@@ -598,7 +600,7 @@ Then, behind him, from uptrail, came a soft click.
 
 Not a branch. Not quite.
 
-A buckle, maybe. A pack strap settling. One hard plastic tooth touching another.
+A buckle, maybe. A pack strap settling. One hard plastic tooth touching another. All the packs were ahead of him now, or supposed to be.
 
 Joel turned his head and the canoe turned with him, awkward and slow. The trail behind was empty. It rose between spruce trunks, already dark in the spaces where the afternoon could not get in. He stood still, listening. His breath filled the hull. His heartbeat moved in his ears. There was only wind high in the trees and the small water ahead.
 
@@ -608,7 +610,7 @@ He faced forward again. "Coming."
 
 "Or writing a poem?"
 
-The old joke irritated him less this time. Maybe because Alex sounded tired. Maybe because the question, repeated at a distance on a narrow trail, made the space behind Joel feel briefly inhabited by all the ordinary things that could have made that click: the remaining pack, a loose strap, a branch springing back, their own passage settling after them. The woods kept giving him half a sound and making him supply the rest. Each answer was reasonable. None of them stayed answered.
+The old joke irritated him less this time. Maybe because Alex sounded tired. Maybe because the question, repeated at a distance on a narrow trail, made the space behind Joel feel briefly inhabited by all the ordinary things that could have made that click: a loose strap, a branch springing back, their own passage settling after them. The woods kept giving him half a sound and making him supply the rest. Each answer was reasonable. None of them stayed answered.
 
 "Neither," Joel said. "I'm suffering plainly."
 
@@ -686,7 +688,7 @@ Second Camp.
 
 No one said thank God. They were not that kind of men, or not where the others could hear. They pulled the boats higher and set packs in a line above the mud. The day had taken longer than Mike had promised and longer than Joel had privately allowed. It had not broken anything yet. It had only spent them down and placed them here, at a camp with poor sightlines and close brush and water talking quietly behind it.
 
-The fire ring had been used recently enough to hold blackened foil, but not recently enough to mean company. Two cut log ends lay half-rotten at the edge of the opening. Beyond them the brush came close, alder and young spruce knitted tight enough that anything ten yards out would be sound before it was shape. The channel behind them kept moving, narrow and dark, taking the late light in broken pieces. It was the kind of camp that asked men to pretend the circle was larger than it was.
+The fire ring had been used recently enough to hold blackened foil, but not recently enough to mean company. Two cut log ends lay half-rotten at the edge of the opening. Beyond them the brush came close, alder and young spruce knitted tight enough that anything ten yards out would be sound before it was shape. The channel behind them kept moving, narrow and dark, taking the late light in broken pieces.
 
 Alex stepped into the opening and turned once, assessing it with theatrical injury and real fatigue.
 

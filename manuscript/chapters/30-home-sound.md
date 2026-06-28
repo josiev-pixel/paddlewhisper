@@ -6,13 +6,13 @@ The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The ph
 
 Joel did not sleep much.
 
-In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. Mara would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. She had taken the clock off the dresser after the second night because its motor worried him; she had put it in the linen closet and then hated herself for doing it, as if the house had begun to take orders from his damage. Before the trip she had slept through sirens, thunder, the garbage truck taking the alley too fast. Now she woke when he woke, or pretended not to, granting him the privacy of not being watched while she watched him anyway.
+In the first week after the hospital, he slept in pieces and woke as if someone had called his name from the next room. No one had. Mara would be beside him, visible in the gray from the window, one arm bent under the pillow, hair across her cheek, mouth open slightly in the unguarded way sleep made possible. She had taken the clock off the dresser after the second night because its motor worried him; she had put it in the linen closet and then stood there with the folded towels, angry at herself, as if the house had begun to take orders from his damage. Before the trip she had slept through sirens, thunder, the garbage truck taking the alley too fast. Now she woke when he woke, or pretended not to, giving him the privacy of not being watched while she watched him anyway.
 
-He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge.
+He would watch her chest rise and fall. He would tell himself the rule was finished. The rule belonged to water, spruce, alder, bad maps, a canoe pulled onto gravel under a bridge. A locked vehicle. A dispatcher with a callback number. A hospital room with names on badges.
 
 Then the house would click.
 
-Wood contracting. Ductwork. Ice maker. A neighbor's car door closing too hard. Somebody's dog once, high and offended behind a fence two houses down. The city had always been noisy, but before the trip noise had been background. Now every sound needed a source before it could fall back into the room.
+Wood contracting. Ductwork. Ice maker. A neighbor's car door closing too hard. Somebody's dog once, high and offended behind a fence two houses down. The city had always been noisy. Before the route, noise had been weather inside a life. Now every sound needed a source before it could fall back into the room.
 
 He gave each one a source.
 
@@ -40,11 +40,11 @@ He wanted to apologize. The word seemed useless and also necessary.
 
 "No," she said. "You don't yet."
 
-After that she did come to doorways. She also slammed a cabinet once on purpose, not hard, just enough to remind the house that it was hers too. Joel flinched. Mara did not apologize for the cabinet. He was grateful later and angry in the moment and knew both things were fair.
+After that she did come to doorways. She also slammed a cabinet once on purpose, not hard, just enough to remind the house that it was hers too. Joel flinched. Mara did not apologize for the cabinet. He was grateful later and angry in the moment, and both facts had to live in the same room.
 
 People wanted language from him.
 
-The police called first, then called again with different people and better forms. Conservation officers, county investigators, a woman from a state agency whose title Joel forgot while she was still saying it. Insurance. Search coordinators. Hospital billing. A victim-services person with a careful voice. The sheriff's office mailed a property receipt for the small pack, the notebook, his ruined phone, Mike's key, the blue dry bag, the emergency paddle, and the clothes cut from him in the hospital. Someone had typed each item into a box. The boxes looked calm.
+The police called first, then called again with different people and better forms. Conservation officers, county investigators, a woman from a state agency whose title Joel forgot while she was still saying it. Insurance. Search coordinators. Hospital billing. A victim-services person with a careful voice. The sheriff's office mailed a property receipt for the small pack, the notebook, his ruined phone, Mike's key, the blue dry bag, the emergency paddle, and the clothes cut from him in the hospital. Someone had typed each item into a box. The boxes looked calm, as if objects became less terrible when named one at a time.
 
 They needed dates, weather, last known locations, gear lists, next of kin, whether the route had been altered by choice or necessity, whether any of the men had consumed alcohol, whether anyone had expressed suicidal intent, whether an animal had been seen, whether he could describe the animal if he had not seen it.
 
@@ -56,7 +56,7 @@ He looked at the notebook on the kitchen table. He had not opened it yet. Its co
 
 "I did not see an animal clearly," he said.
 
-That was true. It was the amount of truth a form could hold.
+That was true. It was as much truth as that form could hold.
 
 They asked what he had heard.
 
@@ -78,7 +78,7 @@ That was also true.
 
 The official story grew without him and then around him. Animal attack. Fatal injuries. Severe weather. Disorientation. Exposure. Separation. Possible drowning. Survivor trauma. No evidence of foul play. Unusual circumstances. Remote terrain. Search suspended, resumed, adjusted by probability and weather and daylight.
 
-The words entered newspapers, calls, emails, family messages, agency updates. Each version was shorter than the last. Four men went in. One came out. A bear was suspected, then not confirmed. Alex had been recovered. Evidence near the old cabin made Mike official enough for papers. Searchers had found Will's pack and gear near the final portage, but not Will. That sounded technical until Joel tried to sleep.
+The words entered newspapers, calls, emails, family messages, agency updates. Each version was shorter than the last. Four men went in. One came out. A bear was suspected, then not confirmed. Alex had been recovered. Evidence near the old cabin made Mike official enough for papers. Searchers had found Will's pack and gear near the final portage, but not Will. It sounded technical until Joel tried to sleep.
 
 The lack of a satellite messenger was noted by people who had never stood at Will's truck while the trip still looked like a trip. The phrase experienced outdoorsmen appeared once, then disappeared under comments from strangers who believed all dead men had made one obvious mistake.
 
@@ -88,7 +88,7 @@ He did not stop being read.
 
 Mara read longer than he did. Not the comments, she told him, and not the amateur maps people posted with red circles and arrows, but the agency updates, the corrections, the names spelled wrong and then fixed. She did not report these things unless he asked. He almost never asked. Sometimes she shut the laptop with both hands as if closing a box that had begun to leak.
 
-She had always been better than he was at the civic machinery of things: forms, minutes, revised agendas, the quiet violence of getting ten adults to agree on a date. Before the route, that competence had embarrassed him when it turned toward the wedding. Afterward it kept the house from dissolving into unopened envelopes and messages he could not return. She printed what needed printing, called who needed calling, then went to the porch and breathed through her mouth where he would not have to see her cry.
+She had always been better than he was at the civic machinery of things: forms, minutes, revised agendas, the quiet violence of getting ten adults to agree on a date. Before the route, that competence had embarrassed him when it turned toward the wedding. Afterward it kept the house from dissolving into unopened envelopes and messages he could not return. She printed what needed printing, called who needed calling, then went to the porch and breathed through her mouth where he would not have to see her cry. She did not become his secretary. She kept her work calendar. She sent him links to trauma counselors and did not ask whether he opened them. She wrote funeral dates on the kitchen calendar in black ink because black was the pen in her hand.
 
 The families called.
 
@@ -110,7 +110,7 @@ On the other end, Will's mother made a small sound. Not quite a sob. More like a
 
 "But he wasn't alone at the end," Joel said.
 
-He had not meant to say it. It was true in the worst way and false in the only way that mattered. Will had been visible, then not. Joel had been there until he was not there enough. No sentence could hold the exact distance between them at the end.
+He had not meant to say it. It was true in the worst way and false in the only way that mattered. Will had been visible, then not. Joel had been there until he was not there enough. No sentence could hold the exact distance between them at the end. He had offered her the sentence anyway, because the exact distance would not help a mother sleep.
 
 "Thank you," she said.
 
@@ -156,7 +156,7 @@ He came back because the living had to be answered. Survival had taught him not 
 
 The brother asked what Alex's last good day had been like.
 
-Joel told him about Second Camp only up to the fire. That felt wrong, so he went backward. He told him about Alex turning a bad landing into theater. He told him about the bland food in the dry bag and the hot sauce Alex carried as if it were someone else's personality he had agreed to try on. He told him about Alex fixing Will's pack strap when he thought no one was watching. He told him Alex had been strong in a canoe, bad at being quiet, and game for the ugly parts in the way men sometimes are when they think discomfort will become a story later.
+Joel told him about Second Camp only up to the fire. That felt wrong, so he went backward. He told him about Alex turning a bad landing into theater. He told him about the bland food in the dry bag and the hot sauce Alex carried as if it were someone else's personality he had agreed to try on. He told him about Alex fixing Will's pack strap when he thought no one was watching. He told him Alex had been bad at being quiet and game for the ugly parts in the way men sometimes are when they still believe discomfort will become a story later.
 
 "That sounds like him," the brother said.
 
@@ -190,7 +190,7 @@ Weeks passed. The world resumed its competence.
 
 Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. Mara went back to work and came home carrying the odors of other rooms: printer toner, rain on wool, somebody's microwave popcorn, the sharp soap from the restroom there. Her job had a thousand small schedules in it. People moved from one room to another, meetings shifted, budgets corrected, names spelled right before a document went out. Some evenings she came home with no patience left for managing his fear too.
 
-She put her keys in the blue bowl by the door even when he asked her not to drop them from standing height. Some nights she went for a run before dinner and returned red-faced and angry with herself for needing air that did not include him.
+She put her keys in the blue bowl by the door even when he asked her not to drop them from standing height. Some nights she went for a run before dinner and returned red-faced and angry with herself for needing air that did not include him. She ate cereal over the sink when he could not make dinner decisions. She slept once at her sister's apartment and came back in the morning with coffee and no apology.
 
 Someone from work asked whether he planned to ease back in. His manager used phrases like no pressure and whenever you're ready, which meant there was pressure and a date had to exist somewhere. His laptop waited on the desk. The cursor blinked in old code as if no week could be large enough to stop it.
 
@@ -214,7 +214,7 @@ After twelve minutes he closed the laptop.
 
 The house became his route.
 
-Bed to bathroom. Bathroom to kitchen. Kitchen to back door. Back door to porch. Porch to the small square of yard where rain collected under the maple and the neighbor's garage light clicked on at dusk. He learned which stair complained under weight, which hinge needed oil, which window rattled when wind came from the west. He learned that the dishwasher made three latches in its cycle, not two. He learned the furnace gave one metal tick before the blower, then four softer ticks when the duct warmed along the north wall.
+Bed to bathroom. Bathroom to kitchen. Kitchen to back door. Back door to porch. Porch to the small square of yard where rain collected under the maple and the neighbor's garage light clicked on at dusk. He learned which stair complained under weight, which hinge needed oil, which window rattled when wind came from the west. He learned that the dishwasher made three latches in its cycle, not two. He learned the furnace gave one metal tick before the blower, then four softer ticks when the duct warmed along the north wall. He learned that knowing did not make a sound harmless. It only gave him something to say before fear took the room.
 
 Some days he made lists because lists had kept him alive.
 
@@ -242,11 +242,11 @@ She read it while he watched her face. There was no pity in it at first. Pity wo
 
 "It looks like you're trying to know where you are."
 
-He laughed once. The sound surprised both of them. It came out rough and brief, a body coughing up the shape of a former life.
+He laughed once. The sound surprised both of them. It came out rough and brief, a body finding the shape of a former life.
 
 Her eyes filled and she looked away before he had to.
 
-They did not set a wedding date. They had already had one, then lost it in the administrative wake after the trip. Venue emails kept arriving in cheerful fonts. Floral deposit. Catering adjustment. Final guest count. Joel had once made jokes about chair covers and signature drinks while Mara tried to find out whether his mother needed the accessible entrance and whether Will could be trusted with a toast. Now the old choices seemed like evidence from a species he had only read about.
+They did not set a wedding date. They had already had one, then lost it in the administrative wake after the trip. Venue emails kept arriving in cheerful fonts. Floral deposit. Catering adjustment. Final guest count. Joel had once made jokes about chair covers and signature drinks while Mara tried to find out whether his mother needed the accessible entrance and whether Will could be trusted with a toast. Now the old choices seemed like evidence from a species he had only read about. Mara made a folder called later and moved every message there herself.
 
 She cancelled the tasting without asking him.
 
@@ -290,7 +290,7 @@ That was mercy. Not the touch. The sequence.
 
 He opened the notebook in October.
 
-He did it in daylight, at the kitchen table, with the back door open and traffic audible on the cross street. The air had cooled enough that the house smelled faintly of leaves. He placed a glass of water on the left, a pencil on the right, and the notebook between them as if arranging tools before a repair.
+He did it in daylight, at the kitchen table, with the back door open and traffic audible on the cross street. The air had cooled enough that the house smelled faintly of leaves. He placed a glass of water on the left, a pencil on the right, and the notebook between them as if arranging tools before a repair. He had meant to open it when Mara was at work. That was another kind of hiding.
 
 The first pages were ordinary enough to hurt. Gear counts. Miles estimated. Weather. Food. Jokes half recorded because Joel had once believed he might write a trip report. Alex complains about oatmeal. Mike says old map better than new lies. Will says compression sack is not compression if you just bully it.
 
@@ -308,13 +308,13 @@ OBJECTS ARE SAFER THAN NAMES.
 
 NO CEREMONY UNTIL ROAD.
 
-He did not remember writing the last one. It undid him more completely than the others.
+He did not remember writing the last one. It undid him more completely than the others. He had made survival a condition for grief and then survived.
 
 Mara found him with his forehead on the table and his hands flat beside the notebook, not touching it. She said his name from the doorway. He heard the sound and saw her body and nodded before she came closer.
 
 "Do you want me to read it?" she asked.
 
-He heard what she did not add. Do you want me to know it. Do you want me to carry it. Do you want me to become another place where it lives.
+He heard what she did not add. Do you want me to know it. Do you want me to carry it. Do you want me to become another place where it lives. Do you want me to see what you kept from everyone else.
 
 He did not know.
 
@@ -446,7 +446,7 @@ Visible.
 
 He went downstairs.
 
-The living room lamp had been left on low. Its shade made a weak circle over the couch, the coffee table, a book facedown where he had abandoned it two nights before. The rest of the room held its objects in soft dark: coat hooks by the door, boots on the mat, the little table where mail accumulated, a plant Will would have identified incorrectly on purpose because houseplants annoyed him.
+The living room lamp had been left on low. Its shade made a weak circle over the couch, the coffee table, a book facedown where he had abandoned it two nights before. The rest of the room held its objects in soft dark: coat hooks by the door, boots on the mat, the little table where mail accumulated, a plant Will would have identified incorrectly on purpose because houseplants annoyed him. The room was known. That was not the same as safe.
 
 Joel sat on the couch.
 
@@ -476,7 +476,7 @@ Not a cough. Not a pipe's knock. The small preparatory sound before a plan, befo
 
 Joel's hands closed on the blanket.
 
-The sound had sources available if he needed them. Pipe. Vent. Wood. Memory. A tired mind laying an old pattern over new weather. The list was long enough to live inside.
+The sound had sources available if he needed them. Pipe. Vent. Wood. Memory. A tired mind laying an old pattern over new weather. The list was long enough to live inside. It was not long enough to end the listening.
 
 He held to the list because it was useful.
 

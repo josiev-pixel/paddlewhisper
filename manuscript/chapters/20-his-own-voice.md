@@ -2,11 +2,13 @@
 
 After Joel heard himself, the trip reached backward.
 
-Until then, some private part of him had kept a boundary. The thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. It began where the world had broken badly enough to deserve it. A man could bear almost anything if he could make the worst of it begin after his own innocence.
+Until then, some private part of him had kept a boundary. The thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. It began where the world had broken badly enough to deserve it. A man could bear almost anything if he could draw one line through time and keep one side clean.
 
 His voice proved otherwise.
 
 It had been near from the beginning, or near enough. At the landing. At the first water. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it. The week did not begin with Alex stepping past the light. It reached back and put a hand on the first boat, the first strap, the first harmless correction.
+
+Joel felt the theft in his mouth. Not in memory only. In the hinge of his jaw, in the place where a word gathered before it became air. He had believed, stupidly and without admitting it, that quietness left less of a man outside himself. Now even restraint had a sound.
 
 Will kept looking at him as if Joel might explain what a man was supposed to do with the sound of himself.
 
@@ -24,7 +26,7 @@ Will underlined them once, then added:
 
 ONLY SOUND.
 
-Joel felt something rise hard enough that it almost became speech. No. Don't. Stop making it smaller. Stop trying to help me by lying in a quieter medium.
+Joel felt something rise hard enough that it almost became speech. No. Don't. Stop making it smaller. Stop trying to make a lie safer by putting it in pencil.
 
 His mouth opened.
 
@@ -34,11 +36,11 @@ Joel shut his mouth so sharply his teeth clicked. The sound seemed enormous, a h
 
 He took the notebook back and wrote:
 
-IT IS USEFUL SOUND.
+USEFUL SOUND.
 
 Then, because that was not enough:
 
-THAT IS WORSE.
+WORSE.
 
 Will read it and did not argue. The mercy of that cost him. Joel could see it in the muscles at his jaw, in the way his eyes wanted to move past the page and make a theory out of everything. He wanted to say that sound was not self, that repetition was not presence, that a copy did not own the thing copied. He was probably right. It did not help.
 
@@ -68,7 +70,7 @@ Joel did not turn.
 
 Will did. Not toward the voice, but toward Joel.
 
-That was the rule doing its work. It should have comforted him. Instead it made him jealous for one stupid second. Will trusted the page faster than he trusted Joel's face now. The page had become a third body between them, thinner than a man and colder, but harder to imitate.
+That was the rule doing its work. It should have comforted him. Instead it made him jealous for one stupid second. Will trusted the procedure faster than he trusted Joel's face. The page had become a third body between them, thinner than a man and colder, but harder to imitate.
 
 Joel lifted two fingers to his eyes. Will nodded.
 
@@ -116,7 +118,7 @@ Stop. Look first.
 
 Will swallowed. He nodded once, too hard.
 
-They stood at the edge of the cache and inspected it like men approaching an animal that might only be sleeping.
+They stood at the edge of the cache and inspected it like men approaching a bad landing in high water: slow, humble, expecting the ordinary thing to punish speed.
 
 No tracks made sense. Their own prints from yesterday had been softened by rain and overrun by new disturbances: long smears in mud where the canoe had dragged; two round punched places that might have been the ends of branches; shallow half-moons from Will's sandals or Joel's or Mike's, all blurred into each other. Near the alder stem, the mud held a line of compressed grass as if someone had knelt, or as if the rope had been pulled low. Joel did not write any of it down. A written fact still needed a fact under it.
 
@@ -140,7 +142,7 @@ Will closed his mouth.
 
 The question hung between them anyway.
 
-Can it tie knots? Can it understand what tied means? Can a trap be a trap if it only knows pressure, rope, and waiting?
+Can it tie knots? Can it understand what tied means? Can a trap still be a trap if it only knows pressure, rope, and waiting?
 
 Joel took the notebook out.
 
@@ -230,11 +232,11 @@ STAY VISIBLE.
 
 Will nodded.
 
-They made a pile of what would go. Food barrel and cached food bags, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. The small blue dry bag with the emergency paddle stayed lashed under the front seat, more fixture than cargo. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
+They made a pile of what would go. Food barrel and cached food bags, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
 
 Every decision reduced four men to two. It was not sentimental math. It was volume and weight. One pot. One tarp. Two bags. One boat. The extra things had once meant comfort, redundancy, preference, personality. Now extra meant time at the shore.
 
-They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left the extra cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. Joel found Alex's cracked headlamp in the small bag of remaining things and wrapped it in a shirt because light still made an argument for itself. The hot sauce bottle stayed with Alex's odds. So did the wrapper, the dead batteries, the useless pocket trash no one could make meaningful or throw away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to what two men could lift.
+They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left the extra cookware, a small sack of trash, the bent tent stakes, and a spoiled snarl of cord too short to matter. Joel found Alex's cracked headlamp in the small bag of remaining things and wrapped it in a shirt because light still made an argument for itself. The hot sauce bottle stayed with Alex's odds. So did the wrapper, the dead batteries, the useless pocket trash no one could make meaningful or throw away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to what two men could lift.
 
 Will picked up the rod tube last.
 
@@ -280,7 +282,7 @@ YES.
 
 He tore that small corner of page away, folded it once, and put it into the rod tube before he slid the tube under the canoe. Joel did not stop him. A note that said only yes could not help the rods. It could mark that someone had known what was being left.
 
-They loaded the canoe low. Food barrel near the center. Heavy bag against it. Sleeping bags compressed badly under the thwart. Map case flat and reachable. Alex's cracked headlamp went in Joel's smaller pack, wrapped in the shirt. Mike's cap was already deep in Will's pack, unseen but present in the way kept things were. Hatchet tucked beside Will but not under anything. Spare paddle lashed where Joel could see it. Every buckle they closed sounded too loud. Every strap pull was a small confession. The thing had all of these sounds already. That did not make giving them again feel harmless.
+They loaded the canoe low. Food barrel near the center. Heavy bag against it. Sleeping bags compressed badly under the thwart. Map case flat and reachable. Alex's cracked headlamp went in Joel's smaller pack, wrapped in the shirt. Mike's cap was already deep in Will's pack, unseen but present in the way kept things were. Hatchet tucked beside Will but not under anything. Spare paddle lashed where Joel could see it. The small blue dry bag stayed under the front seat with the emergency paddle inside it. Every buckle they closed sounded too loud. Every strap pull was a small confession. The thing had all of these sounds already. That did not make giving them again feel harmless.
 
 From the alder behind the cache, Mike cleared his throat.
 
