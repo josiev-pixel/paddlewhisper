@@ -1,6 +1,6 @@
 # Chapter 22 - The Channel
 
-Morning came with frost on the tarp edge and no sleep worth keeping.
+Morning came with frost along the tarp edge and no sleep worth keeping.
 
 Joel knew he had gone under once or twice because each time he came back the world had shifted without moving. The fog had thickened. The canoe had become a darker shape. Will had changed from one curled outline under the tarp to another, closer to the food barrel, his bad hand held up against his chest as if sleep had required him to protect it too. But none of it had the depth of rest. It was more like being dropped through a hole and jerked back by the rope on his wrist.
 
@@ -10,7 +10,7 @@ He lifted his hand slowly. The shortened painter ran from his wrist to the drift
 
 For a while Joel did nothing but look at it.
 
-The boat had not moved. The rope had not been cut. The knot had not slipped. The food barrel stood under the tarp between them, black ring closed. Will was visible. Joel was visible to himself in pieces: hand, sleeve, wet pant leg stiff with cold, the dark crescents under his nails from mud he had stopped noticing. The painter had bitten a shallow red groove around his wrist. It looked like proof and like punishment for needing proof.
+The boat had not moved. The rope had not been cut. The knot had not slipped. The food barrel stood under the tarp between them, black ring closed. Will was visible. Joel was visible to himself in pieces: hand, sleeve, wet pant leg stiff with cold, dark crescents of mud under his nails. The painter had bitten a shallow red groove around his wrist. It looked like proof and like punishment for needing proof.
 
 He pressed two fingers to the inside of his jacket and felt the hard nub of the Highlander key without opening the zipper.
 
@@ -32,7 +32,7 @@ Will hated that. Joel saw it in the set of his mouth.
 
 Will accepted the opened packet anyway.
 
-The old Will would have made a remark about assistive technology, or about how the human hand was an overrated interface, or about Mike buying medical tape that had the adhesive integrity of wet lasagna. Any one of those would have irritated Joel. Any one of them would have made the morning human. Instead Will pinched the packet between two fingers and ate without looking up.
+The old Will would have made a remark about assistive technology, or about how the human hand was an overrated interface, or about Mike buying medical tape with the adhesive integrity of wet lasagna. Any one of those would have made the morning human. Instead Will pinched the packet between two fingers and ate without looking up.
 
 The water steamed where first light touched it. Not a true river here, not enough width or authority for that, but a channel under alder, moving because somewhere upstream more water insisted. It slid black and slow around the gravel bar, carrying leaves, foam, a sliver of bark turned pale-side up. The fog came off it in low torn strips. Where the sun found the surface, the mist rose and vanished. Where the spruce leaned over, it stayed close.
 
@@ -70,9 +70,9 @@ That was answer enough.
 
 They packed without speech. The tarp came down stiff and wet. Each fold made small crisp sounds where frost had settled along the edge. Joel hated all of them. Will held the food barrel steady while Joel tightened the strap. Joel held the canoe while Will lowered the first dry bag in with his good hand and knee. Every task took longer because every noise needed a witness.
 
-The worst part was that work still required trust.
+Work still required trust.
 
-Joel had to turn his back while Will lifted the hatchet and stowed it by his knee. Will had to look away while Joel checked the key by pressing two fingers to the inside of his jacket and not opening the zipper. They had to allow one another small unobserved movements. The rules demanded sight, but no human task could survive total sight. You could not pack a boat, tie a knot, piss, rewrap a wound, or sleep with another man's eyes fixed on you forever.
+Joel had to turn his back while Will lifted the hatchet and stowed it by his knee. Will had to look away while Joel checked the key by pressing two fingers to the inside of his jacket and not opening the zipper. The rules demanded sight, but no human task could survive total sight. You could not pack a boat, tie a knot, piss, rewrap a wound, or sleep with another man's eyes fixed on you forever.
 
 By morning, both of them were already in debt to what they could not verify.
 
@@ -98,15 +98,15 @@ They pushed off.
 
 The channel ahead bent through alder so tight the canoe entered it like a thought no one had room to finish. Branches leaned from both sides and touched above them in places, making a low ribbed tunnel. The water under the branches was black with leaves and tannin. Old beaver sticks lay half-sunk along the banks, stripped white at the ends. Grass mats floated loose in the eddies. Gravel showed through wherever the current thinned.
 
-Joel sat in back, paddle ready across his knees more often than in the water. Will sat in front, shoulders rounded, his good hand doing too much. The food barrel pressed between them. The tarp, wet sleeping bags, stove, filter, first-aid kit, map case, Mike's repair kit, hatchet, spare paddle, the small blue dry bag with the emergency paddle under the front seat, and the last useful pieces of the trip all rode low inside the hull.
+Joel sat in back, paddle ready across his knees more often than in the water. Will sat in front, shoulders rounded, his good hand doing too much. The food barrel pressed between them. Tarp, wet sleeping bags, stove, filter, first-aid kit, map case, Mike's repair kit, hatchet, spare paddle, and the small blue dry bag with the emergency paddle under the front seat all rode low inside the hull.
 
-The canoe moved with the burdened reluctance of something asked to do too much for two cold men and a route that kept narrowing.
+The canoe moved with the burdened reluctance of something asked to do too much.
 
 The blue bag stayed wedged where it had ridden since the cache. Joel had no use for it yet except as a fact. Blue. Front. Under. A child's description of an object, plain enough that fear could not dress it up.
 
 Joel made the first correction with a small draw. Will saw it and stopped paddling before the front hit the alder. Good. The boat slid by with only a brush of leaves along the side.
 
-They had become quicker with gestures. Two fingers to the eyes. Flat hand. Point. Fist. A palm turned down to slow. A touch to the food barrel to mean load. A point to the rope to mean watch the painter. These were not language exactly, but they were close enough that Joel distrusted them. Anything repeated became pattern.
+They had become quicker with gestures. Two fingers to the eyes. Flat hand. Point. Fist. A palm turned down to slow. A touch to the food barrel to mean load. A point to the rope to mean watch the painter. Not language exactly, but close enough that Joel distrusted them. Anything repeated became pattern.
 
 But the woods could not see a hand sign, he thought, and corrected himself before the thought could settle.
 
@@ -218,9 +218,9 @@ Will's eyes widened.
 
 Joel shook his head and kept them moving.
 
-He could feel the shape of Will's thought forming ahead of him. Boat sounds at boat moments. Voices at decision moments. Mike at movement, Alex at hesitation, Will at questions. Not random, Will would write if Joel let him. Joel could feel the pencil in Will's hand before Will reached for it.
+He could feel Will's thought forming ahead of him. Boat sounds at boat moments. Voices at decision moments. Mike at movement, Alex at hesitation, Will at questions. Not random, Will would write if Joel let him.
 
-Maybe it was understanding. Maybe it was only proximity and repetition. The difference mattered less when both could kill.
+Maybe it was understanding. Maybe it was only placement. The difference mattered less when both could kill.
 
 At the next shallow they had to get out again.
 
@@ -278,7 +278,7 @@ By late morning the fog had lifted. The sky showed itself in a dull lid of cloud
 
 The map case was still gritty at the seal. Joel opened it only when they could drift in a wider reach and Will could keep them from touching either bank. The paper inside had softened at the folds. Blue water lines, portage dashes, marsh marks, old campsite dots. Human symbols holding themselves together under plastic and damp.
 
-The channel they were on ran into a narrow lake if the map still told the truth. Beyond that, a portage tomorrow. Beyond that, water again. North Road Bridge beyond too many small decisions to count.
+The channel ran into a narrow lake if the map still told the truth. Beyond that, a portage tomorrow. Beyond that, water again. North Road Bridge beyond too many small decisions to count.
 
 Joel touched the place inside his jacket where the Highlander key rested.
 
@@ -290,7 +290,7 @@ Joel nodded.
 
 Car.
 
-The word had no sound between them and still seemed childish. A child's drawing of rescue. Four wheels, doors, heat, a road. Mike's old Highlander with its bad smell, cracked console, and little St. Louis Cardinals keychain he had mocked but never removed. Joel could see it too clearly. The dirty windshield. The map folded in the back seat. The spare sweatshirt Mike had probably left there because he left things in vehicles the way other men left messages.
+The word had no sound between them and still seemed childish. A child's drawing of rescue. Four wheels, doors, heat, a road. Mike's old Highlander with its bad smell, cracked console, and little St. Louis Cardinals keychain he had mocked but never removed. Joel could see it too clearly: dirty windshield, map folded in the back seat, spare sweatshirt Mike had probably left there because he left things in vehicles the way other men left messages.
 
 Will lifted one finger and traced on the damp plastic of the map case, not marking, only moving through the film of water:
 
@@ -342,7 +342,7 @@ He wrote:
 
 THAT IS NOT A RULE. THAT IS A PREFERENCE.
 
-Joel stared at the sentence. It was so Will that for one terrible second he almost heard it aloud. There is a difference. Preference. Rule. Evidence. Assumption. The old machinery of him still turning under frost and grief.
+Joel stared at the sentence. It was so Will that for one terrible second he almost heard it aloud. Preference. Rule. Evidence. Assumption. The old machinery of him still turning under frost and grief.
 
 Joel wrote:
 
@@ -394,7 +394,7 @@ NOT ONLY MIKE.
 
 Joel looked at the line and understood why Will had written it.
 
-The woods had not only stolen Mike's voice. It had found the part of Mike that still lived in Joel's decisions. Keep moving. Do not stop. Do not answer. Survive now, know later. Right did not mean harmless.
+The woods had not only stolen Mike's voice. It had found the part of Mike that still lived in Joel's decisions. Keep moving. Do not stop. Survive now, know later.
 
 He wanted to write, I know.
 
@@ -404,7 +404,7 @@ They went on.
 
 Afternoon thinned the day without warming it. The cloud lid brightened and then began to lose light at the edges. They ate while drifting in a wider stretch, each taking food from the same open bag without letting the canoe turn broadside. Will's hand shook worse after the cold water. Joel made him stop twice to flex it. The fingers moved, but the swelling had made the knuckles blunt. When Will closed them around the paddle shaft, his grip looked borrowed.
 
-Once, from the right bank, Will's dry cough sounded in three soft pieces.
+From the right bank, Will's dry cough sounded in three soft pieces.
 
 Will looked at the bank, then deliberately coughed once into his own shoulder.
 
@@ -437,8 +437,6 @@ Then a third from the left, dry and wrong, too much like a hand striking a canoe
 Will looked back at Joel, eyes sharp with the hunger to make a pattern of it.
 
 Joel shook his head before Will could reach for the notebook.
-
-Not here.
 
 Will's eyes narrowed. He understood the refusal and hated it.
 
@@ -492,7 +490,7 @@ IT HAS YOU TOO.
 
 Joel read it.
 
-The line should not have hurt. They had already known it. The voice had proved it near the cache. But knowledge changed when another person wrote it down. The page took the damage out of Joel's private body and put it between them. Will had seen the thing reach in and pull out a usable sound.
+The line should not have hurt. They had already known it. The voice had proved it near the cache. But knowledge changed when another person wrote it down. The page took the damage out of Joel's private body and put it between them.
 
 Joel took the pencil.
 
@@ -514,7 +512,7 @@ They continued.
 
 The channel lengthened into a straighter reach by late afternoon. Alder gave way to black spruce and tamarack. The banks rose a little. Gravel appeared in tongues along the inside bends. The water deepened enough that the canoe moved more cleanly. Wind came at them from ahead, small but steady, carrying the smell of open water.
 
-The map said the channel would join a longer lake. Narrow, but a lake. If they made enough distance today, tomorrow might hold the final portage. North Road Bridge beyond that. The Highlander beyond that, if the road and bridge and machine had all kept their promises.
+The map said the channel would join a longer lake. Narrow, but a lake. If they made enough distance today, tomorrow might hold the final portage. North Road Bridge beyond that. The Highlander beyond that, if road, bridge, and machine had kept their promises.
 
 Will's strokes began to fail before the lake.
 
@@ -610,15 +608,15 @@ CAN IT LEARN FROM WRITING?
 
 Joel looked at the question and felt a fear different from voices.
 
-He had treated writing as safer because the thing was sound. The page had become shelter, law, apology, argument, command. It had held them since the cabin. It had let grief pass between their hands without entering the air.
+He had treated writing as safer because the thing was sound. The page had become shelter, law, apology, argument, command. It had let grief pass between their hands without entering the air.
 
 But assumptions had killed better men than him.
 
-The entity could not read minds. They believed that. It could mimic sounds it had heard. They believed that too. Writing made only small noises: pencil on softened paper, page scrape, breath, sleeve against damp cover. It removed tone. It made Will's need to explain less immediately useful to the trees.
+The entity could not read minds. They believed that. It could mimic sounds it had heard. They believed that too. Writing made only small noises: pencil on softened paper, page scrape, breath, sleeve against damp cover. It removed tone.
 
 None of that proved the page was private.
 
-The thing did not have to read the words to learn the posture around them: the two bodies bent over one object, the long pause after a question, the way Will's anger steadied when the pencil was in his good hand. A written question still made a shape in the world. A written answer still taught the body to answer. The scratch from the left channel returned to Joel now. Twig or pencil. Animal or answer. Nothing he could use. Nothing he could dismiss.
+The thing did not have to read the words to learn the posture around them: two bodies bent over one object, the long pause after a question, the way Will's anger steadied when the pencil was in his good hand. A written question still made a shape in the world. The scratch from the left channel returned to Joel now. Twig or pencil. Animal or answer. Nothing he could use. Nothing he could dismiss.
 
 Joel wrote:
 
@@ -658,7 +656,7 @@ Joel wrote, pressing so lightly the pencil barely marked and made almost no soun
 
 I HEAR YOU HERE.
 
-Will read it. His face changed. For a moment all the argument went out of him, leaving only exhaustion and the old person Joel had known before jobs, before trips, before the group's jokes had become ammunition. The old person was not safer. He was only still there.
+Will read it. His face changed. For a moment all the argument went out of him, leaving only exhaustion and the old person Joel had known before jobs, before trips, before the group's jokes had become ammunition. Not safer. Only still there.
 
 Will touched two fingers to his own eyes, then pointed at Joel.
 

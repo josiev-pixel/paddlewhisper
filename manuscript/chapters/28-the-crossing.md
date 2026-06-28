@@ -2,7 +2,7 @@
 
 The last crossing was not large on the map.
 
-On paper it was a thumb's width of blue between two marks a man had made for convenience. Lake, outlet, bridge. A route folded small enough to slip into a plastic case. On the water, in the dark, alone, after seven days had been stripped down to one body's remaining heat, it was not small at all.
+On paper it was a thumb's width of blue between two marks a man had made for convenience. Lake, outlet, bridge. A route folded small enough to slip into a plastic case. On the water, in the dark, after seven days had been stripped down to one body's remaining heat, it was not small at all.
 
 Joel entered it through the black seam at the end of the channel, with the bridge still only an idea from paper and memory.
 
@@ -32,9 +32,9 @@ The canoe slid away from the bank. The current caught the front crooked and turn
 
 "That's not how that works," Will said, still at walking speed.
 
-The phrase struck where it was aimed. Will would have said it here. The boat angle was wrong. Joel was fighting current with exhausted arms and half a paddle. Water had rules even terror did not cancel. The voice did not have to understand the rule. It only had to know which sound made a man adjust himself.
+The phrase struck where it was aimed. Will would have said it here. The boat angle was wrong. Joel was fighting current with exhausted arms and half a paddle. Water had rules even terror did not cancel.
 
-Joel did not correct it.
+Joel did not answer the correction.
 
 The first stone hit under the hull with a flat crack. The canoe lifted, slewed, dropped. Cold water slapped over the left side and filled the space around Joel's sandals. His legs flinched before he could stop them. The paddle blade struck rock and skated. Aluminum rang through the shaft into his wrists.
 
@@ -58,7 +58,7 @@ No moon. No visible far shore. Only the feeling of the banks falling away and th
 
 Joel turned back once.
 
-The outlet had already narrowed to an absence between reeds. The channel did not look large enough to have produced him. It looked like a place a man could vanish into by mistake and never convince anyone there had been a way through. The map folded in the pack was almost funny now. Blue lines, black ticks, contour, bridge. Ink arguing with water.
+The outlet had already narrowed to an absence between reeds. The channel did not look large enough to have produced him. It looked like a place a man could vanish into by mistake and never convince anyone there had been a way through. The map folded in the pack had become almost comic. Blue lines, black ticks, contour, bridge. Ink arguing with water.
 
 He faced forward.
 
@@ -96,7 +96,7 @@ The laugh carried across the lake in pieces. Bark, break, smaller echo. It had b
 
 "You coming or writing a poem?" Alex called.
 
-Joel's throat tightened around the answer his old self would have given. Something dry. Something small enough to keep Alex going and make Will snort and Mike tell them to move. Answer the tease. Obey the useful call. Argue the correction. Accept the authority when someone had to decide. Their friendship had lived in those small permissions because none of them had been good at naming anything larger.
+Joel's throat tightened around the answer his old self would have given. Something dry. Something small enough to keep Alex going and make Will snort and Mike tell them to move. Their friendship had lived there, in the small permissions. Answer the tease. Obey the useful call. Argue the correction. Let authority decide when decision itself became relief.
 
 He kept his mouth closed.
 
@@ -106,11 +106,11 @@ Small waves now came at an angle across the front quarter. The canoe slapped, li
 
 Still there.
 
-That was the exit if anything was. Not voices. Not map promises. A piece of cut metal in a dead man's vehicle key, zipped into Joel's inner pocket because Mike had carried it as if a route could be kept in a pouch.
+That was the exit if anything was. Not voices. Not map promises. A piece of cut metal in a dead man's vehicle key, zipped into Joel's inner pocket because Mike had carried it as if the route could be kept there.
 
 The key had weight.
 
-So did the notebook. Damp against his ribs. Pages full of refusals. Rules that had not saved Alex, Mike, or Will. They had only taught Joel how to delay the first wrong movement. He thought of the penciled lines softening in their own moisture: NO NAMES. NO ANSWERS. ONLY SEEN IS REAL. SOUND IS BAIT. GIVE IT ONE THING.
+So did the notebook. Damp against his ribs. Pages full of refusals. Rules that had not saved Alex, Mike, or Will. They had only delayed the first wrong movement. He thought of the penciled lines softening in their own moisture: NO NAMES. NO ANSWERS. ONLY SEEN IS REAL. SOUND IS BAIT. GIVE IT ONE THING.
 
 He had given it one thing and the thing had made a chorus of it.
 
@@ -126,7 +126,7 @@ The voice shifted left.
 
 That one hurt differently.
 
-It came not loud, not taunting. Almost conversational, as Mike had said it on the first morning with the map spread against the hood of the Highlander. Back then it had been irritating. Now it was obscene. They were not where they ought to be. There was water, weather, a road somewhere beyond the black, and three men gone into sentences that would keep walking without them.
+It came not loud, not taunting. Almost conversational, as Mike had said it on the first morning with the map spread against the hood of the Highlander. Back then it had been irritating. Now there was water, weather, a road somewhere beyond the black, and three men gone into sentences that would keep walking without them.
 
 Joel's paddle stroke shortened. The boat slowed.
 
@@ -144,7 +144,7 @@ Will said, "No, no, no."
 
 From the front of the canoe.
 
-Joel did look then, because the front was inside his small circle of fact. There was no one there. Empty aluminum ribs, blue bag under the seat, headlamp loose between his knees throwing no light, black water past the canoe. The voice had come from where Will's back should have been if Will were alive and angry in the front, if his injured hand were wrapped in filthy tape, if he had turned to say Joel was taking the wrong line and this was exactly why words mattered.
+Joel did look then, because the front was inside his small circle of fact. There was no one there. Empty aluminum ribs, blue bag under the seat, headlamp loose between his knees throwing no light, black water past the canoe. The voice had come from the place Will's back should have occupied.
 
 "No, no, no," Will said again, flatter.
 
@@ -172,7 +172,7 @@ Then a dry-bag buckle clicked beside his left ear.
 
 Then paddle on gunwale, once, polite.
 
-The nonverbal sounds were worse than the voices now. A voice could be refused as dead. A zipper carried no death in itself. A latch did not grieve. A knock on a canoe had been useful for years before it became bait. Each small sound opened a room of the trip: first-night granite, the rain tarp at Second Camp, Mike's hands on straps, Will's rod case, Alex dropping a mug too hard and laughing before Mike could complain.
+The nonverbal sounds were worse than the voices now. A voice could be refused as dead. A zipper carried no death in itself. A latch did not grieve. A knock on a canoe had been useful for years before it became bait. Each small sound opened a room of the trip: granite shelf, rain tarp, Mike's hands on straps, Will's rod case, Alex dropping a mug too hard and laughing before Mike could complain.
 
 Joel let them open and did not step inside.
 
@@ -186,7 +186,7 @@ Maybe.
 
 The thought weakened him more than fear had.
 
-He had not believed in the bridge as a place. He had carried it as a function. Take-out. Vehicle. Road. Help. The mind did this when distance was too much. It turned the world into uses. Now the object itself began to gather in the dark: a horizontal line where no branch should hold that straight, a squared darkness beneath it, one dull fleck that brightened when a wave lifted him and disappeared when he dropped.
+He had not believed in the bridge as a place. He had carried it as a function. Take-out. Vehicle. Road. Help. Now the object itself began to gather in the dark: a horizontal line where no branch should hold that straight, a squared darkness beneath it, one dull fleck that brightened when a wave lifted him and disappeared when he dropped.
 
 Reflector.
 
@@ -240,13 +240,13 @@ The third came from the water under the bridge.
 
 Will: "You guys hear that?"
 
-The question should have been laughable. It was not. It was the old invitation to make listening communal, to turn fear into shared evidence. You guys hear that? If someone else heard it, the world had to admit it happened. Joel had left Will alone with his last question because that was how Joel stayed alive.
+The question should have been laughable. It was not. It was the old invitation to make listening communal, to turn fear into shared evidence. You guys hear that? If someone else heard it, the world had to admit it happened.
 
 The canoe ground on gravel.
 
 The sound was ordinary and so sudden that Joel nearly answered it.
 
-Stone under hull. The old trip language. Arrival. Landing. Lift before drag, if Mike was watching. Step out on the upstream side, if Will was correcting. Keep your weight low, if anyone still had a body to instruct.
+Stone under hull. The old trip language. Arrival. Landing. Lift before drag, if Mike was watching. Step out on the upstream side, if Will was correcting. Keep your weight low.
 
 The canoe stopped crooked.
 
@@ -282,7 +282,7 @@ The road gravel shifted under him. His legs did not trust the idea of walking. T
 
 At the guardrail, he stopped.
 
-The bridge deck lay ten feet above the landing, reached by a rough slope of gravel and torn grass. Tire tracks hardened in old mud. Beer can. Orange survey tape on a stake. A sign he could not read in the dark. Human trash, human marks, the small ugly mercy of carelessness. People had been here and had not meant anything by it.
+The bridge deck lay ten feet above the landing, reached by a rough slope of gravel and torn grass. Tire tracks hardened in old mud. Beer can. Orange survey tape on a stake. A sign he could not read in the dark. Human trash, human marks, the small ugly mercy of carelessness.
 
 He climbed.
 

@@ -6,13 +6,13 @@ Mike by the fire with the stick still in his hand. Will half risen from the pack
 
 Alex had just said, "What?"
 
-It had come back to them in his ordinary voice, irritated more than afraid, the voice he used when someone had interrupted a story or questioned a minor competence. The word should have ended the moment. It should have been followed by a joke, a complaint, a report of a branch or his own stupidity. Alex was good at restoring ordinary weather around himself. He could make a bad landing into a bit, a missed throw into evidence of conspiracy, a mosquito bite into a civic failure. The group had relied on that more than Joel wanted to admit.
+It had come back in his ordinary voice, irritated more than afraid, the voice he used when someone had interrupted a story or questioned a minor competence. The word should have ended the moment. It should have been followed by a joke, a complaint, a report of a branch or his own stupidity. Alex could restore ordinary weather around himself. A bad landing became a bit. A missed throw became evidence of conspiracy. A mosquito bite became civic failure. The group had relied on that more than Joel wanted to admit.
 
 But the headlamp did not turn fully back toward camp.
 
 It held low and slightly right, aimed into the dark beyond the place where Alex stood. The light touched alder leaves, moved over them, and stopped on nothing Joel could see. The beam looked like fact until it failed to find a body.
 
-A sound came back from beyond him. Not a word, not quite. A wet little click in the throat of the channel, almost a mouth beginning the shape of Alex's What and losing it. Joel held still until it became water again.
+A sound came back from beyond him. Not a word, not quite. A wet little click in the throat of the channel, almost a mouth starting the shape of Alex's What and losing it. Joel held still until it became water again.
 
 "Alex?" Joel said.
 
@@ -38,7 +38,7 @@ Will fumbled at his headlamp. The plastic housing clicked against his collarbone
 
 "Shut up and get your light."
 
-Joel had not moved. He saw that before he felt it. His body remained in camp while his attention had gone through the alder and stopped beside Alex. The spoon was still in his hand. He put it down on the nearest pack too carefully, as if a louder movement might count as an answer.
+Joel had not moved. He saw that before he felt it. His body remained in camp while his attention had gone through the alder and stopped beside Alex. The spoon was still in his hand. He put it down on the nearest pack too carefully, as if a louder movement might answer for him.
 
 Alex's beam jerked left.
 
@@ -48,13 +48,13 @@ He took one step farther from camp. Not a run. Not panic. The small offended ste
 
 Brush moved.
 
-At first the sound was small enough to stay ordinary. A branch scraping another branch. A foot in wet grass. Something pushing through alder with less care than a person and more care than wind. Then the brush gave way in a heavy rush, not from one point but along a short line of darkness. Leaves flashed silver in Alex's lamp. Stems bent, snapped back, bent again. For half a blink the beam caught a low dark mass or only leaves folding over one another. By the time the light steadied, there was no animal in it.
+At first the sound was small enough to stay ordinary. A branch scraping another branch. A foot in wet grass. Something pushing through alder with less care than a person and more care than wind. Then the brush gave way in a heavy rush, not from one point but along a short line of darkness. Leaves flashed silver in Alex's lamp. Stems bent, snapped back, bent again. For half a blink the beam caught a low dark mass, or only leaves folding over one another. By the time the light steadied, there was no animal in it.
 
 Alex shouted once. Not a word. A raw, insulted burst of air.
 
 Mike grabbed for the bear spray.
 
-The canister had been set upright beside his pack after dinner, part of the normal theater of caution. At First Camp it had seemed like an object that proved they were responsible. Here it looked suddenly small in Mike's fist. He ripped at the safety with his thumb and started toward the channel side.
+The canister had been set upright beside his pack after dinner, part of the normal theater of caution. At First Camp it had seemed like an object that proved they were responsible. Here it looked small in Mike's fist. He ripped at the safety with his thumb and started toward the channel side.
 
 "Back," he said.
 
@@ -76,13 +76,13 @@ Will had his own lamp on now. The beam shook over the fire, Mike's shoulder, Joe
 
 The second shout came from beyond the alder.
 
-Alex this time. Or the shape of him under pressure. It started as a word and broke before it reached them. Something hit brush hard. A body hit mud. There was a wet thump, then a tearing sound too brief and too physical for Joel's mind to keep. Alder whipped back and slapped itself. The headlamp beam spun upward, showing leaves from below, then a hard piece of sky, then the white undersides of leaves moving after the violence had already passed.
+Alex this time. Or the shape of him under pressure. It started as a word and broke before it reached them. Something hit brush hard. A body hit mud. There was a wet thump, then a tearing sound too brief and physical for Joel's mind to keep. Alder whipped back and slapped itself. The headlamp beam spun upward, showing leaves from below, then a hard piece of sky, then the white undersides of leaves moving after the violence had passed.
 
 Joel ran.
 
 He struck the first screen of alder shoulder-first. Branches raked his face and arms. His sandal sank past the sole into black muck. The paddle caught across two stems and almost tore from his hand. Mike was ahead of him by two body lengths, broad back hunched, bear spray out, lamp beam jumping. Will came behind making a continuous broken sound, not quite Alex's name anymore, not quite words.
 
-The brush made every distance dishonest. Ten yards became a room with no door. Mike's light opened one narrow piece of it at a time: green leaves turned white, black water between roots, mud polished by movement, a broken stem bright at the fresh split. Joel's own light found Mike's elbow, then lost it. Something crashed to their right. Or behind them. Or across the channel. The sound changed direction in the alder, broken and returned by leaves.
+The brush made every distance dishonest. Ten yards became a room with no door. Mike's light opened one narrow piece of it at a time: green leaves turned white, black water between roots, mud polished by movement, a broken stem bright at the fresh split. Joel's own light found Mike's elbow, then lost it. Something crashed to their right. Or behind them. Or across the channel. The alder broke the sound and gave it back from everywhere.
 
 "Stop," Mike said.
 
@@ -98,13 +98,13 @@ Joel stopped because the command had found some old trail in him. Will did not. 
 
 Something breathed beyond the light.
 
-That was the only word Joel had for it, and even as he thought it he distrusted it. It might have been wind moving through wet leaves. It might have been Alex's breath. It might have been his own breathing made huge by the cup of his hands around the paddle shaft and the blood beating in his ears. It came once, low and close, with a wet catch at the end.
+That was the only word Joel had for it, and even as he thought it he distrusted it. It might have been wind moving through wet leaves. It might have been Alex's breath. It might have been his own breathing made huge by the cup of his hands around the paddle shaft. It came once, low and close, with a wet catch at the end.
 
 Mike raised the spray.
 
 "Don't," Joel said, too late.
 
-The canister made a hard choking hiss. Orange fog hit the alder and opened into the beam, immediate and chemical, a cloud with weight. It drove back into them as soon as it left the nozzle. Joel inhaled and his throat closed. Fire ran into his eyes. He turned away coughing, blind, spit hanging from his mouth. Will cursed and stumbled into him. Mike kept spraying for another second, then swore hard enough that the word seemed to tear his voice.
+The canister made a hard choking hiss. Orange fog hit the alder and opened in the beam, immediate and chemical, a cloud with weight. It drove back into them as soon as it left the nozzle. Joel inhaled and his throat closed. Fire ran into his eyes. He turned away coughing, blind, spit hanging from his mouth. Will cursed and stumbled into him. Mike kept spraying for another second, then swore hard enough to tear his voice.
 
 "Jesus," Will said. "Jesus, Jesus."
 
@@ -134,7 +134,7 @@ Alex lay ten yards beyond the first screen of alder, in a place that had not loo
 
 Joel's mind refused Alex at first. It accepted only objects.
 
-One hiking sandal, heel-down in mud. A calf streaked with black muck. A hand open as if asking for something small. The headlamp strap twisted under his cheek, cracked at one corner, its light pointing sideways into the water. A torn sleeve. A red canister half-hidden in grass near his hip, belt clip turned in the weeds, safety still bright, trigger clean. Blood on alder leaves, too dark under the lamps. A wet red place where the body had stopped being the private, contained fact of a man.
+One hiking sandal, heel-down in mud. A calf streaked with black muck. A hand open as if asking for something small. The headlamp strap twisted under his cheek, cracked at one corner, its light pointing sideways into the water. A torn sleeve. A red canister half-hidden in grass near his hip, belt clip turned in the weeds, safety still bright, trigger clean. Blood on alder leaves, too dark under the lamps. A wet red place where the body had stopped being only Alex.
 
 "No, no, no," Will said.
 
@@ -162,9 +162,9 @@ Will tried to go around him. Mike caught him by the front of his PFD and shoved 
 
 "And whatever did it might also be right there."
 
-The sentence entered the brush and made a shape of the dark around them. Joel lifted the paddle with both hands. He did not know what he intended to do with it. Hit a bear. Hit the air. Give his hands a task.
+The sentence entered the brush and gave the dark a shape. Joel lifted the paddle with both hands. He did not know what he intended to do with it. Hit a bear. Hit the air. Give his hands a task.
 
-His eyes kept returning to Alex's hand. It had mud in the lines of the palm. One fingernail was torn back. The hand looked separate from the violence because it was still shaped like Alex: broad, careless, capable, the hand that had slapped mosquitoes off his calf and held the filter hose badly and stirred peanut butter noodles with religious seriousness. Joel had spent whole stretches of the day annoyed by the man attached to it. He had measured Alex in performances, in bids for attention, in jokes that asked too much from a tired room. Now the hand lay open and all of Joel's measurements became obscene.
+His eyes kept returning to Alex's hand. Mud darkened the lines of the palm. One fingernail was torn back. The hand looked separate from the violence because it was still shaped like Alex: broad, careless, capable, the hand that had slapped mosquitoes off his calf and held the filter hose badly and stirred peanut butter noodles with religious seriousness. Joel had spent whole stretches of the day annoyed by the man attached to it. He had measured Alex in performances, in bids for attention, in jokes that asked too much from a tired room. Now the hand lay open and all of Joel's measurements became obscene.
 
 The woods were very quiet.
 
@@ -186,7 +186,7 @@ His voice cracked on the second word. Not fear exactly. Force applied to somethi
 
 No bear moved in the beam.
 
-The light showed broken alder, mud gouged into shelves, black water where the channel curled close, a dead spruce branch with old gray lichen on it. It showed one dark smear low on a trunk. It showed something that might have been a print near the waterline and then was only a collapsed place in mud when Joel looked at it longer. It showed wet roots scraped pale where bark had come off. It showed nothing with eyes. Nothing retreating. Nothing large enough to have done what had been done.
+The light showed broken alder, mud gouged into shelves, black water where the channel curled close, a dead spruce branch with old gray lichen on it. It showed one dark smear low on a trunk. It showed something that might have been a print near the waterline and then was only a collapsed place in mud when Joel looked longer. It showed wet roots scraped pale where bark had come off. It showed nothing with eyes. Nothing retreating. Nothing large enough to have done what had been done.
 
 Then, to their left, brush ticked once.
 
@@ -208,7 +208,7 @@ Mike rounded on him. "You want to save it?"
 
 "It's a bear."
 
-The word sounded prepared. Not because Mike had known, but because it was the only box large enough and close enough to put the scene inside. Bear. The route had bears. They had bear spray. They had hung food badly in a bad camp near water and brush. A thing named bear could be reported, managed, feared, survived. A bear belonged to the world.
+The word sounded prepared. Not because Mike had known, but because it was the only box large enough and close enough to put the scene inside. Bear. The route had bears. They had bear spray. They had hung food badly in a bad camp near water and brush. A bear could be reported, managed, feared, survived. A bear belonged to the world.
 
 Joel looked again at Alex's body and tried to make the word fit over it.
 
@@ -216,7 +216,7 @@ It fit in places. Violence. Strength. Blood. Mud. The smashed alder. The speed o
 
 It did not fit everywhere.
 
-The food barrel was back at camp, still hanging. Alex had been standing. His spray had not been fired. There had been no bawl, no roar, no warning huff, no heavy retreat through brush after Mike came at it with lights. Nothing had gone for the barrel or the trash or the cooking pots. The ground near Alex showed confusion but not the certainty of a large animal leaving. Maybe the mud did not keep prints. Maybe the alder hid movement. Maybe bears did not perform warning and retreat according to the limited theater men had built for them. Maybe Joel knew too little to know what he was seeing. Fear was not expertise.
+The food barrel was back at camp, still hanging. Alex had been standing. His spray had not been fired. There had been no bawl, no roar, no warning huff, no heavy retreat through brush after Mike came at it with lights. Nothing had gone for the barrel or the trash or the cooking pots. The ground near Alex showed confusion but not the certainty of a large animal leaving. Maybe mud did not keep prints. Maybe alder hid movement. Maybe bears did not perform warning and retreat according to the limited theater men had built for them. Maybe Joel knew too little to know what he was seeing. Fear was not expertise.
 
 He did not say the other thing, because it had no useful place in a bear attack: Alex had turned before the rush. Alex had answered something.
 
@@ -250,7 +250,7 @@ Will's mouth stayed open. His face had gone pale and shiny under the headlamp. T
 
 Joel stepped closer to Alex.
 
-He did it slowly, not out of courage but because his mind needed one more fact and hated him for needing it. The mud sucked at his sandal. He kept the paddle between himself and the brush as if the shape of defense mattered. Mike made a warning sound but did not stop him.
+He did it slowly, not out of courage but because his mind needed one more fact and hated him for needing it. Mud sucked at his sandal. He kept the paddle between himself and the brush as if the shape of defense mattered. Mike made a warning sound but did not stop him.
 
 Alex's face was turned partly into the mud.
 
@@ -264,7 +264,7 @@ This.
 
 The annual misery project.
 
-Joel had given him half an honest answer. Afterward, yes. He had not said the smaller, meaner truth: that he missed the men more reliably from Madison, when irritation had time to edit itself into affection and Alex became a story told at a reasonable volume. Being with them was harder than loving them at a distance. The trip needed planning, mileage, vacation time, weather windows, stored gear, staged keys, and the old deliberate lie that if they repeated the shape often enough nothing essential had changed.
+Joel had given him half an honest answer. Afterward, yes. He had not said the smaller, meaner truth: that he missed the men more reliably from Madison, when irritation had time to edit itself into affection and Alex became a story told at a reasonable volume. Being with them was harder than loving them from a distance. The trip needed planning, mileage, vacation time, weather windows, stored gear, staged keys, and the old deliberate lie that if they repeated the shape often enough, nothing essential had changed.
 
 Now Alex was ten yards outside camp, and every unsaid thing had become permanent.
 
@@ -280,7 +280,7 @@ Mike rubbed at his eyes with his free wrist. "We are doing something."
 
 Mike did not answer.
 
-The question went through Joel with a cold practical edge. Then what. Carry Alex? Where? Through alder, mud, two days of route behind them, harder water ahead, no service, no beacon. Leave him? Stay beside him? Sit in this brush until morning with whatever had done it perhaps close enough to hear them breathing?
+The question went through Joel with a cold practical edge. Then what. Carry Alex? Where? Through alder, mud, two days of route behind them, harder water ahead, no service, no beacon. Leave him? Stay beside him? Sit in this brush until morning with whatever had done it close enough to hear them breathe?
 
 Will said, "We can't just--"
 
@@ -326,13 +326,13 @@ The cruelty of it worked because it was practical. Will shut his mouth. His ches
 
 Joel did not.
 
-"We mark where he is," Joel said. His voice came out thin. He cleared his throat and hated the sound. "We go back. We keep lights out except when we need them. We stay together. At first light we come back."
+"We mark where he is," Joel said. His voice came out thin. He cleared his throat and hated the sound. "We go back. We keep lights out except for checks. We stay together. At first light we come back."
 
 Will shook his head once, hard. "At first light he's still dead."
 
 No one answered.
 
-Mike crouched without turning his back fully to the brush and picked up Alex's headlamp by the strap. Joel almost told him to leave it. Then he saw the light lying under Alex's cheek, cracked and shining stupidly into the water, and understood that Mike needed to do one small task that could be completed. Mike switched it off. Darkness took back the water immediately.
+Mike crouched without turning his back fully to the brush and picked up Alex's headlamp by the strap. Joel almost told him to leave it. Then he saw the light under Alex's cheek, cracked and shining stupidly into the water, and understood that Mike needed one small task that could be completed. Mike switched it off. Darkness took back the water immediately.
 
 "Don't take his stuff," Will said.
 
@@ -348,9 +348,9 @@ Mike held the lamp out to Joel, who took it because someone had to. The plastic 
 
 They backed out of the alder.
 
-No one wanted to turn first. They made an ugly sideways retreat, lights pointing into too many places, feet slipping in mud. Branches caught on straps and sleeves. Once Will stumbled, and Mike grabbed his arm, and Will yanked away as if the help itself accused him. Joel kept the paddle across his body and listened for the sound of something following. Every scrape they made became answerable by another scrape. Every branch they bent sprang back with a small wet tick that sounded, for half a second, deliberate.
+No one wanted to turn first. They made an ugly sideways retreat, lights pointing into too many places, feet slipping in mud. Branches caught on straps and sleeves. Once Will stumbled, and Mike grabbed his arm, and Will yanked away as if the help itself accused him. Joel kept the paddle across his body and listened for something following. Every scrape they made became answerable by another scrape. Every branch they bent sprang back with a small wet tick that sounded, for half a second, deliberate.
 
-When they broke through the alder screen into camp, the fire had settled into red pockets under ash. The tents stood open-mouthed and thin, nylon walls holding the small warmth of men who were no longer inside them. The food barrel hung pale and round in the back of camp, absurd in its correctness. The latch faced the fire exactly as it had before. The canoes lay high on the bank. The pots were stacked. The water bottles stood where Joel had left them. Their camp looked abandoned by people who had intended to come back in a minute.
+When they broke through the alder screen into camp, the fire had settled into red pockets under ash. The tents stood open-mouthed and thin, nylon walls holding the small warmth of men who were no longer inside them. The food barrel hung pale and round in the back of camp, absurd in its correctness. The latch faced the fire exactly as before. The canoes lay high on the bank. The pots were stacked. The water bottles stood where Joel had left them. Their camp looked abandoned by people who had intended to come back in a minute.
 
 Will stopped at the edge of the firelight and bent over with his hands on his knees. He retched once but nothing came up.
 
@@ -386,7 +386,7 @@ Will almost laughed. It came out as one hard breath.
 
 Mike nodded once. "Canoes."
 
-Work saved them because work did not ask what it meant. They hauled the canoes another few feet from the mud line, too close to camp now but better than the channel. Joel and Mike turned one sideways near the fire ring as a poor barrier, though all of them knew it would stop nothing determined. Will gathered paddles and laid them within reach. Then he moved them again because he did not like the first arrangement. He made a row of them along a log as if order could become defense.
+Work saved them because work did not ask what it meant. They hauled the canoes another few feet from the mud line, too close to camp now but better than the channel. Joel and Mike turned one sideways near the fire ring as a poor barrier, though all of them knew it would stop nothing determined. Will gathered paddles and laid them within reach, then moved them again because he did not like the first arrangement. He made a row along a log as if order could become defense.
 
 Mike checked the food barrel line. It was still up. The latch was closed. He yanked the rope once and the barrel swung, knocking softly against the trunk.
 
@@ -412,7 +412,7 @@ They put on every layer within reach. Fleece over damp shirts. Rain jackets zipp
 
 Mike tried his phone.
 
-He did it facing slightly away from them, as if the old embarrassment still mattered. The screen lit his face. He held it up, turned once, stepped onto a root, raised it higher. No bars. No service. The blue light showed the flecks of bear spray on his cheek and the wet shine under his eyes. He put the phone away.
+He did it facing slightly away from them, as if the old embarrassment still mattered. The screen lit his face. He held it up, turned once, stepped onto a root, raised it higher. No bars. No service. The blue light showed flecks of bear spray on his cheek and the wet shine under his eyes. He put the phone away.
 
 "Nothing," Will said.
 
@@ -446,7 +446,7 @@ Will stared at him. For a second Joel thought he would cross the small distance 
 
 Joel looked away and saw Alex's tent.
 
-The second tent, the lumpy ground he had claimed with theatrical martyrdom, stood half zipped. One guyline had pulled loose. The door flap moved when the wind reached the camp, lifting and dropping with a small nylon whisper. Inside would be his sleeping bag, his dry clothes, the pouch of bland food he had guarded from Will's spices, the paperback he had been unlikely to read, his spare socks, maybe the little bag of electrolyte tablets he had insisted were superior to everyone else's. He had said nobody panic and left all of it arranged for morning.
+The second tent, the lumpy ground he had claimed with theatrical martyrdom, stood half zipped. One guyline had pulled loose. The door flap moved when the wind reached camp, lifting and dropping with a small nylon whisper. Inside would be his sleeping bag, his dry clothes, the pouch of bland food he had guarded from Will's spices, the paperback he had been unlikely to read, his spare socks. He had said nobody panic and left all of it arranged for morning.
 
 Joel turned from it.
 
@@ -464,7 +464,7 @@ Mike looked at the tent. "In the morning."
 
 "You think the bear cares about his socks?"
 
-"I think if we start sorting a dead man's gear right now, you are going to come apart."
+"I think if we start sorting a dead man's gear right now, you're going to come apart."
 
 Will lifted his head. His face was wet and furious. "Don't diagnose me."
 
@@ -482,7 +482,7 @@ When the last flame died, the world became depthless.
 
 Headlamps stayed off except for brief checks. In darkness the camp rebuilt itself out of sound. The channel spoke first: water under alder, small and black. Then the food barrel rope, tightening and easing as wind moved above. Then nylon from Alex's tent. Then someone's swallow. Then Mike's thumb, once, on the bear spray safety. The click was tiny and enormous.
 
-Joel sat with the paddle across his lap. He had washed his hands twice from a water bottle and could still smell blood where the cracked plastic of Alex's lamp had marked his palm. Maybe it was not there. Maybe the smell had entered the whole camp. He kept rubbing his thumb against the seam of his pants.
+Joel sat with the paddle across his lap. He had washed his hands twice from a water bottle and could still smell blood where the cracked plastic of Alex's lamp had marked his palm. Maybe it was not there. Maybe the smell had entered the whole camp. He rubbed his thumb against the seam of his pants.
 
 Will whispered, "What if he was still--"
 
@@ -514,7 +514,7 @@ It cost him less than it cost Will to hear it. That made it worse.
 
 For a while no one spoke.
 
-Joel tried not to listen. The effort made him listen harder. His mind sorted sound into columns without permission: water, rope, nylon, breath, branch. Ordinary. Ordinary. Ordinary. Maybe ordinary. He thought of the motel wall, the way he had lain awake and matched each noise to a source until he could sleep. Bathroom fan. Door latch. Alex laughing through plaster. Mike's cough or Will's. The exercise had seemed like a way to settle the world. Now it felt like practice for a test that had changed its rules.
+Joel tried not to listen. The effort made him listen harder. His mind sorted sound into columns without permission: water, rope, nylon, breath, branch. Ordinary. Ordinary. Ordinary. Maybe ordinary. He thought of the motel wall, the way he had lain awake and matched each noise to a source until he could sleep. Bathroom fan. Door latch. Alex laughing through plaster. Mike's cough or Will's. It had seemed like a way to settle the world. Now it felt like practice for a test that had changed its rules.
 
 A branch cracked beyond the channel.
 
@@ -544,7 +544,7 @@ Will began talking again near what might have been midnight.
 
 Not loudly. Not even to them at first. He listed facts under his breath, the way he might list gear before a portage, trying to make sequence stand in for sense.
 
-"Bad food hang. Marsh camp. Dusk movement. He stepped away. We heard brush. Spray cloud. Body ten yards out. His spray still safetied. Bear country. This is bear country."
+"Bad food hang. Marsh camp. Dusk movement. He stepped away. We heard brush. Spray cloud. Body ten yards out. His spray still safetied. Food untouched. Bear country. This is bear country."
 
 Mike said, "Stop."
 
@@ -578,7 +578,7 @@ Will was quiet for a few breaths. "It might tomorrow."
 
 "I said not now."
 
-Will let out one dry, broken cough. The sound went into the dark above them and seemed to come back from the brush behind the fire ring, thinner and later.
+Will let out one dry, broken cough. The sound went into the dark above them and seemed to come back from the brush behind the fire ring, thinner and late.
 
 Joel turned his head.
 

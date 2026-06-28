@@ -2,11 +2,11 @@
 
 After Joel heard himself, the trip reached backward.
 
-Until then, some private part of him had kept a boundary. The thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. It began where the world had broken badly enough to deserve it. A man could bear almost anything if he could make it start after his own innocence.
+Until then, some private part of him had kept a boundary. The thing belonged to Alex's death, to Mike's mistake, to Will's noise, to the brush around Second Camp. It began where the world had broken badly enough to deserve it. A man could bear almost anything if he could make the worst of it begin after his own innocence.
 
 His voice proved otherwise.
 
-It had been near from the beginning, or near enough. At the landing. At the first water. At the places they had felt almost safe because nothing had happened yet. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it. The week did not begin with Alex stepping past the light. It reached back and put a hand on the first boat, the first strap, the first harmless correction.
+It had been near from the beginning, or near enough. At the landing. At the first water. It had been present while they made ordinary mistakes and called them ordinary. It had heard a small caution said by a quiet man at a gravel put-in, and it had kept it. The week did not begin with Alex stepping past the light. It reached back and put a hand on the first boat, the first strap, the first harmless correction.
 
 Will kept looking at him as if Joel might explain what a man was supposed to do with the sound of himself.
 
@@ -30,7 +30,7 @@ His mouth opened.
 
 Will saw it and went still.
 
-Joel shut his mouth so sharply his teeth clicked. The sound seemed enormous. A small white bite of enamel in the wet air. Both men listened after it, because even a tooth click had become information. It had come from him. That was not the same as safe.
+Joel shut his mouth so sharply his teeth clicked. The sound seemed enormous, a hard little snap in the wet air. Both men listened after it, because even a tooth click had become information. It had come from him. That was not the same as safe.
 
 He took the notebook back and wrote:
 
@@ -46,7 +46,7 @@ Joel pointed to the lower path, then held up one hand. Wait by sight. He crouche
 
 The rain had taken most of yesterday. Their tracks had come down this way or not. Mike had led. Will had followed, talking then because they still allowed talking, because the cabin had still been a possible answer, because Alex had been dead but Mike alive. That had seemed like a different kind of world. Joel looked for Mike's boot tread and found only oblong pressures filled with brown water. He looked for the diagonal scratch of Will's sandals and found roots, leaf rot, and a black feather stuck to mud by its own wet barbs.
 
-The feather made him remember the raven at the put-in, its call breaking off over the trees while Alex snapped a strap and said something ugly about wilderness ambiance. He hated how quickly memory began to revise itself. The old landing, the first portage, the joke about poems, the food barrel latch, the hollow knock they had blamed on rope: all of it rearranged itself under the pressure of his voice from the trees. The past did not have to change to become suspect.
+The feather made him remember the raven at the put-in, its call breaking off over the trees while Alex snapped a strap and said something ugly about wilderness ambiance. He hated how quickly memory began to revise itself. The old landing, the first portage, the joke about poems, the food barrel latch, the hollow knock they had blamed on rope: all of it rearranged itself under the pressure of his voice from the trees.
 
 Nothing in the past had changed. Everything had.
 
@@ -68,7 +68,7 @@ Joel did not turn.
 
 Will did. Not toward the voice, but toward Joel.
 
-That was the rule doing its work. It should have comforted him. Instead it made him briefly, stupidly jealous. Will trusted the page faster than he trusted Joel's face now. The page had become a third body between them, thinner than a man and colder, but harder to imitate.
+That was the rule doing its work. It should have comforted him. Instead it made him jealous for one stupid second. Will trusted the page faster than he trusted Joel's face now. The page had become a third body between them, thinner than a man and colder, but harder to imitate.
 
 Joel lifted two fingers to his eyes. Will nodded.
 
@@ -76,9 +76,9 @@ They kept going.
 
 The water smell strengthened. It was not open lake, not wind and distance. It was narrow water, tannin and mud, old leaves soaking under alder roots. The kind of channel that took a canoe because it had to, not because it welcomed one. Through the trees came the dull shine of it, broken by black stems. No wind reached them there. Sound did not travel far so much as stay trapped.
 
-Joel had imagined the canoe cache as a return to objects. Two boats, gear under spruce, the route reduced again to weight and balance. He had wanted it with a child's stupid faith: if they reached the canoes, one kind of terror would end. A canoe was not a voice. A pack did not ask to be believed. Rope held or failed in the hand.
+Joel had imagined the canoe cache as a return to objects. Two boats, gear under spruce, the route reduced again to weight and balance. He had wanted it with a child's stupid faith: reach the canoes and one kind of terror would end. A canoe was not a voice. A pack did not ask to be believed. Rope held or failed in the hand.
 
-But objects could be moved. They could be made to say where a person had been without proving who had touched them. A knot could be evidence or bait or only a knot. The world of things was safer than speech because it resisted being borrowed, not because it refused.
+But objects could be moved. They could say where a person had been without proving who had touched them. A knot could be evidence or bait or only a knot. Things were safer than speech because they resisted being borrowed, not because they refused.
 
 The cache was not where it should have been.
 
@@ -118,7 +118,7 @@ Will swallowed. He nodded once, too hard.
 
 They stood at the edge of the cache and inspected it like men approaching an animal that might only be sleeping.
 
-No tracks made sense. Their own prints from yesterday had been softened by rain and overrun by new disturbances: long smears in mud where the canoe had dragged; two round punched places that might have been the ends of branches; shallow half-moons from Will's sandals or Joel's or Mike's, all blurred into each other. Near the alder stem, the mud held a line of compressed grass as if someone had knelt. Or as if the rope had been pulled low. Or as if a body had crouched there without leaving a body-shaped truth. Joel did not write any of it down. A written fact still needed a fact under it.
+No tracks made sense. Their own prints from yesterday had been softened by rain and overrun by new disturbances: long smears in mud where the canoe had dragged; two round punched places that might have been the ends of branches; shallow half-moons from Will's sandals or Joel's or Mike's, all blurred into each other. Near the alder stem, the mud held a line of compressed grass as if someone had knelt, or as if the rope had been pulled low. Joel did not write any of it down. A written fact still needed a fact under it.
 
 Joel pointed to the better canoe. Then to Will. Then made a slow circling motion with one finger: inspect.
 
@@ -140,7 +140,7 @@ Will closed his mouth.
 
 The question hung between them anyway.
 
-Can it tie knots? Can it understand what tied means? Can a trap be a trap if it had only learned pressure, rope, and waiting?
+Can it tie knots? Can it understand what tied means? Can a trap be a trap if it only knows pressure, rope, and waiting?
 
 Joel took the notebook out.
 
@@ -166,7 +166,7 @@ From the water, behind the reeds, came a hollow knock.
 
 Both men froze.
 
-The loaded canoe was not loaded yet. The damaged canoe sat under boughs. The better canoe lay at their feet. No hull moved.
+The canoe was not loaded yet. The damaged canoe sat under boughs. The better canoe lay at their feet. No hull moved.
 
 Another knock came from farther out, beyond the first bend of the channel where fog had collected in a low seam above the water.
 
@@ -230,11 +230,11 @@ STAY VISIBLE.
 
 Will nodded.
 
-They made a pile of what would go. Food barrel, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. The small blue dry bag with the emergency paddle stayed lashed under the front seat, more fixture than cargo. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
+They made a pile of what would go. Food barrel and cached food bags, because hunger was not optional. Filter. Stove and one pot. Map case, though grit had gotten into the seal and the paper inside felt damp at the edges. First aid. Tarp. Sleeping bags, one still damp enough to weigh like an animal. Mike's repair kit. The hatchet. Two paddles and the cracked repaired paddle as spare. The small blue dry bag with the emergency paddle stayed lashed under the front seat, more fixture than cargo. The notebook stayed inside Joel's jacket when he did not need it, buttoned under the rain shell. The Highlander key stayed in his inner pocket, zipped behind fabric, checked once by touch and then not touched again.
 
 Every decision reduced four men to two. It was not sentimental math. It was volume and weight. One pot. One tarp. Two bags. One boat. The extra things had once meant comfort, redundancy, preference, personality. Now extra meant time at the shore.
 
-They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left the extra cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. Joel found Alex's cracked headlamp in the small bag of remaining things and wrapped it in a shirt because light still made an argument for itself. The hot sauce bottle stayed. So did the wrapper, the dead batteries, the useless pocket trash no one could make meaningful or throw away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to what two men could lift.
+They left the mud-soaked tent bag. Too heavy. Too wet. Too much time. They left extra clothes that were no longer extra in any meaningful sense. They left the extra cookware, a small sack of trash, the bent tent stakes, the roll of cord that had sat in water and knotted itself into uselessness. Joel found Alex's cracked headlamp in the small bag of remaining things and wrapped it in a shirt because light still made an argument for itself. The hot sauce bottle stayed with Alex's odds. So did the wrapper, the dead batteries, the useless pocket trash no one could make meaningful or throw away. The abandoned pile looked at once excessive and poor, the remains of four men reduced to what two men could lift.
 
 Will picked up the rod tube last.
 
@@ -244,7 +244,7 @@ Behind him, plastic scraped mud.
 
 Will had opened the tube and taken out the two rods. One had a fine crack near the second guide. The other looked all right. He held them awkwardly with his bandaged hand, their tips trembling in the damp air. The reels had grit in them. Line clung in wet loops.
 
-For one moment, with the rods in his hand, Will looked almost normal. Not better. Not safe. But placed in a shape Joel recognized. A man at a lake, making small decisions about weight and lure and angle. A man who would say, quietly and with too much precision, that fishing was not about catching fish, not exactly. It was about holding an instrument in the water long enough for the world to answer without using words.
+For one moment, with the rods in his hand, Will looked almost normal. Not better. Not safe. But placed in a shape Joel recognized. A man at a lake, making small decisions about weight and lure and angle. A man who would say, quietly and with too much precision, that fishing was not about catching fish, not exactly. It was about holding an instrument in the water and waiting without speech.
 
 Will looked at the channel.
 
@@ -278,7 +278,7 @@ He wrote:
 
 YES.
 
-He tore that small corner of page away, folded it once, and put it into the rod tube before he slid the tube under the canoe. Joel did not stop him. A note that said only yes could not help the rods. It could mark that someone had known what was being left. It could say, without a voice, that abandonment was not indifference.
+He tore that small corner of page away, folded it once, and put it into the rod tube before he slid the tube under the canoe. Joel did not stop him. A note that said only yes could not help the rods. It could mark that someone had known what was being left.
 
 They loaded the canoe low. Food barrel near the center. Heavy bag against it. Sleeping bags compressed badly under the thwart. Map case flat and reachable. Alex's cracked headlamp went in Joel's smaller pack, wrapped in the shirt. Mike's cap was already deep in Will's pack, unseen but present in the way kept things were. Hatchet tucked beside Will but not under anything. Spare paddle lashed where Joel could see it. Every buckle they closed sounded too loud. Every strap pull was a small confession. The thing had all of these sounds already. That did not make giving them again feel harmless.
 
@@ -292,7 +292,7 @@ Joel did, because the sound went through him before the rule caught it. Only a q
 
 Joel's hand closed on the canoe gunwale.
 
-The words had once been useful even when false. We're fine. Almost there. Weather's moving off. This will hold. Now the phrase had no weight behind it. It was an empty shape wearing Mike's mouth.
+The words had once been useful even when false. We're fine. Almost there. Weather's moving off. This will hold. Now the phrase had no weight behind it. It wore Mike's mouth and nothing else.
 
 Will touched Joel's sleeve. Two fingers. Gentle.
 
@@ -310,7 +310,7 @@ NOT JOEL.
 
 Joel stared at the second line.
 
-Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without pretending fact was repair. It could stand beside damage and not make a speech over it.
+Will underlined nothing. He did not try to comfort him again. He had learned that distinction at least: the page could mark fact without pretending fact was repair.
 
 Joel touched the second line with one muddy finger. NOT JOEL. The page did not absolve him. It only refused the voice a body.
 
@@ -336,7 +336,7 @@ Together they pushed the canoe free.
 
 A rope tapped somewhere in the fog. Then another tap, nearer the far bank. The shortened painter lay visible across the front pack, wet and muddy and theirs. The sound went on anyway, a patient little knock against nothing they could see.
 
-Will climbed in first, awkward and careful, placing his knees and then sitting low in the front. Joel held the canoe while it tried to turn broadside. He looked once at the cache: damaged canoe under spruce, rod tube hidden, wet gear abandoned, the strange knot still clenched around the alder stem, the cut rope hanging dark and wet from it. A place of human decisions already losing their shape.
+Will climbed in first, awkward and careful, placing his knees and then sitting low in the front. Joel held the canoe while it tried to turn broadside. He looked once at the cache: damaged canoe under spruce, rod tube hidden, wet gear abandoned, the strange knot still clenched around the alder stem, the cut rope hanging dark and wet from it. Their decisions were already losing their shape.
 
 The food barrel latch clicked from the trees.
 

@@ -2,7 +2,7 @@
 
 They said seven and left at eight.
 
-That was not failure. It was the trip adjusting itself to the men who had planned it. At seven, Mike knocked on Joel and Will's door with the flat of his hand and said, "We're burning daylight," though the sun was still low over the motel roof and the parking lot held more shadow than morning. At seven-fifteen, Will was in one sock, tying a leader onto a spinner because he had dreamed of a broken knot and woken offended by his own subconscious. At seven-thirty, Alex stood outside with wet hair and a motel towel around his shoulders, eating crackers from a sleeve and claiming this counted as breakfast.
+That was not failure. It was the trip meeting the men who had planned it. At seven, Mike knocked on Joel and Will's door with the flat of his hand and said, "We're burning daylight," though the sun was still low over the motel roof and the parking lot held more shadow than morning. At seven-fifteen, Will was in one sock, tying a leader onto a spinner because he had dreamed of a broken knot and woken offended by his own subconscious. At seven-thirty, Alex stood outside with wet hair and a motel towel around his shoulders, eating crackers from a sleeve and claiming this counted as breakfast.
 
 At seven-forty, Mike decided he would not sleep in the Highlander after all, which meant he had to move two things from the back seat that had been there since spring: a folded camp chair with a torn arm and a cardboard box full of canoe seats, cracked yokes, two old PFDs, a bent roof-rack foot, and a bilge sponge black at the edges.
 
@@ -30,9 +30,9 @@ His phone buzzed once before he pocketed it. Mara had written: Water today?
 
 Joel looked at the canoes on the truck and the Highlander with its open hatch and the men sorting themselves into the morning they had promised one another. Not yet, he typed. Shuttle first. On the water late morning. Love you.
 
-The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, the last ordinary proof that a voice could leave one place and arrive in another without changing shape.
+The message hung for three seconds before it sent. There was nothing dramatic about that. A blue line under a sentence, a small delivered sign, one more clean transaction between voice and source.
 
-He pictured Mara seeing it in the kitchen in Madison, one shoulder tipped against the counter, coffee going cold while she answered an email she would claim was simple and then make complicated because simple things deserved to be done right. He liked that about her and had been leaving it to her too often. The thought passed cleanly through him and was gone, because the morning had work in it.
+He pictured Mara seeing it in the kitchen in Madison, one shoulder tipped against the counter, coffee going cold while she answered an email she would claim was simple and then make complicated because simple things deserved to be done right. He liked that about her and had been leaving it to her too often. Then Mike shut the Highlander's hatch, Will said something about lunch, and the morning took the thought out of Joel's hands.
 
 Will's truck looked competent under the two canoes. Long bed, cap, roof rack, gear tucked tight beneath. Mike's Highlander sat beside it, faded gray and square, its rear hatch lifted halfway like a tired jaw. One taillight had red tape over a crack. The bumper was pocked with old rust and stickers from outfitters that may or may not still exist.
 
@@ -40,9 +40,9 @@ The plan was simple in the way plans were simple before weather, fatigue, and hu
 
 Will and Mike had worked it out over three phone calls, two maps, and one argument about whether the logging road between the bridge and the landing was faster than the paved loop. The paved loop had won after Will found a road report from six years earlier and Mike called it "probably still true enough."
 
-Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not see the bad assumption yet.
+Joel had listened to the summary and said it sounded fine. That had been his role. Fine was not nothing. It meant he did not yet see where the bad assumption sat.
 
-Competence dressed its own blanks. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like absence in that company. It looked like one more thing that had failed to become an object.
+Competence dressed its own blanks. Two vehicles. Paper maps. Downloaded maps. Men who knew enough to argue about road surfaces, spare paddles, water levels, and whether lunch should be reachable without unloading a truck. The missing satellite messenger did not look like a decision in that company. It looked like a space nobody had assigned to gear.
 
 Mike stood beside the Highlander with his phone in one hand, looking at the screen.
 
@@ -102,7 +102,7 @@ Mike shut the hood. "We're fine."
 
 He said it without looking at anyone, as if speaking to the engine.
 
-The words did what he wanted them to do. They closed the subject. They always had a small lid-like sound when Mike said them, a thing being put away before anyone could touch what was inside. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant the cost of talking had reached Mike's limit.
+The words did what he wanted them to do. They closed the subject. Joel had seen him do it with bad weather, bad roads, bad money, women who were gone, canoes he could not afford to keep and could not afford to sell too cheaply. We're fine meant the cost of talking had reached Mike's limit.
 
 Will made his dry cough into his coffee. "Define fine."
 
@@ -168,7 +168,7 @@ For a few seconds nobody spoke.
 
 Joel got out and stretched his back. The morning was quieter here than at the motel. No vending-machine hum. No door latches. No road traffic after their own engines died. The river under the bridge moved steadily, brown and cold-looking, a narrow piece of the route appearing before the route itself. Fog clung low upstream in torn bands.
 
-This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned, then trusting the day not to change while they were gone.
+This was the future. That was what made it feel wrong. They had not put a canoe in water yet, and already here was the endpoint, waiting with its gravel and weeds and blank signpost. They were leaving a vehicle inside a day they had not earned, then asking the day to hold still.
 
 Alex walked to the bridge rail and looked down. "This is where we come out?"
 
@@ -200,7 +200,7 @@ Alex winced. "She likes it rough."
 
 "She likes decisive closure," Mike said.
 
-Joel walked to the edge of the pullout. The river here was too narrow for their canoes to finish dramatically. If the plan held, they would come out tired, dirty, probably sick of one another, sliding through alder and road noise after seven days of water and portages. Then there would be the Highlander. A machine made ugly by usefulness. The key in Mike's dry pouch. Dry clothes, maybe. A cooler if they had thought of one. The ordinary world restored by bad suspension and old vinyl seats.
+Joel walked to the edge of the pullout. The river here was too narrow for their canoes to finish dramatically. If the plan held, they would come out tired, dirty, probably sick of one another, sliding through alder and road noise after seven days of water and portages. Then there would be the Highlander. A machine made ugly by usefulness. The key in Mike's dry pouch. Dry clothes, maybe. A cooler if they had thought of one. Bad suspension. Old vinyl seats. The ordinary world, close enough to smell.
 
 Mike lifted his phone again.
 
@@ -294,7 +294,7 @@ Will glanced at the map on his lap. "There are three old roads on the west side.
 
 "And the cabin mark is off the middle one?"
 
-"Old map says that."
+"Map says there's a cabin off the middle trace."
 
 Alex leaned forward. "Cabin discourse returns."
 
@@ -330,13 +330,13 @@ Alex said, "It is in Seattle."
 
 "The plane also had heritage. And a crying baby."
 
-The old landing appeared without ceremony.
+The old landing appeared without ceremony, which was how most important places arrived.
 
 The forest road widened into a muddy clearing sloped toward dark water. A weathered signboard stood at an angle near the brush. Whatever notices had once been pinned there were gone or reduced to pale rectangles under rusted staples. There was a fire ring full of wet ash, a length of old rope in the weeds, and two boot tracks hardened in mud from some earlier party. The lake lay narrow and black-green below the landing, held between spruce and low shelves of granite. Morning fog still lingered over the far shore though the sun had lifted above the trees.
 
 No other vehicles were there.
 
-Joel checked his phone once before he put it away for good. No bars. Mara's message sat above his answer, already from another weather. There was no new reply, and he was glad for that in the small cowardly way a man could be glad not to owe one more sentence before doing the thing he had come to do.
+Joel checked his phone once before he put it away for good. No bars. Mara's message sat above his answer, already from another weather. There was no new reply, and he was glad for that in the small cowardly way a man could be glad not to owe one more sentence before stepping out of reach.
 
 Will parked facing out, because Mike told him to before he could do it himself. For a moment nobody moved. The truck engine ticked. Somewhere near the signboard, a mosquito whined against the glass.
 
@@ -499,6 +499,8 @@ Will held up both hands. "I said good."
 "My face has resting tone."
 
 The truck had to be made into the thing they would return to only by mistake. That was the quiet part of the shuttle. They stripped it of what mattered. Joel checked the cab for maps, wallets, phone batteries, sunglasses, loose snacks, one of Will's rod tips that had slid under the seat. Mike checked under the cap as if gear might breed in shadow. Will locked the doors, unlocked them, opened the rear door, took out a forgotten lighter, then locked them again.
+
+No one said goodbye to the truck. That would have been ridiculous. Still, each of them touched it once more than he needed to.
 
 "Key," Mike said.
 

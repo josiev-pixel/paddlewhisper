@@ -2,7 +2,7 @@
 
 Emergency Camp had no fire ring and no mercy.
 
-It was not a camp until they had made enough mistakes around it to call it one. Before that it was only a steep poor shore, a wet shelf of root and stone, two canoes dragged above the chop, and three men trying not to look toward the places where sound gathered.
+It was not a camp until they had made enough mistakes around it to call it one. Before that it was only a steep poor shore, a wet shelf of root and stone, two canoes dragged above the chop, and three men trying not to look toward the places where sound collected.
 
 The afternoon thinned without becoming warmer. Wind came over the lake in hard panels and broke against the spruce, shaking water loose from the branches long after the rain had ended. Every gust made the tarp snap unless Joel kept the line in his hand. When he let go, the cloth slapped hard enough to make all three of them look. The line had been too short for a proper pitch, then too long after he retied it, then the wrong angle once Mike moved the gear under it. Nothing would take the shape they needed. Not the tarp, not the tents, not the day.
 
@@ -26,7 +26,7 @@ Joel tightened the tarp line again. The hook at the dead cedar ticked once again
 
 That was the work now. A sound, then a source. The barrel visible when the latch clicked. Mike behind them when Mike's voice had come from ahead. Will in the front of the canoe while Will's own question moved out of the trees. The rule was smaller than faith or reason or trust. Eyes first. Body first. Everything else after.
 
-They had written it down and still kept forgetting. Men who had known one another for forty years had lived by answering.
+They had written it down and still kept forgetting. Men who had known one another for forty years had survived by answering one another until answering became the danger.
 
 The wet sleeping bag hung from a line between two spruce trunks, lifted and dropped by the wind. It was Will's. The footbox had taken water when the dry bag failed, and the dark wet strip along one side did not shrink no matter how many times they wrung it. His spare socks were damp. One fleece sleeve was wet. The base layer he had counted on for night had a cold shine at the seams. Not soaked enough to abandon. Wet enough to become a problem after midnight. Will stood under it with both hands in his armpits, watching it as if attention might dry fabric.
 
@@ -34,9 +34,9 @@ The wet sleeping bag hung from a line between two spruce trunks, lifted and drop
 
 No one answered. They had used the good news already.
 
-Mike knelt beside his canoe under the low tarp, redoing the repair on the cracked thwart. His PFD hung on a root beside him, left pocket zipped shut with the Highlander key still sealed inside. His own bear spray lay within reach, orange and dented and nearly spent; Alex's unused canister sat beside the repair kit, cleaner than anything else in camp. The first lashing from the shoreline had held, but he did not trust it. He had taken the repair sleeve from the kit and cut two thin strips of aluminum with the multi-tool, working the metal back and forth until it gave. Now he set the strips along the split wood, braced them with a tent stake, and wrapped cord through the seat frame with furious care.
+Mike knelt beside his canoe under the low tarp, redoing the repair on the cracked thwart. His PFD hung on a root beside him, left pocket zipped shut with the Highlander key still sealed inside. His own bear spray lay within reach, orange and dented and nearly spent; Alex's unused canister sat beside the repair kit, cleaner than anything else in camp. The first lashing from the shoreline had held, but he did not trust it. He had taken the repair sleeve from the kit and cut two thin strips of aluminum with the multi-tool, working the metal back and forth until it gave. Now he set the strips along the split wood, braced them with a tent stake, and wrapped cord through the seat frame with care so furious it looked almost tender.
 
-It was the best thing about him and the worst. Problems became objects. Objects could be held, splinted, forced back toward function. If the damage had an edge, a screw, a wet seam, a cracked place, Mike could give himself to it completely and become almost gentle.
+It was the best thing about him and the worst. Problems became objects. Objects could be held, splinted, forced back toward function. If the damage had an edge, a screw, a wet seam, a cracked place, Mike could give himself to it completely.
 
 His fingers shook from cold. He pretended they did not.
 
@@ -80,7 +80,7 @@ Will looked toward the trees as if ashamed of the sound of his own voice.
 
 That was new, and Joel noticed it more sharply than the argument. Will had always filled air the way some men fed a stove. He put words into space and warmed himself by them. Now each sentence left him looking after it, frightened of where it might go.
 
-The wind pushed through the tarp and brought lake smell with it: cold tannin water, bruised cedar, mud opened by their sandals. Joel's socks were damp inside his camp shoes. His wet shorts had dried only at the edges and remained cold at the waistband. When he bent for the pot, the muscles under his ribs fluttered once and kept fluttering. Hunger came over him in shallow waves and broke before it became appetite. Cold had a way of making the body practical before the mind caught up: hands slow, jaw tight, decisions reduced to heat, calories, dry cloth, light.
+The wind pushed through the tarp and brought lake smell with it: cold tannin water, bruised cedar, mud opened by their sandals. Joel's socks were damp inside his camp shoes. His wet shorts had dried only at the edges and remained cold at the waistband. When he bent for the pot, the muscles under his ribs fluttered once and kept fluttering. Hunger came over him in shallow waves and broke before it became appetite. Cold made the body practical before the mind caught up: hands slow, jaw tight, decisions reduced to heat, calories, dry cloth, light.
 
 They cooked because they had to warm something. It took too long. The stove sputtered in the wind, blue flame flattening under the pot, then flaring when Mike moved his pack as a shield. The click of the igniter made all three of them freeze before flame took. Joel saw the stove. Mike saw the stove. Will pointed at it anyway, a small bitter ceremony.
 
@@ -150,7 +150,7 @@ Those words changed the camp more than the voice had.
 
 They had all known it in pieces. Joel had written denials in the notebook. Will had said repetition and almost said more. Mike had conceded uncertainty, maybe, with the map in front of him and the water behind him. But Mike had not given up the world out loud. He had kept bear as long as he could. He had kept weather, shock, echo, grief, mishearing, any hard word with a normal body behind it.
 
-Now he stood with one hand on Will's shoulder and said that their dead friend's voice was not their dead friend.
+Now he stood with one hand on Will's shoulder and said that their dead friend's voice was not their dead friend. The ordinary names fell away without drama. Mike did not look relieved. He looked poorer.
 
 Will bent slowly and picked up his glasses. He did not put them on right away.
 
@@ -256,11 +256,11 @@ Joel looked at him.
 
 Will swallowed. The words wanted out of him. Joel could see them crowding behind his teeth. Will was a man built out of distinctions, and this distinction had weight.
 
-"Maybe it can splice," he said, barely above breath. "Not invent. Not like us. But assemble. Phrase, tone, timing. It can put what it heard where it doesn't belong. That's not understanding."
+"Maybe it can cut things together," he said, barely above breath. "Not invent. Not like us. Phrase, tone, timing. It can put what it heard where it doesn't belong. That's not understanding."
 
 "Will," Joel said.
 
-"No, that's important."
+"No, that's the point."
 
 "I know."
 
@@ -364,7 +364,7 @@ Will's eyes flashed. "I'm identifying a mechanical constraint."
 
 Will closed his mouth.
 
-Mike stepped back under the tarp. That was harder for him than going forward would have been. Joel could see the effort in his neck, the humiliation of retreat from a three-inch zipper sound. He did it anyway. The retreat was not cowardice. It was obedience to evidence, and it looked worse on him than anger.
+Mike stepped back under the tarp. That was harder for him than going forward would have been. Joel could see the effort in his neck, the humiliation of retreat from a three-inch zipper sound. He did it anyway.
 
 The gear shelter remained half open. No one fixed it.
 
@@ -404,7 +404,7 @@ Mike said, "Maybe it wants us to check the boats."
 
 "Maybe it wants us to answer," Will said.
 
-Joel looked at the dark below the trees. Want was a dangerous word. It gave the dark a center, a face it had not earned. Cold did not want. Wind did not want. Water did not want. Want made the thing too human, and human was the shape it had learned to wear.
+Joel looked at the dark below the trees. Want was a dangerous word. It gave the dark a center, a face it had not earned. Cold did not want. Wind did not want. Water did not want. Human was the shape it had learned to wear.
 
 He took the pencil and wrote:
 
@@ -442,7 +442,7 @@ Will gave him a look so exhausted it had almost no anger left. "Mike."
 
 He touched the zipped pocket on the PFD beside his knee without looking at it. Key, road, truck: the whole outside world reduced to a hard piece of metal and a line on paper.
 
-"The old map puts a maintenance cabin inland from the next portage," Mike said. "Maybe there's a trace. Maybe there's a road."
+"The old map puts a maintenance cabin inland from the next portage," Mike said. "A square and a dashed trace. Maybe there's a road."
 
 "Maybe there's a fairy goddamn godmother."
 
@@ -450,13 +450,15 @@ He touched the zipped pocket on the PFD beside his knee without looking at it. K
 
 The phrase came out smaller than when he had said it before. Not declaration. Not certainty. A man offering up the last solid object he had.
 
+He looked at the patched canoe, the wet bag, the barrel hanging badly between two trees. "I put us on this route," he said. "I'm not saying that fixes anything. But if there's another human mark out here, I want to see it in daylight."
+
 Joel felt Will beside him gather for the correction. Map says there was a cabin. Map says someone once paid a printer. Map says a lot of things. Joel could hear all of it, and because he could hear it he knew the woods might too.
 
 "Tomorrow," Joel said.
 
 Both men looked at him.
 
-He wished he had a better reason. He wished he believed in the cabin. What he believed was narrower: they could not move at night; another full day here would make them colder and more stupid; the water had nearly killed them in daylight; the woods were no safer, but a trace would put solid ground under their feet. The cabin did not have to be rescue. It only had to be the next testable human mark.
+He wished he had a better reason. He wished he believed in the cabin. What he believed was narrower: they could not move at night; another full day here would make them colder and more stupid; the water had nearly killed them in daylight; the woods were no safer, but a trace would put solid ground under their feet. The cabin did not have to be rescue. It only had to be testable.
 
 "We look in daylight," Joel said. "All three. No scouting alone. If it is nothing, we come back."
 
@@ -590,6 +592,6 @@ The laugh did not repeat. The lake worked below them. The tarp ticked once, and 
 
 They held their silence until it became less like courage and more like another kind of labor.
 
-By the time Mike's head began to lower against his chest and Will's shivering settled into uneven breaths, Joel had understood the cabin for what it was. Not rescue. Not safety. A square on an old map, a human mark in a place that was steadily taking human things apart: voices, routes, jokes, certainty, the clean usefulness of saying a name. It was something that could be checked in daylight.
+By the time Mike's head began to lower against his chest and Will's shivering settled into uneven breaths, Joel had understood the cabin for what it was. Not rescue. Not safety. A square on an old map, a human mark in a place that was steadily taking human things apart: voices, routes, jokes, certainty, the clean usefulness of saying a name. It was something that could be checked in daylight, all three of them together or not at all.
 
 In the morning they would put stones on the map corners and pretend paper still knew how to tell the world what to be.

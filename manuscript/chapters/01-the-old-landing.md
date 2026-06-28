@@ -20,15 +20,15 @@ Mike looked up. “Do you hear yourself?”
 
 “Constantly,” Will said. “It’s a burden.”
 
-Joel parked along the curb and shut off his old Acura. For a moment he stayed where he was, hands resting on the wheel. The morning had the clean September look that always made him mistrust the forecast. Blue sky, dry pavement, a small bite under the sun. St. Louis had heat banked in the sidewalks by now, but under Will’s maples the air still felt usable. A strap buckle ticked against the truck rack. A paddle knocked once under the cap, hollow and neat, and then the driveway went back to voices.
+Joel parked along the curb and shut off his old Acura. For a moment he stayed where he was, hands resting on the wheel. The morning had the clean September look that always made him mistrust the forecast. Blue sky, dry pavement, a small bite under the sun. St. Louis had heat banked in the sidewalks by now, but under Will’s maples the air still felt usable. A strap buckle ticked against the truck rack. A paddle knocked once under the cap, hollow and neat. Then the driveway went back to voices.
 
-He had driven in from Madison the day before and slept badly on Will’s couch, half under a dog blanket Will insisted was clean. Mara had texted once while he was crossing Illinois: drive safe, and don’t let them make you reasonable. He had answered from a rest stop with a picture of gas-station coffee in a paper cup. After that the phone had gone quiet. Caterer, guest list, venue balance, the little domestic arithmetic of the house they had bought before they were fully used to being people who owned gutters and a sump pump: all of it waited in Madison with her.
+He had driven in from Madison the day before and slept badly on Will’s couch, half under a dog blanket Will insisted was clean. Mara had texted while he was crossing Illinois: drive safe, and don’t let them make you reasonable. A minute later: send me one decent tree picture so I can pretend this is scenic. He had sent back gas-station coffee in a paper cup and promised better material. After that the phone had gone quiet. Caterer, guest list, venue balance, the little domestic arithmetic of the house they had bought before they were fully used to being people who owned gutters and a sump pump: all of it waited in Madison with her.
 
 Here, the others had started the old argument before coffee. They could argue over rope, fuel, departure time, whether a cooler counted as a food-management system, whether a seven-day route meant six dinners or seven, whether a man approaching forty should still own a foam sleeping pad from college.
 
 This was how the trip began. Not at the water. Not even on the road. It began in somebody’s driveway with too much gear and too many opinions, four men making order by touching every object once and arguing over half of them. Pack the right things. Leave the wrong ones. Tie a clean knot over the visible mess. Pretend the knot was order because the knot held.
 
-Mara would have made one list and taped it to a cabinet. She would have put a square beside each name and item, then crossed things off with a satisfaction too small to call joy and too visible to miss. Joel had watched her do it for the wedding seating chart two nights before he left, barefoot in the kitchen, hair pinned badly off her neck, one hand in a bag of pretzels while she moved entire family histories by dragging names across a screen. He had loved her most in moments like that, when competence was not an argument but a form of care.
+Mara would have made one list and taped it to a cabinet. She would have put a square beside each name and item, then crossed things off with a satisfaction too small to call joy and too visible to miss. Joel had watched her do it for the wedding seating chart two nights before he left, barefoot in the kitchen, hair pinned badly off her neck, one hand in a bag of pretzels while she moved entire family histories across a screen. When she caught him watching, she had tipped one pretzel into his mouth without looking away from the chart. He had loved her most in moments like that, when competence was not an argument but a form of care.
 
 He had also left her with the list.
 
@@ -122,7 +122,7 @@ Alex turned to Joel. “Jesus, listen to this guy.”
 
 “Branching is a process.”
 
-Joel smiled despite himself and went to his trunk for the rest of his gear. He had packed neatly enough, but not obsessively. Will and Mike did the planning. They made the lists, argued routes, watched water levels, compared portage reports, and decided which old map was trustworthy enough to carry and which old map was trustworthy enough to mock. Joel looked at what they sent him, asked a few practical questions, then showed up with what he was told to bring plus what he knew he would want when wet and tired. He was competent on the water, more than casual, less than Will and Mike, but he only got one real trip a year now if he was lucky. Work, code releases, travel from Madison, wedding machinery, house things, the ordinary undertow. He liked the trip partly because it made a week into one sentence: move north and keep the gear dry. It asked less of him than home did, or seemed to.
+Joel smiled despite himself and went to his trunk for the rest of his gear. He had packed neatly enough, but not obsessively. Will and Mike did the planning. They made the lists, argued routes, watched water levels, compared portage reports, and decided which old map was trustworthy enough to carry and which old map was trustworthy enough to mock. Joel asked a few practical questions, then showed up with what he was told to bring plus what he knew he would want when wet and tired. He was competent on the water, more than casual, less than Will and Mike, but he only got one real trip a year now if he was lucky. Work, code releases, travel from Madison, wedding machinery, house things, the ordinary undertow. He liked the trip because it made a week into one sentence: move north and keep the gear dry.
 
 Will and Mike went several times some years. Small rivers, shoulder-season overnights, route tests, gear shakedowns that sounded to Joel like recreation disguised as logistics. Mike sold and resold canoes and took it personally when anyone used the wrong tie-down. Will fished every piece of water that looked like it might tolerate him.
 
@@ -232,11 +232,11 @@ Will said, “And there’s Mike, smiling at the children.”
 
 “You’re not always useful either.”
 
-That was the tone of it. Mike and Will could move from joke to argument without changing volume. Both of them had done a string of relationships that ended in different weather. Will’s usually lasted three to nine months, long enough for habits to form and short enough for him to describe them later as “educational.” A few had lasted longer and left him quieter afterward. Mike’s came less regularly, sometimes more intensely, sometimes with shared leases or dogs or storage units, and always ended badly enough that his friends learned not to ask until he made the first joke.
+That was the tone of it. Mike and Will could move from joke to argument without changing volume. Both of them had done relationships that ended in different weather. Will’s usually lasted three to nine months, long enough for habits to form and short enough for him to describe them later as “educational.” A few had lasted longer and left him quieter afterward. Mike’s came less regularly, sometimes with shared leases or dogs or storage units, and badly enough that his friends learned not to ask until he made the first joke.
 
 Alex kept his own life closer. Or emptier. Joel could never tell which. There were women in stories sometimes, but rarely names that returned. He made singleness sound like freedom when he wanted to and like weather when he did not.
 
-Joel was engaged, which in the group made him both suspect and useful. Someone had to know about venues, contracts, and the price of flowers. The others treated it like a foreign war he had volunteered for. He had learned to let the jokes pass because answering them made the subject larger, and because some part of him liked having one future the group could not vote on.
+Joel was engaged, which in the group made him both suspect and useful. Someone had to know about venues, contracts, and the price of flowers. The others treated it like a foreign war he had volunteered for. He let the jokes pass because answering made the subject larger, and because some part of him liked having one future the group could not vote on.
 
 That future had Mara in it, and a kitchen calendar with held dates crossed out and rewritten, and a house list that kept growing in the margins. The trip had none of that density yet. It was still clean on paper. Seven days, six nights. A blue line through old green, two vehicles at either end, men he knew by sound before sight.
 
@@ -246,7 +246,7 @@ At the front rack, Alex stopped joking long enough to put one hand under the can
 
 “Now,” Mike said, and pulled the webbing tight.
 
-Joel saw the small exchange and filed it with the other things about Alex that were easy to forget once he started asking the world to look at him.
+Joel saw the small exchange and filed it with the other things about Alex that were easy to lose under the noise.
 
 They finished loading close to noon.
 
@@ -314,7 +314,7 @@ Mike said, “I’m not giving you that.”
 
 At the edge of the lot Mike unfolded one of the maps on the hood. Will stood beside him with a pen. Joel drank bad coffee and watched the two of them bend over the paper. The route was a line of blue and green and little black warnings. South Access at the bottom. A chain of narrow lakes, a river section, several portages, a larger lake, a constricted channel, another portage. North Road Bridge at the top, where Mike’s Highlander would wait if the old thing agreed to start again after a week alone.
 
-On paper the trip had manners. The portage lines were short enough to look polite. The lakes lay flat and obedient inside their shorelines. The old road crossings were thin black promises, not mud, alder, wind, or daylight. Joel knew better than to trust a map as a picture, but he still trusted it as an agreement. Someone had gone first. Someone had found enough order to name the trouble.
+On paper the trip had manners. The portage lines were short enough to look polite. The lakes lay flat and obedient inside their shorelines. The old road crossings were thin black marks, not mud, alder, wind, or daylight. Joel knew better than to trust a map as a picture, but he still trusted it as an agreement. Someone had gone first. Someone had found enough order to name the trouble.
 
 “First day is easy if we get on the water early enough,” Mike said.
 
@@ -366,9 +366,9 @@ Will said, “That cabin could be gone.”
 
 “Because it’s on the map.”
 
-Joel looked at the square. It was printed with the same confidence as the lakes and roads, but it felt different. Human marks aged badly in wild country. A lake could move at the edges, a channel could choke with beaver work, but it remained itself. Cabins became rumors. Roads became brush. Names stayed longer than things.
+Joel looked at the square. It was printed with the same confidence as the lakes and roads, but it felt different. Human marks aged badly in wild country. A lake could move at the edges, a channel could choke with beaver work, but it remained itself. Cabins became rumors. Roads became brush. Names outlived things.
 
-He did not have a reason to dislike that, and reason was the tool he trusted. Still, his eye kept returning to the square after Mike folded the paper. The mark seemed to stay visible through the creases, a little human request the woods had never agreed to honor.
+He did not have a reason to dislike that, and reason was the tool he trusted. Still, his eye kept returning to the square after Mike folded the paper.
 
 Mike folded the map hard. “We’re exactly where we ought to be.”
 
@@ -464,7 +464,7 @@ Alex pointed a fry at him. “And you missed having a soul, but nobody brings th
 
 “You do,” Mike said. “Constantly.”
 
-Joel drank his beer and let them work. He did not feel outside the group exactly. He felt adjacent to its louder mechanisms. Will and Mike built the plan. Alex built the weather around it. Joel listened, carried, steered when needed, said no when no needed saying, and took his share of the weight. It was enough. Most years it was enough. This year he was less certain, though not in any way he could have defended. The jokes still landed. The old stories still opened. But there were more pauses afterward, and in the pauses each man seemed to remember the life he had come from.
+Joel drank his beer and let them work. He did not feel outside the group exactly. He felt adjacent to its louder mechanisms. Will and Mike built the plan. Alex built the weather around it. Joel listened, carried, steered when needed, said no when no needed saying, and took his share of the weight. Most years that was enough. This year he was less certain, though not in any way he could have defended. The jokes still landed. The old stories still opened. But the pauses lasted longer.
 
 After dinner they walked back under a sky that had cleared into hard northern stars. The air was colder now. The ditch behind the motel smelled of mud and wet leaves. Mosquitoes gathered under the lights and vanished in the darker spaces between them.
 
@@ -524,9 +524,9 @@ Will nodded, not satisfied but finished. “I’m just saying.”
 
 “I know,” Mike said.
 
-Joel let the subject close with the others. It was easy to do because the absence had no weight yet. It was not like forgetting a paddle or a stove. There was nothing to point to, no empty hook in the truck bed, no missing case on the motel floor. It was a small blank place in the plan, and blank places were invisible until something needed to occupy them.
+Joel let the subject close with the others. It was easy to do because the absence had no weight yet. It was not like forgetting a paddle or a stove. There was nothing to point to, no empty hook in the truck bed, no missing case on the motel floor. It was a small blank place in the plan, and blank places stayed invisible until something needed to occupy them.
 
-Besides, they had done versions of this before. They had been wet before, late before, turned around before, stupid before, and the world had let them come home with better stories than sense. Experience was useful. It was also a way of teaching a man which warnings he could ignore.
+Besides, they had done versions of this before. They had been wet before, late before, turned around before, stupid before, and the world had let them come home with better stories than sense.
 
 The rooms went quiet by eleven, late for the plan and early for them. Joel shared with Will. Alex and Mike took the other room, though Mike left once more to check the truck and came back smelling of cold air.
 
@@ -570,10 +570,10 @@ Will took them from him. “Thank you for your service.”
 
 Mike looked at Joel, as if Joel might provide a better species of man to travel with, then shut the door with a soft click.
 
-Outside, a truck went by on the road and faded north. The canoes rested on Will’s truck under the security light. The Highlander sat beside it, ancient and square and waiting to be abandoned at the far end of the route. In the morning they would put a vehicle in the future and then drive back toward the beginning. It was practical. It was normal. It was the sort of thing men did when they trusted maps and weather and one another enough.
+Outside, a truck went by on the road and faded north. The canoes rested on Will’s truck under the security light. The Highlander sat beside it, ancient and square and waiting to be abandoned at the far end of the route. In the morning they would put a vehicle in the future and then drive back toward the beginning. It was practical. It was normal.
 
-Through the wall, Alex laughed once more. The sound came through plaster changed but still his: hard, bright, wanting an answer. After that came Mike’s lower voice, indistinct, then the click of a door latch somewhere down the row, then the building settling into its cheap nighttime silence. The sounds were ordinary because everyone who made them was accounted for.
+Through the wall, Alex laughed once more. The sound came through plaster changed but still his: hard, bright, wanting an answer. After that came Mike’s lower voice, indistinct, then the click of a door latch somewhere down the row, then the building settling into its cheap nighttime silence. The sounds were ordinary because their sources were still there.
 
-Joel listened until he could attach each sound to a body or object: road, wall, latch, men in the next room, a cheap building cooling around them.
+Joel listened until he could attach each sound to a body or object: road, wall, latch, men in the next room, the cheap building cooling around them.
 
 Then he slept.

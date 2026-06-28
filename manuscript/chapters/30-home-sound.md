@@ -2,7 +2,7 @@
 
 Home had too many sounds.
 
-The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone waking and going dark on the table. Mara breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
+The refrigerator motor. Pipes in the walls. Cars passing on wet pavement. The phone lighting and going dark on the table. Mara breathing in sleep beside him and turning once under the sheet. Floorboards settling after the furnace stopped. Rain in the gutter making small patient ticks that had nothing to do with tarp lines and therefore everything to do with them.
 
 Joel did not sleep much.
 
@@ -12,7 +12,7 @@ He would watch her chest rise and fall. He would tell himself the rule was finis
 
 Then the house would click.
 
-Wood contracting. Ductwork. Ice maker. A neighbor's car door closing too hard. Somebody's dog once, high and offended behind a fence two houses down. The city had always been noisy, but before the trip noise had been background. Now every sound came forward with its hands empty, asking to be identified.
+Wood contracting. Ductwork. Ice maker. A neighbor's car door closing too hard. Somebody's dog once, high and offended behind a fence two houses down. The city had always been noisy, but before the trip noise had been background. Now every sound needed a source before it could fall back into the room.
 
 He gave each one a source.
 
@@ -56,7 +56,7 @@ He looked at the notebook on the kitchen table. He had not opened it yet. Its co
 
 "I did not see an animal clearly," he said.
 
-That was true. It was not enough truth to satisfy anything except a form.
+That was true. It was the amount of truth a form could hold.
 
 They asked what he had heard.
 
@@ -78,7 +78,9 @@ That was also true.
 
 The official story grew without him and then around him. Animal attack. Fatal injuries. Severe weather. Disorientation. Exposure. Separation. Possible drowning. Survivor trauma. No evidence of foul play. Unusual circumstances. Remote terrain. Search suspended, resumed, adjusted by probability and weather and daylight.
 
-The words entered newspapers, calls, emails, family messages, agency updates. Each version was shorter than the last. Four men went in. One came out. A bear was suspected, then not confirmed. The lack of a satellite messenger was noted by people who had never stood at Will's truck while the trip still looked like a trip. The phrase experienced outdoorsmen appeared once, then disappeared under comments from strangers who believed all dead men had made one obvious mistake.
+The words entered newspapers, calls, emails, family messages, agency updates. Each version was shorter than the last. Four men went in. One came out. A bear was suspected, then not confirmed. Alex had been recovered. Evidence near the old cabin made Mike official enough for papers. Searchers had found Will's pack and gear near the final portage, but not Will. That sounded technical until Joel tried to sleep.
+
+The lack of a satellite messenger was noted by people who had never stood at Will's truck while the trip still looked like a trip. The phrase experienced outdoorsmen appeared once, then disappeared under comments from strangers who believed all dead men had made one obvious mistake.
 
 Joel stopped reading.
 
@@ -88,7 +90,7 @@ Mara read longer than he did. Not the comments, she told him, and not the amateu
 
 She had always been better than he was at the civic machinery of things: forms, minutes, revised agendas, the quiet violence of getting ten adults to agree on a date. Before the route, that competence had embarrassed him when it turned toward the wedding. Afterward it kept the house from dissolving into unopened envelopes and messages he could not return. She printed what needed printing, called who needed calling, then went to the porch and breathed through her mouth where he would not have to see her cry.
 
-Families called.
+The families called.
 
 Will's mother called from a room with a clock in it. Joel could hear the clock behind her when she was silent. It ticked too cleanly. Will had once hated that clock. He had said, at twelve or thirteen, that no serious instrument should mark time with a sound designed to make people repent. Joel had remembered it in the hospital and then could not stop remembering it when the old woman said his name.
 
@@ -108,7 +110,7 @@ On the other end, Will's mother made a small sound. Not quite a sob. More like a
 
 "But he wasn't alone at the end," Joel said.
 
-He had not meant to say it. It was true in the worst way and maybe false in the only way that mattered. Will had been visible, then not. Joel had been there until he was not there enough. There was no sentence that could hold the exact distance between them at the end.
+He had not meant to say it. It was true in the worst way and false in the only way that mattered. Will had been visible, then not. Joel had been there until he was not there enough. No sentence could hold the exact distance between them at the end.
 
 "Thank you," she said.
 
@@ -126,7 +128,7 @@ He did not know that. He gave it to her because some lies were doors out of wors
 
 Joel closed his eyes.
 
-She did not say everything. She did not have to. He heard the old shape of Mike in the space around her words: competent, impossible, broke, generous when it suited him and generous sometimes when it did not, certain as a tool laid in the wrong hand.
+She did not say everything. She did not have to. He heard the old shape of Mike in the space around her words: competent, impossible, broke, generous when it suited him and sometimes when it did not, certain as a tool laid in the wrong hand.
 
 "He got us far," Joel said.
 
@@ -154,13 +156,13 @@ He came back because the living had to be answered. Survival had taught him not 
 
 The brother asked what Alex's last good day had been like.
 
-Joel told him about Second Camp only up to the fire. That felt wrong, so he went backward. He told him about Alex turning a bad landing into theater. He told him about the bland food in the dry bag and the hot sauce Alex carried as if it were someone else's personality he had agreed to try on. He told him about Alex helping Will with a pack strap when he thought no one was watching. He told him Alex had been strong in a canoe, bad at being quiet, and game for the ugly parts in the way men sometimes are when they think discomfort will become a story later.
+Joel told him about Second Camp only up to the fire. That felt wrong, so he went backward. He told him about Alex turning a bad landing into theater. He told him about the bland food in the dry bag and the hot sauce Alex carried as if it were someone else's personality he had agreed to try on. He told him about Alex fixing Will's pack strap when he thought no one was watching. He told him Alex had been strong in a canoe, bad at being quiet, and game for the ugly parts in the way men sometimes are when they think discomfort will become a story later.
 
 "That sounds like him," the brother said.
 
 Joel did not say that the woods had thought so too.
 
-After the calls, Mara sat beside him without touching him until he moved first. She had learned that faster than anyone should have had to learn it. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A sourced touch. A body attached to the comfort.
+After the calls, Mara sat beside him without touching him until he moved first. She had learned that faster than anyone should have had to learn it. He put his head against her shoulder. Her hand came up slowly and rested on the back of his neck. A body attached to the comfort.
 
 "You don't have to do all of them," she said.
 
@@ -170,7 +172,7 @@ After the calls, Mara sat beside him without touching him until he moved first. 
 
 "They don't have anybody else who was there."
 
-She looked toward the drawer where he had put the notebook. He had moved it from the kitchen table after the first agency call because it had begun to feel like a third person in the room.
+She looked toward the drawer where he had put the notebook. He had moved it from the kitchen table after the first agency call because it had begun to feel like another person in the room.
 
 "There is what was there," she said. "And there is what you can give them."
 
@@ -184,7 +186,7 @@ He almost told her she sounded like Will. The correction sat at the back of his 
 
 He had no answer for that. She went to the sink and washed the mug Will's mother had made him hold without drinking. Her hands moved under the water with controlled irritation. She did not break anything. He almost wished she would.
 
-Weeks passed. The world resumed its insulting competence.
+Weeks passed. The world resumed its competence.
 
 Emails arrived. Leaves came down. The street crews collected brush after a storm and fed it into a machine that made a wet grinding sound for two hours while Joel sat on the bathroom floor with the fan running. Mara went back to work and came home carrying the odors of other rooms: printer toner, rain on wool, somebody's microwave popcorn, the sharp soap from the restroom there. Her job had a thousand small schedules in it. People moved from one room to another, meetings shifted, budgets corrected, names spelled right before a document went out. Some evenings she came home with no patience left for managing his fear too.
 
@@ -290,7 +292,7 @@ He opened the notebook in October.
 
 He did it in daylight, at the kitchen table, with the back door open and traffic audible on the cross street. The air had cooled enough that the house smelled faintly of leaves. He placed a glass of water on the left, a pencil on the right, and the notebook between them as if arranging tools before a repair.
 
-The first pages were ordinary enough to hurt. Gear counts. Miles estimated. Weather. Food. Jokes half recorded because Joel had once believed he might write a trip report. Alex complained about oatmeal. Mike says old map better than new lies. Will says compression sack is not compression if you just bully it.
+The first pages were ordinary enough to hurt. Gear counts. Miles estimated. Weather. Food. Jokes half recorded because Joel had once believed he might write a trip report. Alex complains about oatmeal. Mike says old map better than new lies. Will says compression sack is not compression if you just bully it.
 
 His handwriting changed after Alex.
 
@@ -336,7 +338,7 @@ He looked at the notebook.
 
 "I know."
 
-It was an argument, but not one either of them could win. The notebook lay open between them, full of rules that had saved one man and made no room for the person standing in his kitchen.
+It was an argument, but not one either of them could win. The notebook lay open between them, full of rules that had saved one man and made no room for the woman standing in his kitchen.
 
 At night, he heard them less often than he expected and more often than he could bear.
 
@@ -411,6 +413,8 @@ He listened to the house. The blower. A car passing through slush. Her breath.
 Her hand found his under the sheet.
 
 "What do we do when you don't?"
+
+Not what do I do with you. The word cost her something. He heard it and had no right to it.
 
 He thought of the notebook. Of rules written in rain. Of Will's question about whether writing could teach it. Every method that had saved him had also narrowed the world.
 

@@ -2,7 +2,7 @@
 
 By morning Mike had the old map spread on a wet rock, with stones on the corners.
 
-The rock was not flat enough. Nothing there was. The lake had dropped in the night or seemed to have, leaving a black line on the stones where water had held and withdrawn. The canoes lay higher than the mark, pale and cold under spruce shadow. The tarp sagged over the root shelf. Will's sleeping bag hung dark at the foot where the water still owned it. Every object they owned looked borrowed from a poorer version of the same trip.
+The rock was not flat enough. Nothing there was. The lake had dropped in the night or seemed to have, leaving a black line on the stones where water had held and withdrawn. The canoes lay higher than the mark, pale and cold under spruce shadow. The tarp sagged over the root shelf. Will's sleeping bag hung dark at the foot where the water still owned it. Every object they owned looked like the poorer copy of something they had once trusted.
 
 Joel stood with his arms folded against his chest and watched water gather in the creases of the map case. The plastic was clouded from old scratches. Under it the printed lakes and portages held their clean colors, blue and green and brown arranged with confidence. Little broken lines crossed land as if land had agreed to be crossed. A square sat inland from the portage they had missed the day before, small enough to be nothing, exact enough to make men lean toward it.
 
@@ -16,7 +16,7 @@ Mike had found the map before coffee. He had not slept, or had slept only in dro
 
 Will did not bend closer. He stood above the rock with both hands tucked under his armpits, one palm bandaged from the landing scramble the day before, where granite had taken a clean little bite out of him and given back blood. The bandage had already loosened at one edge. Damp made every repair temporary.
 
-Joel could see the old route as Mike saw it. Emergency Camp below them at the wrong shore. The missed portage north and west along the lake, reachable if the wind stayed down, if the repaired canoe behaved, if no sound pulled them apart at the landing. The cabin inland from that portage, connected by a faint black line to something marked as an old fire road. Past that, perhaps another road, or a clearing, or a ditch where a road had been. Perhaps only the old shape of a human intention with the human use gone out of it.
+Joel could see the old route as Mike saw it. Emergency Camp below them at the wrong shore. The missed portage north and west along the lake, reachable if the wind stayed down, if the repaired canoe behaved, if no sound pulled them apart at the landing. The cabin inland from that portage, connected by a faint black line to something marked as an old fire road. Past that, perhaps another road, or a clearing, or a ditch where a road had been. Perhaps only the shape of an intention after use had gone out of it.
 
 Paper kept all those versions in the same ink.
 
@@ -58,7 +58,7 @@ Will's mouth tightened. He had slept in the least wet bag and looked worse for i
 
 Joel crouched beside the rock. The old map had been opened and folded so often the route wore a softness like cloth. He touched the plastic above the square, then drew his finger along the faint line toward the fire road. Under the case, the line looked deliberate. On the ground it would be alder, blowdown, wet leaves, rotten corduroy maybe, old tire ruts full of black water. A human mark did not mean human presence. It meant somebody, once, had wanted the same thing they wanted now: a way through.
 
-He thought of Mara's house list, gutters and inspection dates and the number for the electrician written in her square hand on the refrigerator. Those marks belonged to a world where a list could still become a Saturday. This map belonged to that world too, or pretended to. A line. A square. A word. In Madison those things started errands. Here they started a morning none of them could take back.
+He thought of Mara's house list, gutters and inspection dates and the electrician's number written in her square hand on the refrigerator. Beside it, before he left, she had drawn a little box for tulip bulbs and written only if you actually want them, which had made him laugh because he did, because she knew he did, because she had found a way to make even a chore tease him for being known. Those marks belonged to a world where a list could still become a Saturday. This map belonged to that world too, or pretended to. A line. A square. A word. In Madison those things started errands. Here they started a morning none of them could take back.
 
 "If the road is gone?" Joel asked.
 
@@ -118,7 +118,7 @@ Joel wrote beneath it:
 
 ASSUME WRONG UNTIL SEEN.
 
-That quieted them for a moment. It was the rule they had been making without wanting to admit it applied to more than voices. A friend's voice. A latch. A boat knock. A square on a map. None of it counted until the body or object stood where the sound or mark said it would.
+That quieted them for a moment. The rule was not only for voices anymore. A friend's voice. A latch. A boat knock. A square on a map. None of it counted until the body or object stood where the sound or mark said it would.
 
 Joel added:
 
@@ -138,7 +138,7 @@ Will saw. His face changed and changed back. He ate it without comment.
 
 When he lifted the trail mix, the loose edge of his bandage caught on his cuff and peeled back. The cut across his palm opened red in the wet white gauze. Will tucked the bandage down with his thumb and kept chewing, eyes on the map rock, as if blood were only another leak no one had time to fix.
 
-Packing for a possible exit was harder than packing for a route. A route allowed redundancy. You carried extra socks, extra line, an extra headlamp, a book you thought you might read on a point in evening light. Escape made every object argue for itself. The first aid kit mattered. The repair kit mattered if they came back to boats. The stove mattered if they were out overnight and wet. Food mattered, but not the whole barrel. Sleeping bags mattered, though Will's was still damp at the foot and would add weight without granting much mercy. The tarp mattered. The tent body did not. The cracked paddle might become a brace or a probe. A fishing rod had no case left to make.
+Packing for a possible exit was harder than packing for a route. A route allowed redundancy. You carried extra socks, extra line, an extra headlamp, a book you thought you might read on a point in evening light. Escape made every object argue for itself. The first aid kit mattered. The repair kit mattered if they came back to boats. The stove mattered if they were out overnight and wet. Food mattered, but not the whole barrel. Sleeping bags mattered, though Will's was still damp at the foot and would add weight without granting much mercy. The tarp mattered. The tent body did not. The cracked paddle might become a brace or a probe. Will's rod belonged to the life they had been in before.
 
 Will held his rod tube for a long time, then set it under the gear shelter.
 
@@ -170,7 +170,7 @@ He picked it up. His face did not change. He checked the safety, then clipped it
 
 Will stared at him.
 
-Joel did not know whom Mike meant. Will, maybe. The page. Alex, if a man could be angry at the dead for leaving behind a tool that had not saved them. The full canister had become more than a tool, and all three men knew it. Alex's safety clip had stayed in place through the attack. It had become evidence of the one second he had not been given.
+Joel did not know whom Mike meant. Will, maybe. The page. Alex, if a man could be angry at the dead for leaving behind a tool that had not saved them. The full canister had become more than a tool. Alex's safety clip had stayed in place through the attack. It was evidence of the one second he had not been given.
 
 Joel put Mike's near-spent canister into the cracked headlamp bag and wrote:
 
@@ -194,7 +194,7 @@ The sound had come from his hands. They had seen it. Still, Will's shoulders ros
 
 Will nodded too fast.
 
-They cached what they could not carry under spruce boughs and the low fly of the failed gear shelter. Cache was too grand a word for a pile of wet equipment hidden from weather, animals, and whatever else had no need to respect a tarp. Joel packed the tent body, the rod tube, the spare cookware, extra clothes too wet to justify their weight, and Alex's remaining odds and ends sealed inside the cracked headlamp bag because no one could decide who should carry them. He put Alex's hot sauce bottle there too. It had rolled out from a side pocket when Mike shook out a pack, red plastic bright against the moss.
+They cached what they could not carry under spruce boughs and the low fly of the failed gear shelter. Cache was too grand a word for a pile of wet equipment hidden from weather, animals, and whatever else had no need to respect a tarp. Joel packed the tent body, the rod tube, the spare cookware, extra clothes too wet to justify their weight, and Alex's remaining odds and ends sealed inside the cracked headlamp bag because no one could decide who should carry them. He put Alex's hot sauce there too. It had rolled out from a side pocket when Mike shook out a pack, red plastic bright against the moss.
 
 Will looked at it. "He would haunt us for leaving that."
 
@@ -244,7 +244,7 @@ Will watched him buckle it over his rain jacket. "We are not walking through a l
 
 Mike touched the zip pocket on the left side of the PFD. The gesture was quick but not quick enough to hide. The Highlander key. The staged exit. North Road Bridge sitting somewhere beyond all this with Mike's old vehicle waiting beside a road that still belonged to the human world.
 
-He had talked down the missing beacon before the trip. Not cruelly. Not even carelessly, exactly. The route was known, the vehicles were staged, the old map had backups, they had done harder trips with worse gear and come home irritated but fine. Joel had agreed by not objecting. Will had qualified and still packed. Alex had made a joke. The absence had been passed around until it belonged to all of them, but Mike was the one with the key in his pocket and the map in his hands.
+He had talked down the missing beacon before the trip. Not cruelly. Not even carelessly, exactly. The route was known, the vehicles were staged, the old map had backups, they had done harder trips with worse gear and come home irritated but fine. Joel had agreed by not objecting. Will had qualified and still packed. Alex had made a joke. The absence had been passed around until it belonged to all of them. Still, Mike was the one with the key in his pocket and the map in his hands.
 
 "Put it in the notebook," Mike said.
 
@@ -255,6 +255,8 @@ Joel looked at him.
 For a second no one moved.
 
 That was the first time Mike had allowed the sentence to reach that shape. Not if we get delayed. Not if the cabin is nothing. If something happens. The plainness of it stripped the morning colder.
+
+For a moment he looked as if he might say more. Beacon, maybe. Sorry, maybe. Some word that would put his hand near the missing thing and make the absence official. Instead he pressed his thumb against the PFD zipper until the fabric dented.
 
 Joel opened the notebook and wrote:
 
@@ -296,7 +298,7 @@ Mike glanced at the map, then at the slope. "Old access path. Should cut above t
 
 Will's mouth opened. Joel thought he might make some church joke because old reflexes chose bad moments. Then Will closed it.
 
-Joel was grateful and sorry at once. He and Will had grown up in rooms where men spoke certainty from pulpits and boys learned to say amen before they understood the question. Joel had spent half his adult life removing that tone from his own head. Mike had a different version of it, trail-made and brash instead of holy. Under pressure it asked for the same obedience: say the thing firmly enough and maybe the world would line up beneath it.
+Joel was grateful and sorry at once. He and Will had grown up in rooms where men spoke certainty from pulpits and boys learned to say amen before they understood the question. Joel had spent half his adult life removing that tone from his own head. Mike had a different version of it, trail-made and brash instead of holy. Under pressure it asked for the same obedience: say the thing firmly enough and maybe the world would line up.
 
 The world did not line up. It lay wet and irregular above them.
 
@@ -356,7 +358,7 @@ The trace bent left around a blowdown and narrowed. Will put one hand back, palm
 
 From the brush ahead came Mike's throat clear.
 
-Not behind Joel. Not from the living man ten yards ahead, turned half-profile in a gap between branches. Ahead of him. Beyond him. The same small preparation of the throat before instruction, before reassurance, before a plan. Familiar as the first click of a stove, and as hard not to wait for.
+Not behind Joel. Not from the living man ten yards ahead, turned half-profile in a gap between branches. Ahead of him. Beyond him. The same small preparation of the throat before instruction, before reassurance, before a plan. It was familiar as the stove click before flame and almost as hard not to wait for.
 
 The living Mike did not move.
 
@@ -386,7 +388,7 @@ Joel stepped forward and put two fingers against the back of Will's pack.
 
 Will closed his mouth.
 
-For a while nothing happened. Rainwater ticked from alder leaves. A mosquito worked near Joel's ear and he let it whine because swatting made sound and because some part of him now believed even irritation could be learned. The false voice did not repeat. Repetition would have shown the machinery. One clean use left the sentence standing in the path like a man.
+For a while nothing happened. Rainwater ticked from alder leaves. A mosquito worked near Joel's ear and he let it whine because swatting made sound and because some part of him now believed even irritation could be learned. The false voice did not repeat. Repetition would have shown the machinery. One clean use was worse. It left the sentence standing in the path.
 
 Mike turned at last. His eyes moved from Will to Joel, then down to the notebook in Joel's chest pocket.
 
