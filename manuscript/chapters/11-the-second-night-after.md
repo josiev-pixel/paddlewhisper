@@ -4,6 +4,8 @@ By the second night after Alex died, they had begun to know what to listen for a
 
 No one called it the second night after. There was no useful after yet. Alex was not behind them in any way the word could hold. He was ten yards through alder and wet brush, under a gray groundsheet and stones, close enough that a man could reach him in less than a minute and far enough that no one living could make himself go.
 
+They had failed to leave him once already. That changed the night. The first night had been shock and blood and the small animal labor of surviving until light. This one had choice in it. They had packed, launched, turned back, rehung the barrel, and built the same bad shelter under the same trees. They were here because water and wind had refused them, but also because every plan they had was still made of bodies, boats, daylight, and nerve, and all four had come up short.
+
 Rain closed the camp. It came down without force, a cold steady rain that made everything near and indistinct. It roofed the smallest sounds and flattened the rest. The tarp became an instrument. Each drop struck, joined another, became one continuous hand on nylon. Water gathered along the low edge and released in ropes. The spruce above them held its own store and spent it later, heavier, as if another weather had been waiting in the branches.
 
 The men sat close without comfort.
@@ -20,7 +22,9 @@ Beyond it, somewhere behind brush and weather and the orange strip Mike had tied
 
 No one had checked him before full dark.
 
-Will had asked once. Not directly. He had said, "The wind could get under plastic," while staring at the gap, and Mike had said, "It won't," too quickly. Joel watched Will's mouth move around the next sentence and fail. That was how the old friendship worked under strain: the worst thing approached, became visible, and everyone looked at the practical object nearest to hand. Knot. Stove. Map. Rope. An object could be handled.
+Will had asked once. Not directly. He had said, "The wind could get under plastic," while staring at the gap, and Mike had said, "It won't," too quickly. Joel had almost said they should look from the shore angle at least, just enough to confirm the sheet had not lifted. He did not. Saying it would have made a clean task out of a dirty desire. It would have put one of them at the mouth of the alder in rain, measuring duty against fear with the covered shape just out of sight.
+
+Joel watched Will's mouth move around the next sentence and fail. That was how the old friendship worked under strain: the worst thing approached, became visible, and everyone looked at the practical object nearest to hand. Knot. Stove. Map. Rope. An object could be handled.
 
 Now there were no objects left to fix. There were only objects to guard. Barrel. Boats. Paddles. Packs. Map case. Bear spray. The covered place beyond the alder was not an object, but they treated it like one because the living had run out of better duties.
 
@@ -66,7 +70,7 @@ Will looked at him.
 
 "The difference doesn't help tonight," Joel said.
 
-Will's face tightened. He wanted to argue. It was not only habit now. It was survival, or the nearest thing he had. If he could say it correctly enough, separate cause from coincidence and animal from voice, the world might become answerable again.
+Will's face tightened. He wanted to argue. It was not only habit now. It was survival, or the nearest thing he had. If he could say it correctly enough, separate cause from coincidence and animal from voice, the world might become answerable again. Joel understood the impulse and distrusted it. Will's mind was trying to build a shelter out of distinctions. Mike's was trying to build one out of orders. Joel had nothing better than looking.
 
 Joel had known him as a boy in church basements where adults used language the same way. Prayer requests. Testimonies. Concerns. A job loss became a season. A sick child became a burden. A death became a homegoing if the room was frightened enough of death. Joel had hated that before he knew he hated it, the soft hand laid over anything sharp. Will had not hated it, or had not needed to name the hatred. He had been bored and restless and overbright, whispering wrong jokes during youth group and coughing into his sleeve when he tried not to laugh. Joel could see him at twelve, fluorescent-lit and too thin, making Joel look down at his Bible so the adults would not see his face.
 
@@ -192,7 +196,7 @@ Mike's jaw worked. "It's an animal."
 
 Mike froze with his mouth half open.
 
-That, more than anything, made Joel afraid. Not the zipper. Not the latch. Mike had wanted to answer. The night had offered him the motion his life had practiced: challenge it, name it, push back. A bad deal, a wrong map, a man arguing from the front of a canoe, a route going ugly. Stand up. Make noise. Take command. Here command was another sound.
+That, more than anything, made Joel afraid. Not the zipper. Not the latch. Mike had wanted to answer. The night had offered him the motion his life had practiced: challenge it, name it, push back. A bad deal, a wrong map, a man arguing from the front of a canoe, a route going ugly. Stand up. Make noise. Take command. Here command was another sound, and sound was what the dark seemed to want from them.
 
 Mike sat back down slowly. Rain dripped from the brim of his hood onto his hands.
 
@@ -512,7 +516,7 @@ Joel wrote under Will: you guys hear that.
 
 The pen moved too loudly. He stopped between words and listened. Nothing answered the scratch of ink on damp paper. Maybe that meant nothing. Maybe the page had no voice unless one of them gave it one. Writing took tone away. It made Will's panic into shapes, Mike's certainty into shapes, Alex's laugh into a word too small to contain him. The thought steadied Joel more than it should have.
 
-He wrote more carefully: writing safe? Then put a question mark beside it. He did not know. The page had made no sound except the pen, and the pen had not yet become bait.
+He almost wrote the question he could feel forming about the page itself. He stopped it before the pen moved. A question could become a kind of invitation even without a voice. He did not know that. He did not know anything that cleanly. The page had made no sound except the pen, and the pen had not yet become bait.
 
 Will watched him write. His eyes moved over the page but he did not speak. Joel saw the question in him, bright and hungry. Can it learn from this? Does it understand? Is it only recording? Joel put the notebook back in the plastic bag before Will could borrow it and turn questions into air.
 
@@ -578,7 +582,7 @@ He stopped halfway through the sound.
 
 Joel saw his face change.
 
-The unfinished throat clear hung in the tarp space, small and living. Mike's own habit had caught him by surprise. He put one hand over his mouth, as if he could take it back. No answer came from the woods. No copied throat clear, no route instruction, no we're fine from beyond the barrel. The absence did not relieve them. It held.
+The unfinished throat clear hung in the tarp space, small and living. Mike's own habit had caught him by surprise. He put one hand over his mouth, as if he could take it back. For several breaths nothing answered from the woods. No route instruction, no we're fine from beyond the barrel. The absence did not relieve them. It held.
 
 Mike lowered his hand.
 
@@ -587,6 +591,16 @@ Mike lowered his hand.
 Joel nodded.
 
 There was nothing useful to say to that, and because there was nothing useful, he said nothing.
+
+Then, from the rain beyond the hanging barrel, came the first half of the same sound.
+
+Not the whole throat clear. Not Mike's voice. Only the little taken catch at the start of it, cut off where Mike had cut himself off. It was so small that in ordinary weather it would have disappeared inside water on leaves. Here it landed with a body missing from it.
+
+Mike did not lift the bear spray. His hand twitched and stayed on his knee.
+
+Joel pointed at Mike. Here.
+
+Mike nodded once, eyes fixed on the pale barrel.
 
 Will slept for maybe twelve minutes. Then his body, treacherous with exhaustion, coughed.
 
@@ -664,7 +678,7 @@ Will read it and nodded.
 
 Mike read it and looked away.
 
-It was not a theory. Theories wanted more words. It was not even a full rule. It had no exception for kindness, panic, or a dead friend needing rain pulled off his face. It was a refusal written before any of them could soften it.
+It was not a theory. Theories wanted more words. It was not even a full rule. It had no exception for kindness, panic, or a dead friend needing rain pulled off his face. It was a refusal written before any of them could soften it, and therefore the closest thing to mercy they had.
 
 The night went on.
 
@@ -682,7 +696,7 @@ No one gave it one.
 
 The phrase did not repeat.
 
-Gray began slowly, not as light but as a thinning of black. The trees appeared first as darker decisions inside dark. Then the hanging food barrel took shape, wet and pale, latch closed. The canoes emerged from the shore gloom, still there. The paddles remained stacked under the nearer hull. The tent bundles and damp sleeping gear. Joel's hammock straps. Packs. Stove. Map case. Alex's unused spray by Mike's pack, safety still in. Mike's hand around his nearly spent canister. Will's face, unshaven and slack with the beginning of shock beyond fear.
+Gray began slowly, not as light but as a thinning of black. The trees appeared first as darker decisions inside dark. Then the hanging food barrel took shape, wet and pale, latch closed. The canoes emerged from the shore gloom, still there. The paddles remained stacked under the nearer hull. The tent bundles and damp sleeping gear lay where they had been all night. Joel's hammock straps hung black and slack between cedars. Packs. Stove. Map case. Alex's unused spray by Mike's pack, safety still in. Mike's hand around his nearly spent canister. Will's face, unshaven and slack with the beginning of shock beyond fear.
 
 The world looked almost accountable again.
 

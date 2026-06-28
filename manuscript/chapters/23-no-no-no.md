@@ -2,7 +2,7 @@
 
 They did not build a fire.
 
-The reason was practical enough. Smoke would not matter much in the open mouth of the channel. Light might. So would the work of getting one going. A flame would give their hands work, give their eyes a center, give the old part of the mind permission to believe in camp. It would also give the dark a sequence to keep: match scrape, stove click, twig snap, the small domestic sounds by which men told themselves a place had been made theirs.
+The reason was practical enough. Smoke would not matter much in the open mouth of the channel. Light might. So would the work of getting one going. A flame would give their hands work and their eyes a center. It would also give the dark a sequence to keep: match scrape, stove click, twig snap, the small domestic sounds by which men told themselves a place had been made theirs.
 
 Nothing here was theirs.
 
@@ -10,17 +10,17 @@ The last line in the notebook still sat between them.
 
 I HEAR YOU HERE.
 
-Joel had written it for living Will, not for the trees, but the page did not know the difference. It only held marks. It had no way to say who they were for.
+Joel had written it for living Will, not for the trees, but the page had no way to say who the marks were for.
 
-The gravel shelf was barely large enough to hold them. Behind it the spruce rose in a dark rank, roots lifted and braided where water had eaten the bank. In front of it the channel moved toward the lake mouth, a narrow black strip losing the last of the sky. Beyond that, the longer lake lay somewhere in the half-light, and beyond the lake the final portage waited as an idea too heavy to lift tonight.
+The gravel shelf was barely large enough to hold them. Behind it the spruce rose in a dark rank, roots lifted and braided where water had eaten the bank. In front, the channel moved toward the lake mouth, a narrow black strip losing the last of the sky. Beyond that, the longer lake lay somewhere in the half-light, and beyond the lake the final portage waited as an idea too heavy to lift tonight.
 
 The canoe lay pulled high on stone, angled against the wind. The painter ran from its handle to a spruce root, then to Joel's wrist while he worked. He had stopped trusting knots as facts. A knot stayed true only until something put a hand on the rope.
 
 Will sat on the gravel with the food barrel between his knees and watched the trees as if he could keep them honest by looking hard enough.
 
-Joel left the barrel visible. He wanted it under cover. He wanted everything under cover. But the barrel had become one of the sounds the woods liked. Better to keep the black ring and latch where both men could see them than to make an animal-proof camp that served a thing that was not an animal.
+Joel left the barrel visible. He wanted it under cover. He wanted everything under cover. But the barrel had become one of the sounds the woods liked. Better to keep the black ring and latch where both men could see them.
 
-They made the tarp low and ugly. Joel tied one corner to the spruce root above the canoe rope, another to a bent alder stem that did not deserve the trust. Will held the third line with his good hand while Joel wedged a paddle under the edge as a poor ridge. The tarp sagged in the middle. If rain came, it would collect there and bow the whole thing into their faces. It would hold their breath, the smell of wet clothes, the sour plastic smell of the food barrel. It gave them cover without making the lie of shelter.
+They made the tarp low and ugly. Joel tied one corner to the spruce root above the canoe rope, another to a bent alder stem that did not deserve the trust. Will held the third line with his good hand while Joel wedged a paddle under the edge as a poor ridge. The tarp sagged in the middle. If rain came, it would collect there and bow the whole thing into their faces. It would hold their breath, the smell of wet clothes, the sour plastic smell of the food barrel. Cover, not shelter.
 
 Will pointed at the canoe, then at Joel's wrist.
 
@@ -58,7 +58,7 @@ Will read it, frowned, and took the pencil.
 
 NO WATCH IF YOU SLEEP EITHER.
 
-That was fair. Worse than fair. They had both moved past tired into a state where thought came in strips. Joel could still make decisions, but he did not trust the blank places between them. He checked the rope, then checked it again. He stared at the closed barrel ring until the shape blurred. He looked at Will, found him present, and looked again because presence expired as soon as the eyes moved away.
+That was fair. Worse than fair. They had both moved past tired into a state where thought came in strips. Joel could still make decisions, but he did not trust the blank places between them. He checked the rope, then checked it again. He stared at the closed barrel ring until the shape blurred. He looked at Will, found him present, and looked again.
 
 He wrote:
 
@@ -66,7 +66,7 @@ SHORT WATCHES. TOUCH TO WAKE. NO VOICE.
 
 Will stared at the last two words.
 
-Joel knew the look. Will was not objecting to the rule. He was measuring what it took. No voice meant no comfort when the dark came hard. No names for the men who were not here. No old method of being friends: insult, correction, complaint, joke, apology hidden inside a practical sentence. It meant grief had to sit in the body with nowhere decent to go. All of that had to stay behind their teeth.
+Joel knew the look. Will was not objecting to the rule. He was measuring what it took. No voice meant no comfort when the dark came hard. No names for the men who were not here. No old method of being friends: insult, correction, complaint, joke, apology hidden inside a practical sentence. Grief would have to sit in the body with nowhere decent to go.
 
 Will took the pencil.
 
@@ -90,11 +90,11 @@ DO IT FAST.
 
 They crawled under the tarp before full dark.
 
-The space beneath it was just high enough for shoulders and elbows. They lay side by side, feet toward the canoe, heads toward the spruce roots, food barrel at Joel's knees where he could put a hand on it without reaching. The canoe remained visible if he lifted the tarp edge two inches. Boat. Barrel. Will. Key. Notebook. Hatchet. Rope. The world had become a series of objects to verify, and every verification expired almost as soon as it was made.
+The space beneath it was just high enough for shoulders and elbows. They lay side by side, feet toward the canoe, heads toward the spruce roots, food barrel at Joel's knees where he could put a hand on it without reaching. The canoe remained visible if he lifted the tarp edge two inches. Boat. Barrel. Will. Key. Notebook. Hatchet. Rope. The world had become a series of objects to verify.
 
 The blue dry bag under the front seat was visible only as a darker block under the hull's lip. Joel made himself confirm it once and then stop looking. If he lifted the tarp for every fear, the tarp itself would become another kind of answer.
 
-The cold came first through the ground. Gravel was not earth. It held no warmth from the day. It pressed up through the sleeping pads in small hard points, finding hip, knee, rib. The damp in Joel's pants cooled again where his body had nearly warmed it. His toes stayed wet inside the hiking sandals. He had dry socks somewhere, or damp socks that had once been dry, but getting them meant unpacking in the dark and making the small human noises the dark collected.
+The cold came first through the ground. Gravel was not earth. It held no warmth from the day. It pressed up through the sleeping pads in small hard points, finding hip, knee, rib. The damp in Joel's pants cooled again where his body had nearly warmed it. His toes stayed wet inside the hiking sandals. He had dry socks somewhere, or socks that had once been dry, but getting them meant unpacking in the dark and making the small human noises the dark collected.
 
 Will's shoulder touched his. Not by sentiment. There was no room. The contact should have been reassuring. Instead it made Joel responsible for every tremor, every change in breath, every small sound Will might make before he could stop it. It also kept Will human in a way sight could not. Heat, weight, the small involuntary corrections of a living body on hard ground.
 
@@ -112,7 +112,7 @@ Will's breath slowed one count, then another.
 
 The branch did not break again.
 
-For a while nothing happened except the night becoming itself. A faint line of sky remained at the tarp's open edge, then no line. The channel had a different sound in darkness, though Joel knew that was the mind adding shape where sight had been. In daylight the water had moved through channel, around stone, under alder. Now it seemed to move around the shelter itself.
+For a while nothing happened except the night becoming itself. A faint line of sky remained at the tarp's open edge, then no line. The channel had a different sound in darkness. In daylight the water had moved through channel, around stone, under alder. Now it seemed to move around the shelter itself.
 
 Will shifted beside him.
 
@@ -130,7 +130,7 @@ Hard enough.
 
 Will went rigid beneath it.
 
-For one second they were not two men under a tarp in the north woods. They were old friends in a stupid scuffle made serious by the wrong audience. Joel felt Will's jaw clench against his palm, the beard stubble, the wet heat of breath. Will's good hand came up and clamped around Joel's wrist.
+For one second they were not two men under a tarp in the north woods. They were old friends in a stupid scuffle made serious by the wrong audience. Joel felt Will's jaw clench against his palm, the beard stubble, the wet heat of breath. Will's good hand clamped around Joel's wrist.
 
 There was hatred in him. Joel felt it through the hand as clearly as pressure.
 
@@ -146,15 +146,15 @@ Joel took his hand away.
 
 No sound answered from the trees.
 
-That was not comfort. It only meant the night had not spent what it had heard.
+That was not comfort. It only meant the night had held what it heard.
 
-Joel took the notebook from inside his jacket. He did it slowly, each motion shown to Will, because surprise had become another kind of sound. The red lamp was almost dead. He cupped it under the jacket and clicked it once, shielding the glow. The inside of the tarp flushed red for a second, then dulled to a weak circle on the page.
+Joel took the notebook from inside his jacket. He did it slowly, each motion shown to Will, because surprise had become another kind of sound. The red lamp was almost dead. He cupped it under the jacket and clicked it once. The tarp flushed red for a second, then dulled to a weak circle on the page.
 
 Will wrote first, awkwardly, pencil gripped between fingers that did not want to close.
 
 MIKE IS DEAD BECAUSE WE DID NOT GO AFTER HIM.
 
-Joel read it in the red dim. The sentence brought back the cabin door under their backs, Mike's voice outside wearing command after command, the torn orange PFD fabric and the bent zipper pull, the key in Joel's hand. He thought of the place where Mike had stood and the place where Mike had stopped being visible. He thought of how long they had waited before admitting there would be no retrieval. The distance had been small. Small distances had done most of the killing.
+Joel read it in the red dim. The sentence brought back the cabin door against their backs, Mike's voice outside wearing command after command, the torn orange PFD fabric and the bent zipper pull, the key in Joel's hand. He thought of where Mike had stood and where Mike had stopped being visible. The distance had been small. Small distances had done most of the killing.
 
 Joel wrote:
 
@@ -168,7 +168,7 @@ BOTH CAN BE TRUE.
 
 Joel had no answer that improved anything.
 
-He looked at Will's line until the words loosened from grammar and became marks. Alex had stepped away, and something had killed him. Mike had gone out of sight, and they had failed to get him back. Joel had kept them alive by refusing voices. Refusal still had the shape of abandonment. A good rule could still leave a man outside it.
+He looked at Will's line until the words loosened from grammar and became marks. Alex had stepped away, and something had killed him. Mike had gone out of sight, and they had failed to get him back. Joel had kept them alive by refusing voices. Refusal still had the shape of abandonment.
 
 Will took the pencil again.
 
@@ -180,7 +180,7 @@ Will wrote underneath, harder:
 
 WE HEARD HIM.
 
-The line sat on the page with more heat than any spoken accusation would have had. Joel wanted to take the notebook from him. Not because the words were wrong. Because they were too close to speech. Will's grief had found the page and was making a mouth.
+The line sat on the page with more heat than any spoken accusation would have had. Joel wanted to take the notebook from him. Not because the words were wrong. Because they were too close to speech. Will's grief had found the page and made a mouth.
 
 The pencil itself had a sound now. A small dry animal scratch in the red dark. Joel heard it and thought of the channel, of the little scrape from the blind water, of his own note from the night before: NO PROOF. DON'T TEACH IT.
 
@@ -196,7 +196,7 @@ He wrote:
 
 DO NOT LAWYER THIS.
 
-Joel almost laughed. The body had the old reflex before the mind could stop it. Will accusing him of lawyering anything belonged to a living room, a driveway, a table with beers on it, a church basement when they were fifteen and had been told to stack chairs while arguing about a movie neither of them had understood. The laugh rose and stopped at the back of his throat.
+Joel almost laughed. The body had the old reflex before the mind could stop it. Will accusing him of lawyering anything belonged to a living room, a driveway, a table with beers on it, a church basement when they were fifteen and arguing over a movie neither of them had understood. The laugh rose and stopped at the back of his throat.
 
 He swallowed it.
 
@@ -206,7 +206,7 @@ Outside, something stepped on gravel.
 
 Both men went still.
 
-Not branch. Not brush. Gravel. A small shift of weight on stone near the canoe, then a pause. The exact sound Joel had made twenty times setting camp. Sandal on loose rock. Heel careful. Weight transferred because a man did not want to slip.
+Not branch. Not brush. Gravel. A small shift of weight on stone near the canoe, then a pause. The exact sound Joel had made twenty times setting camp. Sandal on loose rock. Heel careful. Weight transferred.
 
 Joel turned off the red lamp.
 
@@ -228,7 +228,7 @@ Will's whole body jerked.
 
 Joel caught him with both arms.
 
-For one wild second Will fought him. Not against Joel, not exactly. Toward the voice. Toward the old joking sentence that had once meant Alex was just outside the light being Alex, making a performance out of a bodily errand, giving them permission to groan and tell him to shut up. Toward the impossible mercy of a friend who could still be located by sound.
+For one wild second Will fought him. Not against Joel, not exactly. Toward the voice. Toward the old joking sentence that had once meant Alex was just outside the light being Alex, making a performance out of a bodily errand. Toward the impossible mercy of a friend who could still be located by sound.
 
 Joel clamped a hand over Will's mouth harder this time.
 
@@ -236,7 +236,7 @@ Will made a sound against Joel's palm. It was not a word. It was worse because i
 
 Alex laughed outside.
 
-Not the big camp laugh. Smaller. Nearer. The bark he gave when he had gotten exactly the reaction he wanted. It did not sound dead. That was the damage. It sounded social.
+Not the big camp laugh. Smaller. Nearer. The bark he gave when he had gotten exactly the reaction he wanted. It did not sound dead. It sounded social.
 
 Then Mike cleared his throat from the spruce roots behind their heads.
 
@@ -258,11 +258,11 @@ Will shook beneath Joel's hand. He was crying now, though he made almost no soun
 
 Then Will's voice, from out by the canoe, said, "No, no, no."
 
-Joel had heard the real version after Alex, the words breaking out of Will as if his body were trying to refuse the event before the mind could see it. No, no, no, no. Not language then. Only a door shoved closed again and again after what had already entered.
+Joel had heard the real version after Alex, the words breaking out of Will as if his body were trying to refuse the event before the mind could see it. No, no, no. Not language then. A door shoved closed again and again after what had already entered.
 
 This was not that.
 
-It was not panic. That was what made it unbearable. The words were even, copied from fear but emptied of it, spaced like drops from the tarp edge.
+It was not panic. That was what made it unbearable. The words were even, copied from fear and emptied of it, spaced like drops from the tarp edge.
 
 "No, no, no."
 
@@ -274,7 +274,7 @@ Then from behind the spruce.
 
 "No, no, no."
 
-Three Wills around them. One by the canoe. One at the channel mouth. One behind the spruce. One Will under Joel's hand, real by heat and breath because the dark had taken sight away.
+Three Wills around them. One by the canoe. One at the channel mouth. One behind the spruce. One under Joel's hand, real by heat and breath because the dark had taken sight away.
 
 The voices did not overlap. They took turns.
 
@@ -292,9 +292,9 @@ Joel held him because holding was the only answer left that did not feed the thi
 
 The night went on repeating him.
 
-At first the voices stayed in Will's exact register: high with shock, scraped thin, breathless. Then the copies changed by almost nothing. One came too calm. One came with the small upward hook of Will correcting a detail. One came low, almost Mike's shape wearing Will's words. None of the changes made meaning. They were only ways a sound could be carried.
+At first the voices stayed in Will's exact register: high with shock, scraped thin, breathless. Then the copies changed by almost nothing. One came too calm. One came with the small upward hook of Will correcting a detail. One came low, almost Mike's shape wearing Will's words. None of the changes made meaning. They were only ways to carry the sound.
 
-It was using a useful sound. A sound that had stopped men before. A sound that made the body turn toward damage. It did not need to understand refusal. It only had to reproduce the noise refusal made.
+It had found a useful sound. A sound that stopped men. A sound that made the body turn toward damage. It did not need to understand refusal. It only had to repeat the noise refusal made.
 
 "No, no, no."
 
@@ -316,11 +316,11 @@ Joel waited until waiting itself became another sound inside his skull. Then he 
 
 Will did not speak.
 
-They lay shoulder to shoulder under the tarp, listening to the river and to the space the voices had left. Joel's palm was wet with Will's breath and tears. He wiped it once against his pants and hated the practical motion.
+They lay shoulder to shoulder under the tarp, listening to the river and to the space the voices had left. Joel's palm was wet with Will's breath and tears. He wiped it once against his pants and hated the practicality of it.
 
 Will reached for the notebook.
 
-Joel clicked the red lamp under his jacket again. The glow trembled, not because the lamp moved but because his hand did. Will took the pencil. It took him three tries to set the point where he wanted it.
+Joel clicked the red lamp under his jacket again. The glow trembled because his hand did. Will took the pencil. It took him three tries to set the point where he wanted it.
 
 IT DOES NOT KNOW WHY THAT HURTS.
 
@@ -332,7 +332,7 @@ THAT MATTERS.
 
 Joel stared at the page.
 
-He knew at once what Will meant. That was the problem. The words outside had been wrong not in sound but in relation. They had the fear without the wound. They had Will's panic without Alex's body, without Mike gone in the clearing, without the human knowledge of what no, no, no had failed to stop. The thing could hold tone. Cause was not in the sound.
+He knew at once what Will meant. That was the problem. The words outside had been wrong not in sound but in relation. They had the fear without the wound. They had Will's panic without Alex's body, without Mike gone in the clearing, without the human knowledge of what no, no, no had failed to stop. The thing could hold tone. Cause was somewhere else.
 
 Maybe that mattered. Maybe it was the first clean edge they had found. Maybe thinking it through in the dark was already a kind of answer.
 
@@ -352,7 +352,7 @@ He wrote:
 
 YOU SOUND LIKE MIKE.
 
-Joel felt the sentence land cleanly because it was true enough. Morning. Move. No answer. Stay visible. He had hated Mike's authority when it rounded danger down into route. Now his own rules had begun to take the same shape from the outside. Short. Final. Practical. A man could call fear judgment if he wrote it in block letters.
+Joel felt the sentence land because it was true enough. Morning. Move. No answer. Stay visible. He had hated Mike's authority when it rounded danger down into route. Now his own rules had begun to take the same shape from the outside. Short. Final. Practical.
 
 Being right did not keep a rule clean.
 
@@ -366,7 +366,7 @@ The red lamp dimmed further. Joel turned it off to save what little it had.
 
 Darkness returned without depth.
 
-They tried the watch plan. Joel stayed awake first because he did not believe he could sleep. Will lay on his back with his injured hand on his chest and his good hand closed around Joel's sleeve. That was not part of the written system, but Joel let it stand. Contact was proof until contact was gone.
+They tried the watch plan. Joel stayed awake first because he did not believe he could sleep. Will lay on his back with his injured hand on his chest and his good hand closed around Joel's sleeve. That was not part of the written system, but Joel let it stand.
 
 The night worked the camp in pieces.
 
@@ -378,11 +378,11 @@ Someone coughed in Will's dry way across the channel. Will did not move. Joel to
 
 Mike cleared his throat under the spruce and did not speak.
 
-That was almost worse. The habit without the phrase. Authority gathering itself and withholding instruction.
+That was almost worse. The habit without the phrase. Authority gathering itself.
 
 Joel looked at nothing until his eyes invented color in the dark. When he blinked, he saw the red lamp circle. When he closed his eyes, he saw Alex's cracked headlamp in mud, Mike's bent zipper pull in his palm, Will's handwriting cramped around IT DOES NOT KNOW WHY THAT HURTS.
 
-He thought of Mara once, not as voice. That was the important part. He made himself think of her hands on the kitchen counter, the way she pressed one thumbnail into a grocery list when she was deciding what could wait. If he let memory speak, it would use her. If he kept it to image, maybe it would remain his.
+He thought of Mara once, not as voice. He made himself think of her hands on the kitchen counter, the way she pressed one thumbnail into a grocery list when she was deciding what could wait. If he let memory speak, it would use her. If he kept it to image, maybe it would remain his.
 
 Sleep pressed down in shallow waves. He jerked awake from each one before it became dream. The rope on his wrist tugged when he moved and told him the boat was there, or told him only that a rope was tied to him.
 
@@ -404,7 +404,7 @@ Will nodded again.
 
 Joel tried to sleep.
 
-Sleep did not come whole. It came as falling. A drop through black water, a rope tightening, Will's hand on his sleeve, the canoe shifting, Alex laughing from a place under the gravel. Each time Joel surfaced, Will was still beside him, upright on one elbow or propped against the food barrel, eyes fixed toward the open edge of the tarp. The notebook lay closed against Will's thigh. Even closed, it looked usable. Even closed, it looked hungry.
+Sleep did not come whole. It came as falling. A drop through black water, a rope tightening, Will's hand on his sleeve, the canoe shifting, Alex laughing from a place under the gravel. Each time Joel surfaced, Will was still beside him, upright on one elbow or propped against the food barrel, eyes fixed toward the open edge of the tarp. The notebook lay closed against Will's thigh. Even closed, it looked usable.
 
 Once Joel woke to Will leaning forward.
 
@@ -416,11 +416,11 @@ Will's mouth opened.
 
 Joel hit him.
 
-It was not a punch. It was not quite a slap. His palm struck Will's chest hard enough to knock the breath out before breath could become Alex's name. Will folded over the sound, bad hand jerking against his ribs. Joel grabbed him by the jacket and pulled him back under the tarp, hand already over his mouth.
+It was not a punch. Not quite a slap. His palm struck Will's chest hard enough to knock the breath out before breath could become Alex's name. Will folded over the sound, bad hand jerking against his ribs. Joel grabbed him by the jacket and pulled him back under the tarp, hand already over his mouth.
 
 Will stared at him.
 
-Hatred came again, hotter this time. It had reason. Joel had hurt him. Joel had put a hand on his mouth like Will was a child, an animal, a piece of gear to be managed. Joel had done it because the alternative was worse. The reason did not make the act less ugly.
+Hatred came again, hotter this time. It had reason. Joel had hurt him. Joel had put a hand on his mouth like Will was a piece of gear to be managed. Joel had done it because the alternative was worse. The reason did not make the act less ugly.
 
 Outside, Alex laughed once.
 
@@ -430,7 +430,7 @@ Joel's grip tightened on Will's jacket.
 
 Will's hatred changed.
 
-He heard it too. He understood the gift Joel had not asked to give the thing: not only their dead, not only Mike's authority, not only Will's panic and theory, but Joel's restraint. Joel's own command had come back from the waterline wearing no body.
+He heard it too. He understood the gift Joel had not asked to give the thing: not only their dead, not only Mike's authority, not only Will's panic and theory, but Joel's restraint. Joel's own command had come back from the waterline.
 
 Will nodded under Joel's hand.
 
@@ -442,7 +442,7 @@ Will put both hands, good and bad, flat on the gravel between them. A gesture al
 
 The tent zipper began after that.
 
-It started far enough away to be placed among memory. A small metal tooth catching, then freeing. A slow downward pull. The sound of a tent being opened by someone trying not to wake camp.
+It started far enough away to be memory. A small metal tooth catching, then freeing. A slow downward pull. The sound of a tent being opened by someone trying not to wake camp.
 
 They had not pitched a tent.
 
@@ -462,7 +462,7 @@ Zip.
 
 Pause.
 
-It was too slow to be a mistake. Too patient to be animal. It took the old ordinary sound and opened it one tooth at a time.
+It was too slow to be a mistake. Too patient to be animal. It opened the old ordinary sound one tooth at a time.
 
 Will reached for the notebook.
 
@@ -472,7 +472,7 @@ Will looked at him.
 
 Joel shook his head.
 
-Not because writing was certainly unsafe. Because in that moment writing would become answering. The pencil would move because the zipper asked it to. The page would receive the night on the night's terms. Joel did not have proof. He had only the practical knowledge that a tool could become a habit, and a habit could be used.
+Not because writing was certainly unsafe. Because in that moment writing would become answering. The pencil would move because the zipper asked it to. Joel did not have proof. He had only the practical knowledge that a tool could become a habit, and a habit could be used.
 
 Will understood. Or was too tired to fight.
 
@@ -494,9 +494,9 @@ Will was still beside him.
 
 These facts did not feel like victory. They felt like items counted after a fire.
 
-Joel lifted the tarp edge and looked toward the lake. The mouth of the channel showed itself in pale strips between alder. Beyond it, wind moved over the longer water. Not hard yet. Enough to texture the surface. Enough to remind him that the route had not paused because men had survived a night.
+Joel lifted the tarp edge and looked toward the lake. The mouth of the channel showed itself in pale strips between alder. Beyond it, wind moved over the longer water. Not hard yet. Enough to texture the surface. The route had not paused because men had survived a night.
 
-They would have to pack. They would have to paddle across the longer lake. They would have to reach the final portage and put the canoe on shoulders or drag it or leave what could no longer be carried. They would have to do all of this with Will's hand worse, with both men thinner in the mind, with the night still holding every sound it had collected.
+They would have to pack. They would have to paddle across the longer lake. They would have to reach the final portage and put the canoe on shoulders or drag it or leave what could no longer be carried. They would do it with Will's hand worse, both men thinner in the mind, the night still holding every sound it had collected.
 
 Will touched Joel's sleeve.
 

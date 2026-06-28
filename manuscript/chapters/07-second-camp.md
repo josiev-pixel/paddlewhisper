@@ -1,6 +1,6 @@
 # Chapter 7 - Second Camp
 
-Second Camp was not a campsite so much as a place where other people had once lost the argument.
+Second Camp was not a campsite so much as a place where other people had once lost the argument with distance and light.
 
 The landing was mud under grass. Mike's canoe nosed in first and stopped as if the ground had taken it by the mouth. He stepped out, sank to the top of one sandal, and said, "This works," with no space between the evidence and the verdict.
 
@@ -16,9 +16,9 @@ Will, still kneeling in the front, looked at the bank. Alder leaned over it in w
 
 Will pointed at him without turning. "Thank you. I feel corrected and still bitten."
 
-Mosquitoes came up from the grass as if the landing had been saving them. They found wrists, necks, the soft places behind ears. Joel slapped one on the back of his hand and left a red comma there. His shoulders still held the shape of the portage yoke. His thighs felt used up in a way that belonged less to pain than to debt. The day had spent them and then handed them this.
+Mosquitoes came up from the grass as if the landing had been saving them. They found wrists, necks, the soft places behind ears. Joel slapped one on the back of his hand and left a red comma there. His shoulders still held the shape of the portage yoke. His thighs felt used up in a way that belonged less to pain than to debt. The day had spent them and then asked them to call this shelter.
 
-Behind the boats, the narrow channel moved blackly between alder stems. It was not wide, but it sounded wider than it was. Water slid against grass, then clicked around stones somewhere out of sight. The sound came and went as the wind moved in the spruce tops. Now close. Now farther away. Now behind him, though the channel had not moved.
+Behind the boats, the narrow channel moved blackly between alder stems. It was not wide, but it sounded wider than it was. Water slid against grass, then clicked around stones somewhere out of sight. The sound came and went as the wind moved in the spruce tops. Now close. Now farther away. Now behind him, though the channel had not moved and Joel could still see the strip of water where it belonged.
 
 Joel looked back at the water.
 
@@ -40,11 +40,11 @@ Joel looked back at the water.
 
 They unloaded because unloading was what came next. That was the mercy of trips like this: the body could still be given orders. Pull the boat higher. Put packs above the wet line. Take the rods away from where they could be stepped on. Find the stove bag. Find the filter. Find a place to sleep. The work did not require anyone to decide whether the site was bad. It only required hands.
 
-They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. The arrangement had the poor authority of evidence placed for a photograph: boats, packs, men, fire ring, all of it asking the brush to accept the claim.
+They made a boundary out of labor. Canoes above the mud. Paddles together. Packs in one line, not because the line was useful yet but because a line made the site look chosen. The arrangement had the poor authority of evidence placed for a photograph: boats, packs, men, fire ring. A claim made with objects because nothing else would hold it.
 
 Mike walked the edge of the opening once with his head down, reading roots and slope and old use. Joel saw him see what everyone saw: the fire ring too close to brush, the tent ground lumpy, the channel hidden after the first dark bend, no clean place for a man to stand and look outward.
 
-Joel tied the canoes to a spruce root though they were already well above the water. He laid the paddles where he could see them from the fire ring, blades crossed, handles in. It was not a rule. It was only an arrangement. On the granite shelf the night before, the boats had looked like boats wherever they lay. Here they looked like objects that might be needed quickly. If they knocked, he wanted to see them knock.
+Joel tied the canoes to a spruce root though they were already well above the water. He laid the paddles where he could see them from the fire ring, blades crossed, handles in. It was not a rule. It was only an arrangement. On the granite shelf the night before, the boats had looked like boats wherever they lay. Here they looked like objects that might be needed quickly. If they knocked, he wanted the sight of them to accuse the sound.
 
 "This is what there is," Mike said.
 
@@ -58,7 +58,7 @@ Will looked toward the channel. The west wind had begun to move down it in short
 
 The flat ground above the landing was smaller than it had looked from the water. One tent would fit near the fire ring if its corners were staked into roots and old ash. The second could be forced between two spruce where the ground rose and fell in slow damp lumps. Joel's hammock needed two trees far enough apart and not already claimed by brush. There were jack pines at the back of camp, but their trunks were narrow, and one of them bent when he put his weight into the strap.
 
-Joel checked his phone while Mike and Will argued over the tent footprint. He did it for the time and because the hand went to the pocket by itself. No service. He had not expected bars here, but the words still made the camp smaller. At First Camp he had almost sent Mara a picture of the fire on granite, then decided the signal was not worth standing on a rock for. He had imagined her seeing it at the kitchen counter in Madison, between a contractor email and the wedding spreadsheet, proof that the trip was doing what he had said it would do. She would have sent back something dry and exact: Proof of life accepted. Did you remember sunscreen? Care disguised as cross-examination. Joel answered that disguise more easily than need. Now there was only the dead screen reflection: spruce needles, his own cheek dark with stubble, the pale bite swelling on the back of his hand.
+Joel checked his phone while Mike and Will argued over the tent footprint. He did it for the time and because the hand went to the pocket by itself. No service. He had not expected bars here, but the words still made the camp smaller. At First Camp he had almost sent Mara a picture of the fire on granite, then decided the signal was not worth standing on a rock for. He had imagined her seeing it at the kitchen counter in Madison, between a contractor email and the wedding spreadsheet, proof that the trip was doing what he had said it would do. She would have sent back something dry and exact: Proof of life accepted. Did you remember sunscreen? Care disguised as cross-examination. Joel answered that disguise more easily than need. Now there was only the dead screen reflection: spruce needles, his own cheek dark with stubble, the pale bite swelling on the back of his hand. Home remained intact because it was unreachable.
 
 He put the phone away, set his weight into the jack pine again, and watched it bend.
 
@@ -130,7 +130,7 @@ Joel faced camp again. "Yeah."
 
 "Authoritarian yeah," Will said, but he shouldered the rope bag.
 
-The food tree problem took fifteen minutes and made all of them worse. The branches near camp were either too low, too dead, too close to trunks, or too snarled with smaller growth to throw a line cleanly. Will selected a spruce with one living arm reaching out over the brush and began performing a system of knots and rocks and whispered correction. The first throw hit the trunk and dropped straight down. The second caught a dead branch and brought down a rain of brown needles. The third sailed over the right limb but carried the rope into alder, where it tangled.
+The food tree problem took fifteen minutes and made all of them worse. The branches near camp were either too low, too dead, too close to trunks, or too snarled with smaller growth to throw a line cleanly. Will selected a spruce with one living arm reaching out over the brush and began performing a system of knots and rocks and whispered correction. The first throw hit the trunk and dropped straight down. The second caught a dead branch and brought down a rain of brown needles. The third sailed over the right limb but carried the rope into alder, where it tangled hard enough that the line seemed to belong to the brush now.
 
 "Technique," Mike said.
 
@@ -144,7 +144,7 @@ Alex sat on a pack and slapped mosquitoes off his calves. "I support Will's righ
 
 Joel took the rope from Will without asking and worked it loose from the alder. His fingers had gone clumsy from fatigue. The line was damp and gritty. Alex held the alder stems apart with one arm and made a show of looking bored while thorns scratched his wrist. He did not mention the scratches. That was another kind of performance, but a quieter one.
 
-When Joel threw, he underthrew, and the rock bag swung back at his shin.
+When Joel threw, he underthrew, and the rock bag swung back into his shin.
 
 Alex barked a laugh. It came out hard and delighted, then stopped when no one joined.
 
@@ -168,7 +168,7 @@ Will tied it. The barrel went up awkwardly, swinging once into the trunk with a 
 
 Joel looked toward the water. The channel held evening in pieces: black water, green alder, a pale strip of sky caught between leaves. The canoes had been pulled high. The paddles lay crossed near the packs. Nothing there had answered anything.
 
-The barrel hung lower than anyone would have liked. It was off the ground and away from the tents, but not by much, and the branch sagged under the weight with a green patience Joel did not trust. A determined bear could reach it, probably. A lazy bear might still take offense. The thought gave the unease a known shape, so Joel kept it.
+The barrel hung lower than anyone would have liked. It was off the ground and away from the tents, but not by much, and the branch sagged under the weight with a green patience Joel did not trust. A determined bear could reach it, probably. A lazy bear might still take offense. The thought gave the unease a known shape, so Joel kept it. Bear was a word with weight, tracks, teeth, habits. It was not comfort, but it belonged to the world.
 
 "Good enough," Mike said.
 
@@ -196,7 +196,7 @@ Will coughed into his sleeve. A dry little cough, half laugh, half tick. "You ar
 
 Joel clipped his hammock suspension and pulled the fabric from its sack. The nylon made its soft sliding sound, intimate and domestic in the darkening trees. He found himself wanting to set up carefully, to do one task well enough that the day could be answered. The first strap was too low. He moved it. The second tree flexed. He moved that too and lost the angle. Mosquitoes landed on his forehead. Sweat and repellent had made a bitter paste at the edge of his lips.
 
-At First Camp, the water had been visible from everywhere. It had made the site feel held open. Here the camp was a room with no walls and too many doors. Brush pressed in on three sides. The channel, barely visible through alder, seemed less like an edge than a way in. Joel could turn once and lose the canoes, turn again and lose Alex's tent, turn a third time and find the food barrel hanging lower than memory wanted it. Nothing vanished. It only slipped out of the same look.
+At First Camp, the water had been visible from everywhere. It had made the site feel held open. Here the camp was a room with no walls and too many doors. Brush pressed in on three sides. The channel, barely visible through alder, seemed less like an edge than a way in. Joel could turn once and lose the canoes, turn again and lose Alex's tent, turn a third time and find the food barrel hanging lower than memory wanted it. Nothing vanished. The camp only refused to fit inside one look.
 
 He pulled the hammock tight and sat in it. The pine bent, complained without sound, and held. He imagined waking in the night to the tree easing over by inches, lowering him into brush while everyone else slept. The image was ridiculous and practical at once. He got up and tightened the strap again.
 
@@ -438,7 +438,7 @@ Mike poked the fire with a short stick. "Eat. Clean up. Sleep."
 
 "The old sequence," Alex said. "Civilization in three commands."
 
-They cleaned up slowly. Spoons were licked, then rinsed. Pots were wiped with a scrap of paper towel that disintegrated before anyone wanted it to. Food trash went into the odor bag. Will lowered the barrel just enough to add the night's waste and leftover packets, then hauled it up again with small irritated grunts.
+They cleaned up slowly. Spoons were licked, then rinsed. Pots were wiped with a scrap of paper towel that disintegrated before anyone wanted it to. Food trash went into the odor bag. Will lowered the barrel just enough to add the night's waste and leftover packets, then hauled it up again with small irritated grunts. The branch bowed, lifted, bowed again. The rope rasped over bark.
 
 The latch clicked under his hand.
 
@@ -458,7 +458,7 @@ Alex filled the gap. "If it's a bear, tell it we have Moroccan vegetable medley.
 
 Mike stood. "Enough."
 
-He took his headlamp and walked to the back of camp. Not far, only to the first screen of spruce. He shone the light between trunks, then left, then right. The beam caught old needles, root, a dead branch polished by old weather. It caught two pale moths and made them into white flecks. It caught nothing with eyes.
+He took his headlamp and walked to the back of camp. Not far, only to the first screen of spruce. He shone the light between trunks, then left, then right. The beam caught old needles, root, a dead branch polished by old weather. It caught two pale moths and made them into white flecks. It caught nothing with eyes. Joel kept the canoes in the corner of his vision while Mike searched the trees, as if two confirmations could be held at once by force.
 
 Joel watched the light instead of the dark beyond it. That was the more useful thing, he told himself. The beam showed what could be known. Everything outside it could remain unsorted for another minute.
 
@@ -470,7 +470,7 @@ Joel watched the light instead of the dark beyond it. That was the more useful t
 
 Mike came back and sat down harder than he needed to. The orange bear-spray canister stood beside his pack, untouched and upright, its label bright in the firelight.
 
-Joel listened past the fire. That was the mistake, if it was a mistake. The more he listened, the more the dark supplied: brush sounds, water sounds, the high movement of wind. Every ordinary noise auditioned. He could hear Alex breathing through his nose as he tied off his tent guyline. He could hear Will's spoon scrape once, though dinner was finished. He could hear Mike swallow. He could hear his own pulse inside the tender places where the pack straps had ridden.
+Joel listened past the fire. That was the mistake, if it was a mistake. The more he listened, the more the dark supplied: brush sounds, water sounds, the high movement of wind. Every ordinary noise auditioned. He could hear Alex breathing through his nose as he tied off his tent guyline. He could hear Will's spoon scrape once, though dinner was finished. He could hear Mike swallow. He could hear his own pulse inside the tender places where the pack straps had ridden. Listening made a second camp around the first one, larger and less certain.
 
 First Camp had been open enough to let sound leave. Here sound went into the brush and came back handled.
 
@@ -548,7 +548,7 @@ His bear spray was in the side pocket of his pack. He clipped the canister to hi
 
 "Close. I heard the sermon."
 
-He walked toward the channel side instead of the back brush, stepping through the uneven edge where grass met alder. He did not go far. Ten yards, maybe less. His headlamp marked him in pieces: white on leaves, white on his shoulder, white on the mud at his feet. Then alder broke the beam and made it appear and disappear as he moved.
+He walked toward the channel side instead of the back brush, stepping through the uneven edge where grass met alder. He did not go far. Ten yards, maybe less. His headlamp marked him in pieces: white on leaves, white on his shoulder, white on the mud at his feet. Then alder broke the beam and made it appear and disappear as he moved. The distance was small enough to be insulting later. A man could still talk from there. A man could still be seen, until one stem and then another took him apart.
 
 Joel watched longer than he needed to.
 
@@ -584,7 +584,7 @@ Mike exhaled through his nose. "It'll lay down overnight."
 
 Alex laughed, not the full bark, but a shorter version made private by distance. The alder caught it and thinned it. For a second, after the laugh ended, Joel thought he heard the shape of it continue beyond Alex, farther down the channel.
 
-Not the laugh itself. The afterimage of it.
+Not the laugh itself. The afterimage of it, as if the channel had kept the shape and let the man go.
 
 He looked toward the water.
 
@@ -596,7 +596,7 @@ He looked toward the water.
 
 Joel almost told him. Then he did not. If he said it, the sound would have to sit with them by the fire.
 
-The fire settled lower. Wind moved in the spruce tops but did not come down to the ground. The camp smelled of smoke, damp nylon, bug spray, old ash, marsh water, sweat cooling in synthetic shirts. Joel rubbed one thumb along the edge of his spoon and felt a nick in the metal he had never noticed before.
+The fire settled lower. Wind moved in the spruce tops but did not come down to the ground. The camp smelled of smoke, damp nylon, bug spray, old ash, marsh water, sweat cooling in synthetic shirts. Joel rubbed one thumb along the edge of his spoon and felt a nick in the metal he had never noticed before. Small damage, discovered by touch because there was too little light to see.
 
 Alex's headlamp turned toward the channel.
 
@@ -610,12 +610,12 @@ Alex did not answer him. The beam stayed still. Then it moved right, slowly, fol
 
 From the channel edge came a small sound.
 
-Not a knock this time. Not the barrel latch. Not water. A branch touched another branch and stopped. It was the kind of sound a person made when he was trying not to make one, except no person had any business there.
+Not a knock this time. Not the barrel latch. Not water. A branch touched another branch and stopped. It was the kind of sound a person made when he was trying not to make one, except no person had any business there and Alex was already the person at the edge.
 
 Will stood partway up. "You guys hear that?"
 
 Mike turned his head. "Alex."
 
-The headlamp swung back toward camp for a second. Joel saw the white oval of Alex's face through leaves, amused and irritated, already forming the answer that would bring the moment back into the old shape.
+The headlamp swung back toward camp for a second. Joel saw the white oval of Alex's face through leaves, amused and irritated, alive with the old impatience, already forming the answer that would bring the moment back into the old shape.
 
 "What?" Alex said.

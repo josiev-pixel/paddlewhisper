@@ -42,7 +42,7 @@ Joel took the pencil.
 
 DO NOT TEACH IT.
 
-Will read that and did not answer. Before the layoff, he had spent years finding failures in circuits meant to make light: heat blooms, bad solder, dim strips that passed a short test and failed after hours. A failure with a traceable cause was not a character judgment. It was proof the system had lied first. He trusted the flaw. The flaw was where a thing stopped pretending.
+Will read that and did not answer. Before the layoff, he had spent years finding failures in circuits meant to make light: heat blooms, bad solder, dim strips that passed a short test and failed after hours. A traceable flaw was not a character judgment. It proved the system had lied first. The flaw was where a thing stopped pretending.
 
 He turned the page back to the previous night's line.
 
@@ -62,7 +62,7 @@ He waited until Joel was looking.
 
 IT USES OLD SOUND.
 
-Joel did not disagree. Disagreement would have been easier. He wanted Will's theory to be only grief wearing intelligence, something he could refuse cleanly. But the woods had been proving him right in pieces since the cabin: right words from wrong sources, tone without cause, gear sounds placed where the gear was visible. Will kept seeing the joints.
+Joel did not disagree. Disagreement would have been easier. He wanted Will's theory to be only grief wearing intelligence, something he could refuse cleanly. But the woods had been proving him right in pieces: right words from wrong sources, tone without cause, gear sounds placed where the gear was visible. Will kept seeing the joints.
 
 Joel wrote:
 
@@ -176,7 +176,9 @@ Blue bag under the front.
 
 The phrase rose in Joel's mind and stayed there, useless for now. He did not write it. He did not mouth it. He did not let his hand move toward the page. Even the thought felt like setting food at the edge of camp.
 
-The question of what to leave behind came last, and it came without a clean answer. They had one canoe, one heavy pack, one smaller pack that had become Joel's by use rather than ownership, the food barrel, the damp tarp, the stove and pot, one sleeping bag that had no business being called dry, the map case, the filter, the hatchet, the notebook, and the Highlander key zipped inside Joel's jacket. The blue dry bag with the emergency paddle stayed under the front seat because its usefulness depended on the boat. They also had the small leftovers men acquired: torn cord, wrapper trash, a bent tent stake, a spare carabiner, Alex's cracked headlamp wrapped in a shirt, Mike's cap shoved into a side pocket after the cabin.
+The question of what to leave behind came last, and it came without a clean answer. One canoe. One heavy pack. One smaller pack that had become Joel's by use rather than ownership. Food barrel, damp tarp, stove and pot, wet sleeping bag, map case, filter, hatchet, notebook. The Highlander key stayed zipped inside Joel's jacket. The blue dry bag with the emergency paddle stayed under the front seat because its usefulness depended on the boat.
+
+Then there were the small leftovers men acquired and could no longer sort from grief: torn cord, wrapper trash, a bent tent stake, a spare carabiner, Alex's cracked headlamp wrapped in a shirt, Mike's cap shoved into a side pocket after the cabin.
 
 Joel touched the inner pocket where the key sat. He did not take it out.
 
@@ -186,7 +188,7 @@ The words still lined up. That did not mean the world would honor the order.
 
 Will pointed to the stove, then lifted his eyebrows.
 
-Joel shook his head, then stopped. The stove was weight. It was also hot food if they had to survive another night. Hot food was not comfort anymore. It was calories that entered the body more easily. It was flame if cold began to make them stupid. It was a small human technology the woods had not yet used except by sound.
+Joel shook his head, then stopped. The stove was weight. It was also hot food if they had to survive another night. Hot food was not comfort anymore. It was calories that entered the body more easily. It was flame if cold began to make them stupid.
 
 Will watched him thinking and made a small slicing motion with his good hand.
 
@@ -250,7 +252,7 @@ Then Mike's voice came from the right shore, calm and almost bored.
 
 Joel kept paddling.
 
-The sentence entered him differently now. Earlier it had been Mike smoothing time, space, doubt. A phrase that turned a bad sign into route confidence. Now it sounded like the old lie of the trip, not because Mike had meant harm, but because the phrase had always pressed evidence flat. The map said. The plan said. Competence said. We are here, therefore here must be right.
+The sentence entered him differently now. Earlier it had been Mike smoothing time, space, doubt. A phrase that turned a bad sign into route confidence. Now it sounded like the old lie of the trip, though Mike had never meant it as a lie. The map said. The plan said. Competence said. We are here, therefore here must be right.
 
 Will did not turn.
 
@@ -274,7 +276,7 @@ Will pointed at the left shore, then at the right, then held both palms apart.
 
 Different.
 
-Joel understood. The entity had made an argument without knowing it had made one. Mike's false certainty, Will's false correction. Two old voices in sequence. Not route logic. Pattern.
+Joel understood. The entity had made an argument without knowing it had made one. Mike's false certainty, Will's false correction. Two old voices in sequence. Not route logic. Only adjacency. Pattern wearing the clothes of thought.
 
 Will pointed again, more urgently. Then to his ear. Then to his head. Then he tapped the notebook tucked inside his vest.
 
@@ -326,7 +328,7 @@ Then:
 
 THERE IS A DIFFERENCE.
 
-Joel stared at the line. The phrase had followed them since first water and ordinary argument, when Will could turn a distinction into a joke or an irritation and no one had to decide whether that habit would kill him. There was a difference between hearing and answering. Between testing and obeying. Between leaving a man and surviving him. The divisions had only grown finer.
+Joel stared at the line. The phrase had followed them since first water and ordinary argument, when Will could turn a distinction into a joke or an irritation and no one had to decide whether that habit would kill him. The divisions had only grown finer.
 
 Joel wrote:
 
@@ -414,7 +416,7 @@ He pointed toward the place the false canoe knock had come from.
 
 New position.
 
-He was not being lured by belief. That was the terrible part. He did not think Alex was there. He did not think Mike waited ahead or that another canoe had appeared up the trail. He was being drawn by knowledge, by the possibility that the thing's limit could be mapped if a man stood close enough to the edge and did not fall.
+He was not being lured by belief. That was the terrible part. He did not think Alex was there. He did not think Mike waited ahead or that another canoe had appeared up the trail. He was being drawn by knowledge, by the possibility that the thing's limit could be mapped from the edge and that a careful man would know when to step back.
 
 Joel grabbed the notebook and wrote:
 
@@ -522,4 +524,4 @@ Joel tightened his grip.
 
 Will did not pull away hard. He only turned his wrist with a small practical motion, the way he might free a snagged strap.
 
-Then he turned toward the voice.
+Then he turned, not toward Alex, but toward the error.

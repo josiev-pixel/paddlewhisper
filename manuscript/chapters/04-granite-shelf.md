@@ -8,7 +8,7 @@ Mike saw it first and lifted his paddle. The gesture was small and certain, blad
 
 Nobody argued.
 
-They had been paddling long enough that even Alex let the word stand by itself. The afternoon had gone soft and slanted. The lake was not wide, but the wind had found its length and pushed little black wrinkles toward the boats. The work was not hard anymore. It was just constant. Paddle, correct, watch Mike's boat, keep Alex moving, keep the front from wandering toward shore.
+They had been paddling long enough that even Alex let the word stand by itself. The afternoon had gone soft and slanted. The lake was not wide, but the wind had found its length and pushed little black wrinkles toward the boats. The work was not hard anymore. It was only constant. Paddle, correct, watch Mike's boat, keep Alex moving, keep the front from wandering toward shore.
 
 Joel felt the day in his shoulders. Not pain yet. A thickening. His hands had gone soft between trips and were relearning friction. The place between thumb and forefinger burned when he shifted his grip. His hiking sandals were wet, then drying, then wet again, and his feet had the swollen, gritty feel they got after a day in water and mud. At home, effort had become calendar work, a thing arranged around calls and dinners and whatever needed signing. Here it had gone back into skin.
 
@@ -70,11 +70,11 @@ Alex dragged a pack onto the rock. "Is this where I ask if we can sit down?"
 
 "I asked if this was where."
 
-Joel lifted his day bag and set it near the first flat place above the landing. The campsite was better than he expected. A granite shelf with enough dirt pockets for tents, two good trees back from the fire ring, a pair of red pines on the water side, and a rough bench made from a log dragged against stone. Someone had left a ring of blackened rocks and a half-burned split log. A faint trail led back into spruce where previous campers had gone for latrine privacy or firewood or both. Small limbs had been cut and stacked under a rock overhang. Old, damp, probably smoky, but still wood.
+Joel lifted his day bag and set it near the first flat place above the landing. The campsite was better than he expected: a granite shelf with dirt pockets for tents, two good trees back from the fire ring, a pair of red pines on the water side, and a rough bench made from a log dragged against stone. Someone had left a ring of blackened rocks and a half-burned split log. A faint trail led back into spruce where previous campers had gone for privacy or firewood or both. Small limbs had been cut and stacked under a rock overhang. Old, damp, probably smoky, but still wood.
 
-There were signs of people and not much else. A twist of blue cord tied to a branch. A square of foil half-buried in ash. Boot prints softened by rain and time. One rusted bottle cap wedged in a crack. Out here, human presence did not claim a place. It left small failures and asked the next men to call them proof.
+There were signs of people and not much else. A twist of blue cord tied to a branch. A square of foil half-buried in ash. Boot prints softened by rain and time. One rusted bottle cap wedged in a crack. Out here, human presence did not claim a place. It left small failures behind and asked the next men to call them proof.
 
-Joel had always found comfort in that, which seemed foolish when named. The ring of stones. The hacked branch. The scrap of cord another party had abandoned because it was too short to be useful and too useful, at the moment, to throw away properly. Someone had stood here cold or hungry or damp and had made these same arrangements. The place had accepted them without promising anything. Still, the arrangements remained.
+Joel had always found comfort in that, foolish as it was. The ring of stones. The hacked branch. The scrap of cord another party had abandoned because it was too short to be useful and too useful, at the moment, to throw away properly. Someone had stood here cold or hungry or damp and had made these same arrangements. The place had accepted them without promising anything.
 
 "Not bad," Will said.
 
@@ -96,11 +96,11 @@ Alex raised a finger. "Put that on his memorial shirt."
 
 "You make people imagine it," Will said.
 
-They unloaded everything before doing anything comfortable. That was Mike's rule and, worse, a good one. Packs came out. Rods came out. Paddles went under the pulled-up canoes, tucked out of the way and off the grit. Mike took off his PFD last, pressed his thumb once against the small yellow pouch clipped inside the left side, then hung it over a low branch where he could see it from the fire ring. The Highlander key belonged to the far end of the route. Mike kept bringing that shore forward by touch.
+They unloaded everything before doing anything comfortable. That was Mike's rule and, worse, a good one. Packs came out. Rods came out. Paddles went under the pulled-up canoes, tucked out of the way and off the grit. Mike took off his PFD last, pressed his thumb once against the small yellow pouch clipped inside the left side, then hung it over a low branch where he could see it from the fire ring. The Highlander key belonged to the far end of the route. Mike kept bringing that shore forward with his hand.
 
 The food barrel was carried to the middle of camp and then moved because Mike said the middle of camp was where idiots put food. Will opened it anyway to get the dinner bag. The latch made its clean plastic snap, small and final. Joel put the sound with the rest of camp: hull on stone, rope on bark, zipper teeth, water moving below them. Even plastic carried.
 
-He set his pack near the two trees he liked and looked out over the lake instead of opening it. The far shore was darkening. Sun still held in the pine tops, but the water had lost its brightness and now seemed to store the shade coming off the trees. A loon called from the north, long and hollow. Another answered, or the first call came back broken by distance. The notes overlapped for a second and made the lake feel larger than it was.
+He set his pack near the two trees he liked and looked out over the lake instead of opening it. The far shore was darkening. Sun still held in the pine tops, but the water had lost its brightness and now seemed to store the shade coming off the trees. He thought of taking a picture for Mara, proof that the trip was doing what he had claimed it would do, then left the phone sealed away. A loon called from the north, long and hollow. Another answered, or the first call came back broken by distance. The notes overlapped for a second and made the lake feel larger than it was.
 
 Then the lake went quiet in the way water could, not silent but refusing to explain the sounds it had just carried.
 
@@ -118,11 +118,11 @@ Alex stood with a bundle of tent poles over one shoulder and the tent bag under 
 
 Alex handed him the tent bag. "Then your vigil ends."
 
-They pitched the tent before the mosquitoes took full possession of camp. Mike and Alex took it. Joel and Will both had hammocks. Joel had been camping in a hammock almost exclusively the last few seasons, partly because he slept better off the ground and partly because he liked having a system that was his alone. Straps, suspension, tarp, underquilt if weather wanted to be rude. Tree to tree. Line tight. Sag right. Tarp pitched low enough to matter.
+They pitched the tent before the mosquitoes took full possession of camp. Mike and Alex took it. Joel and Will both had hammocks. Joel had been camping in a hammock almost exclusively the last few seasons, partly because he slept better off the ground and partly because he liked having a system that was his alone. Straps, suspension, tarp, underquilt if weather turned. Tree to tree. Line tight. Sag right. Tarp low enough to matter.
 
 The arrangement gave him something close to privacy without requiring a conversation.
 
-Will had brought a hammock too, but mostly for lounging. He still slept in the tent more often than not unless the weather was perfect or he had talked himself into an experiment. Will liked owning options. Joel liked eliminating them.
+Will had brought a hammock too, mostly for lounging. He still slept in the tent unless the weather was perfect or he had talked himself into an experiment. Will liked owning options. Joel liked eliminating them.
 
 Mike watched Joel wrap a tree strap around a red pine. "You actually sleeping in that thing?"
 
@@ -140,7 +140,7 @@ Will looked over. "That was mine."
 
 Joel clipped the carabiner and pulled the suspension through. The webbing made a dry scrape against bark.
 
-At home, this kind of system annoyed Mara if he talked about it too long. She liked competence fine. She had liked the hammock too, once, on a state-park weekend when rain trapped them under its tarp and they passed a dented thermos back and forth while other campers fled to cars. They had laughed at the steam on each other's faces and at the ridiculous closeness of the rig, two adults pretending a nylon roof was a room. What she disliked was the private satisfaction he took in having one more way not to need a room, a bed, a decision made with another person. Joel had argued that a hammock was only a hammock, and even while saying it had known he was lying by scale, not by kind.
+At home, this kind of system annoyed Mara if he talked about it too long. She liked competence fine. She had liked the hammock too, once, on a state-park weekend when rain trapped them under its tarp and they passed a dented thermos back and forth while other campers fled to cars. They had laughed at the steam on each other's faces and at the ridiculous closeness of the rig, two adults pretending a nylon roof was a room. What she disliked was the private satisfaction he took in having one more way not to need a room, a bed, a decision made with another person. Joel had argued that a hammock was only a hammock, and even then had known he was lying by scale, not kind.
 
 Mike shook his head. "Ground exists for a reason."
 
@@ -160,7 +160,7 @@ Will had his own hammock half out of its sack and was looking at the trees behin
 
 "That's preparedness."
 
-The old Will would have made a larger case for it. He would have explained load redundancy or failure points or how most people confused comfort with utility. This Will shook the hammock once and frowned at a tangle in the suspension. He had been quieter since lunch in brief, uneven patches, as if his talk had to climb a small rise before it could get out.
+The old Will would have made a larger case for it. He would have explained load redundancy or failure points or how most people confused comfort with utility. This Will shook the hammock once and frowned at a tangle in the suspension. Since lunch, his talk had come in brief, uneven patches.
 
 "I keep thinking I forgot to check something," Will said.
 
@@ -190,7 +190,7 @@ Will, crouched over his hammock sack, said, "Put his side facing the water. If a
 
 Alex nodded. "Finally. Logic."
 
-Joel fed one guyline around a trunk and tied it off. The line tightened with a small creak. Behind him, Mike zipped the tent door open, then closed it, testing it the way men tested zippers in the woods: not because they distrusted the zipper exactly, but because a zipper that failed at night became a moral problem.
+Joel fed one guyline around a trunk and tied it off. The line tightened with a small creak. Behind him, Mike zipped the tent door open, then closed it, testing it the way men tested zippers in the woods: not because they distrusted the zipper exactly, but because a zipper that failed at night became everybody's problem.
 
 The zipper ran around the curve with a dry insect sound.
 
@@ -218,11 +218,11 @@ Mike saw him. "Water first."
 
 Will stopped, considered whether he could argue it, and came back for the filter.
 
-They divided chores without formally dividing them. Mike and Will handled water because Will had opinions about filtering and Mike had opinions about where the bag should hang. Joel handled dinner because he usually did. He had a dehydrator at home and had become the kind of man who could talk about sauce leather without shame. Jerky at a hundred sixty for five or six hours. Sauce lower and longer. Sweet potatoes if he remembered to slice them evenly.
+They divided chores without formally dividing them. Mike and Will handled water because Will had opinions about filtering and Mike had opinions about where the bag should hang. Joel handled dinner because he usually did. He had a dehydrator at home and had become the kind of man who could talk about sauce leather without shame. Jerky at a hundred sixty for five or six hours. Sauce lower and longer. Sweet potatoes sliced evenly or not at all.
 
 The others made fun of him until they ate what he brought. Then they asked how much was left.
 
-Tonight was dried tortellini with Joel's dehydrated red sauce, plus parmesan packets and a little oil. Easy first-night food. No fish required, no coals, no timing beyond boil, soak, simmer, stir. The more ambitious meals could wait: quesadillas, lentils and yams, fish fry if the lake gave them enough, mac and cheese with bacon when morale needed to be purchased cheaply.
+Tonight was dried tortellini with Joel's dehydrated red sauce, parmesan packets, and a little oil. Easy first-night food. No fish, no coals, no timing beyond boil, soak, simmer, stir. The more ambitious meals could wait.
 
 Joel set the sauce pieces in a pot with water to soften. They looked like dark red bark.
 
@@ -288,7 +288,7 @@ Will hung the gravity bag from a low limb. Water ticked through the filter into 
 
 "Put that on your own memorial shirt," Alex said.
 
-Dinner took its time coming back to life. Joel stirred the sauce as it softened and reddened the water. The smell came up slowly: tomato, garlic, dried herbs, a faint sweetness from hours in the dehydrator. Not home exactly. A camp version of home, thinner and smokier and more valuable because it had crossed water in a sealed bag.
+Dinner took its time coming back to life. Joel stirred the sauce as it softened and reddened the water. The smell came up slowly: tomato, garlic, dried herbs, a faint sweetness from hours in the dehydrator. Not home exactly. A camp version of home, thinner and smokier, valuable because it had crossed water in a sealed bag.
 
 The mosquitoes came hard at dusk.
 
@@ -336,7 +336,7 @@ Alex glanced at it. "I know. It looks judgmental."
 
 "I have evidence."
 
-After dinner, Will went back to the shore with his rod. Nobody told him not to. Everyone knew by now that Will would fish if there was water, light, and enough motor function left in his arms. It was less a choice than a tide.
+After dinner, Will went back to the shore with his rod. Nobody told him not to. Everyone knew by now that Will would fish if there was water, light, and enough motor function left in his arms.
 
 The lake darkened by degrees. Across the water, the opposite shore went from green to black. The first stars appeared between the pine tops before the sky was fully night. The chill came up from the stone. It entered through damp sandal straps and wet cuffs and the places where sweat had dried into salt.
 
@@ -354,11 +354,11 @@ Alex sat near the fire ring with his fleece zipped to his chin. "You actually en
 
 Will cast again. "Part of it."
 
-Mike had built a small fire because the ring existed, the wood was there, and the evening had dropped cold enough to justify flame. It was not much. Thumb-thick sticks, pine curls, a few split pieces from the dry stack. The hatchet bit twice into one stubborn piece before Mike gave up and fed it half-burned ends from the old ring. The fire took with a low crackle, then settled into itself.
+Mike had built a small fire because the ring existed, the wood was there, and the evening had dropped cold enough to justify flame. It was not much. Thumb-thick sticks, pine curls, a few split pieces from the dry stack. The hatchet bit twice into one stubborn piece before Mike gave up and fed it half-burned ends from the old ring. The fire took with a low crackle, then settled.
 
 Alex came alive in firelight.
 
-He could not help it. The day's fatigue left him, or else the fire gave him a place to spend it. He told the story of a backpacking trip in the Cascades where a friend had packed six pounds of cheese and no rain jacket. He told it too long and too well, with voices, pauses, and a whole middle section about the cheese sweating through a stuff sack. It should have been cut. Nobody cut it because everyone was tired and the fire was warm and Will, despite himself, kept asking questions.
+He could not help it. The day's fatigue left him, or else the fire gave him a place to spend it. He told the story of a backpacking trip in the Cascades where a friend had packed six pounds of cheese and no rain jacket. He told it too long and too well, with voices, pauses, and a whole middle section about the cheese sweating through a stuff sack. Nobody cut him off. Everyone was tired, the fire was warm, and Will, despite himself, kept asking questions.
 
 "Six pounds?" Will said.
 
@@ -376,7 +376,7 @@ He could not help it. The day's fatigue left him, or else the fire gave him a pl
 
 "It was by day three."
 
-Joel watched Alex hold them there. Even Mike listened, though he pretended not to by using a stick to worry the fire. Alex had a talent for making annoyance indistinguishable from attention. He required a room, a landing, a fire ring. He made you give it to him, and sometimes the gift became real after you had surrendered it.
+Joel watched Alex hold them there. Even Mike listened, though he pretended not to by worrying the fire with a stick. Alex had a talent for making annoyance indistinguishable from attention. He required a room, a landing, a fire ring. He made you give it to him, and sometimes the gift became real after you had surrendered it.
 
 Mike sat back against a log. "People don't know how to be uncomfortable anymore."
 
@@ -510,7 +510,7 @@ Alex came back a minute later, headlamp still on, beam hitting their faces until
 
 They cleaned camp.
 
-The food barrel was latched and carried back from the tent and hammocks, not far enough to satisfy a ranger and far enough to satisfy tired men. Mike wanted it wedged between two rocks where it could not roll. Will wanted it farther downwind. Joel helped move it once and then stopped helping the argument. The latch clicked again when Mike checked it.
+The food barrel was latched and carried back from the tent and hammocks, not far enough to satisfy a ranger and far enough to satisfy tired men. Mike wedged it between two rocks where it could not roll. Will wanted it farther downwind. Joel helped move it once and then stopped helping the argument. The latch clicked again when Mike checked it.
 
 Dry bags went under the tent vestibule or under Joel's hammock tarp. Paddles stayed stacked under the canoes. The stove cooled on granite. Someone's mug tipped and rolled until Joel caught it with his foot. Toothpaste spit flashed pale on the edge of the firelight and vanished into dirt.
 
@@ -566,9 +566,9 @@ He woke later without knowing why.
 
 The hammock held him in a shallow curve. His shoulders ached. His feet were still cold. For a moment Joel did not move.
 
-Outside, the lake was quiet. The camp had the dense stillness of first night, when every object was still in the place men had put it and had not yet become familiar enough to ignore.
+Outside, the lake was quiet. The camp had the dense stillness of first night, when every object was still where men had put it and had not yet become familiar enough to ignore.
 
-From the shoreline came a soft knock.
+From the shoreline below camp came a soft knock.
 
 One sound. Hollow. Wood or hull against stone. Low enough to belong to the canoes, the water below them, or a branch the lake had been worrying against rock all evening.
 

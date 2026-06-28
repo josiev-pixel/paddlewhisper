@@ -28,7 +28,7 @@ The old canoe language was gone. Draw. Back. Left. Right. Hold up. Watch that ro
 
 They had used those words for years without gratitude. Now each missing word made the boat harder to keep alive.
 
-Silence made safety expensive. It took the small corrections men used to keep danger from becoming visible and left them with gestures broad enough to arrive late.
+Silence made safety expensive. It removed the small corrections men used before danger became visible and left them with gestures broad enough to arrive late.
 
 Joel dipped his paddle and corrected the back end. Will pulled once on the right. The front nosed toward a black stitch of open water between alder stems. Fog lay low over the channel, not hiding everything, only making pieces of it. Bank, then nothing. Spruce root, then water. A pale stick floating where a rock should have been.
 
@@ -46,7 +46,7 @@ Click.
 
 Will tapped the gunwale once with two fingers. Not the signal. Reflex. He caught himself and put his hand back on the shaft as if the hull had burned him.
 
-The channel bent left. Alder brushed both sides. Branches stroked the gunwales with small dry sounds, though the leaves were wet and shining. The canoe moved slowly because speed made noise and noise forced decisions. Joel felt every scrape in his knees. Twice he looked down to see whether the bottom had flexed or only sounded as if it had. The boat was no longer an object beneath them. It was an argument they had to keep winning.
+The channel bent left. Alder brushed both sides. Branches stroked the gunwales with small dry sounds, though the leaves were wet and shining. The canoe moved slowly because speed made noise and noise forced decisions. Joel felt every scrape in his knees. Twice he looked down to see whether the bottom had flexed or only sounded as if it had. The boat was no longer only an object beneath them. It was a claim they had to keep proving.
 
 He had trusted boats before this trip the way he trusted floors. They held a body above what would otherwise take it. Even when they rocked, even when they shipped water, even when Alex did some showy incompetent thing in front and laughed at his own balance, the boat had remained a boat. Shape, weight, skill, buoyancy.
 
@@ -62,7 +62,7 @@ Joel let the canoe glide. He lifted his blade and held it over the water until d
 
 The knock came again, farther right.
 
-There could have been another canoe beyond the bend. A submerged branch tapping stone. A loose paddle in a boat they had not seen. A fisherman who would look at them and understand none of it but still have a radio. Hope came now as a practical possibility, small enough to feel responsible.
+There could have been another canoe beyond the bend. A submerged branch tapping stone. A loose paddle in a boat they had not seen. A fisherman who would look at them and understand none of it but still have a radio. Hope came now as a practical possibility, small enough to disguise itself as responsibility.
 
 Joel touched two fingers to his eyes and pointed at Will.
 
@@ -84,7 +84,7 @@ In ordinary travel one word from the back corrected a bad angle before it became
 
 Will's hand cost them time. He could paddle with it, but he could not grab quickly. When the canoe slid toward a snag, his good hand crossed awkwardly over the bad, and the plastic bag squeaked against the shaft. Each time he looked down as if betrayed by a tool that had worked yesterday.
 
-Joel knew that look. He had seen it in church basements when a model rocket failed to launch, in Will's first apartment when a chess game turned because he had missed an obvious fork, on lake trips when a knot held badly after he had told everyone else to learn the difference. Will did not hate failure most. He hated the instant when the world proved he had been using the wrong rule.
+Joel knew that look. He had seen it in church basements when a model rocket failed to launch, in Will's first apartment when a chess game turned because he had missed an obvious fork, on lake trips when a knot held badly after he had told everyone else to learn the difference. Will did not hate failure most. He hated the instant the world proved he had been using the wrong rule.
 
 At the next shallow, the canoe stopped.
 
@@ -104,7 +104,7 @@ He tapped the hull once, pointed to himself, then over the side.
 
 Will shook his head sharply. His eyes went to the bank, the fog, Joel's face.
 
-Joel understood. If Joel got out, they were slower. If Joel got out, one man was in the boat and one in the water. If Joel got out, cold took more from him. If they stayed, the current could turn the hull broadside and pin it harder. There was no clean choice, only exposure chosen before exposure chose them.
+Joel understood. If he got out, they were slower. If he got out, one man was in the boat and one in the water. If he got out, cold took more from him. If they stayed, the current could turn the hull broadside and pin it harder. There was no clean choice, only exposure chosen before exposure chose them.
 
 Joel pointed to the shallow and made a pushing motion. He pointed to Will, then to the front rope.
 
@@ -133,6 +133,8 @@ They walked it another ten yards before the channel deepened. Joel climbed in fi
 Neither man looked back.
 
 For a while they made progress.
+
+Progress no longer felt like distance. It was the continued absence of a worse fact: no water pouring through a seam, no hidden split opening under the food barrel, no voice close enough to make a body answer before thought could stop it. The canoe advanced in small refusals.
 
 Water gathered in the ribs under Joel's heels. Not much. A shallow runnel from wet legs and dripping packs, he told himself, but the boat was too low for casual water. He took the pot from beside the stove, dipped twice, and poured the water over the side. The splash sounded too large in the narrow channel. Across the bend, a second pour answered after a delay, cleaner than an echo.
 
@@ -362,7 +364,7 @@ Their paddles lay on the gravel beside the canoe.
 
 Will closed his eyes for one second. When he opened them, his face had hardened into something almost calm.
 
-Joel saw the test arrive in him before it became a mark on the page. Pump again. Stop. Count the delay. Move the filter. See whether the sound moved with it.
+He looked at the filter, then at the opposite bank. His good hand lifted half an inch. Pump again. Stop. Count the delay. Move the filter. See whether the sound moved with it. Joel could read the experiment in the pause between Will's fingers and the handle.
 
 Joel set the filter down and put his hand flat over it.
 
@@ -432,7 +434,7 @@ WRITING COSTS NOTHING.
 
 Joel looked at the dark line of the opposite bank. The spruce there stood close enough together that dusk gathered between trunks before it gathered on the water. The channel made a narrow mirror of the sky, then broke it around stones and drowned sticks.
 
-Writing removed tone. That was why it had saved them. It made grief blunt and orders plain. It let Will argue without feeding the trees his voice. But writing still made marks. The pencil scratched. Pages turned. Hands moved. A note changed what a man did next. The page had begun to feel like shelter, and Joel no longer trusted shelters.
+Writing removed tone. That was why it had saved them. It made grief blunt and orders plain. It let Will argue without feeding the trees his voice. But writing still made marks. The pencil scratched. Pages turned. Hands moved. A note changed what a man did next. The page had begun to feel like shelter, and Joel no longer trusted anything that called itself shelter.
 
 He wrote:
 
@@ -466,7 +468,7 @@ Across the channel, in Will's own voice, someone said, "There is a difference."
 
 Will shut his eyes.
 
-The phrase had been his once, ordinary as a cough, said when distinctions still helped men feel clever. It arrived now in the exact place Will's argument had made for it.
+The phrase had been his once, ordinary as a cough, said when distinctions still helped men feel clever. It arrived now in the exact place Will's argument had made for it: not as an answer, only as pressure applied to the bruise.
 
 Joel put two fingers to his eyes and waited until Will opened his.
 
@@ -530,4 +532,4 @@ Joel kept his eyes open on the canoe's dim shape. Bad boat. Only boat. The thing
 
 The rope around his wrist held.
 
-For that night, before sleep or whatever passed for it, that was the whole world.
+It was not safety. It was contact. For that night, before sleep or whatever passed for it, contact was the whole world.

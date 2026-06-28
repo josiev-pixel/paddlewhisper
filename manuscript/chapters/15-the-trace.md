@@ -4,7 +4,7 @@ The trace disappeared three times before it became a road again.
 
 For the first twenty minutes after the false Mike had told them to keep moving, moving stopped meaning progress.
 
-It meant bodies kept in sight, feet placed where the ground would take them, packs watched for stray sounds, every branch that snapped assigned to a branch before the sound could become a voice. Mike led with the cracked paddle in one hand and the old map under his rain jacket. Alex's unused bear spray rode on the front of his PFD, orange and clean in a way nothing else was clean. Will followed with his shoulders drawn up around his ears. Joel came last and watched both of them as if attention were a rope he had to keep tight.
+It meant bodies kept in sight, feet placed where the ground would take them, packs watched for stray sounds, every branch that snapped assigned to a branch before the sound could become a voice. Mike led with the cracked paddle in one hand and the old map under his rain jacket. Alex's unused bear spray rode on the front of his PFD, orange and clean in a way nothing else was clean. Will followed with his shoulders drawn up around his ears. Joel came last and watched both of them as if attention were a line he had to hold without letting it show.
 
 The first loss happened so gently that Joel did not know it had happened until Mike stopped. A minute before, the old path had been grass and mud, two shallow wheel ruts holding brown water, alder leaning in from both sides. Then it was only wet brush. No ruts. No cut stumps. No straightness. The woods took back the human mark without drama, as if the mark had never been more than grass pressed briefly in one direction.
 
@@ -76,7 +76,9 @@ He pushed the notebook against Joel's chest.
 
 The sentence looked better than it had sounded. Writing removed tone and left a tool small enough to carry.
 
-Mike read it. His mouth moved once, no sound. Joel thought he might argue with the page, which would be a new low for all of them. Instead Mike nodded, one hard dip, and turned back to the brush.
+It was the kind of failure Will could bear better than panic: a failure with a hinge, a category, a cause he could put his thumb on. A map could be right and useless. A road could exist and not save them. If the world would give him a flaw with edges, he could still make himself useful by naming it.
+
+Mike read it. His mouth moved once, no sound. Joel thought he might argue with the page. Instead Mike nodded, one hard dip, and turned back to the brush.
 
 They kept moving.
 
@@ -114,7 +116,7 @@ Mike froze.
 
 Joel froze.
 
-The cough did not repeat. It did not need to. One exact sound, placed once, left less for the mind to argue with and more for the body to obey.
+The cough did not repeat. It did not need to. One exact sound, placed once, left little for the mind to argue with and much for the body to obey.
 
 The woods resumed its ordinary noises around the absence: water ticking from needles, the faint rub of pack cloth where Joel's weight shifted, one far raven knocking once and then nothing. Ordinary sound had become a set of suspects. Each one had to show its hands.
 
@@ -130,7 +132,7 @@ WILL COUGH - AHEAD.
 
 WILL SEEN.
 
-Mike read it. His face stayed closed, but Joel saw the arithmetic behind it. If Will could be in one place and Will's voice in another, then Mike's own voice from the trace ahead of him had not been an exception. It had been the beginning of a new category.
+Mike read it. His face stayed closed, but Joel saw the arithmetic behind it. If Will could be in one place and Will's voice in another, then Mike's own voice from the trace ahead of him had not been an exception. It had been instruction in a rule none of them wanted.
 
 Will wrote beneath Joel's lines:
 
@@ -232,8 +234,6 @@ The three of them listened to the woods after he said it. Even practical sentenc
 
 Nothing answered.
 
-That did not make it safe.
-
 Joel wrote:
 
 MIKE: TRUCK DOESN'T HELP IF WE LOSE THE KEY.
@@ -252,7 +252,7 @@ Will was still looking at the pocket. Not accusing. Worse than accusing. Waiting
 
 Mike looked past him into the brush. "I know what I said about the beacon."
 
-The sentence landed harder than the key line. It did not excuse anything. It only opened a place in the day where the absent object stood: the small box they had not carried because the route was known, because the vehicles were staged, because men who had come home before expected to come home again.
+The sentence landed harder than the key line. It did not excuse anything. It only opened a place in the day where the absent object stood: the small box they had not carried because the route was known, because the vehicles were staged, because men who had come home before expected to come home again. Mike had not forbidden it. That would have been cleaner. He had made it sound unnecessary until unnecessary became the group decision.
 
 Will's good hand twitched toward the notebook.
 
@@ -262,7 +262,7 @@ Joel wrote anyway, smaller:
 
 MIKE: BEACON.
 
-He did not write apology. Mike had not offered one, exactly. He had put the missing object on the table between them and let it stand there without a use.
+He did not write apology. Mike had not offered one, exactly. He had put the missing object on the table between them and let it stand there without a use. It was the closest Mike had come to saying he was afraid of his own judgment.
 
 They rested five minutes more. Maybe seven. Time had become distance, light, water, breath. Joel's watch still worked, but he had stopped trusting numbers to mean what they had meant before Alex died. A mile on a map was not a mile in alder. Noon did not promise afternoon. A cabin on paper did not promise shelter.
 
@@ -280,7 +280,7 @@ Mike folded the map and stood.
 
 The third loss came after the old road dipped into cedar.
 
-It was darker there though the day had not darkened. Cedar branches held the wet close and low. The ground turned soft enough to take the whole shape of their sandals and then drink the prints back in. Each step made a quiet sucking sound. Their packs brushed both sides of the corridor. The trace, if it was still a trace, narrowed to the distance between discomfort and refusal. The air smelled of cedar rot and cold water.
+It was darker there though the day had not darkened. Cedar branches held the wet close and low. The ground turned soft enough to take the whole shape of their sandals and then drink the prints back in. Each step made a quiet sucking sound. Their packs brushed both sides of the corridor. The trace, if it was still a trace, narrowed to discomfort and refusal. The air smelled of cedar rot and cold water.
 
 Mike slowed. Then stopped.
 
@@ -312,7 +312,7 @@ Will pressed on, softer but still speaking. "I'm not being an asshole. The old r
 
 Mike turned.
 
-There was anger in him, but the larger thing was shame. Joel saw it and did not want to. Mike heard every correction now as proof that he had brought them here wrong. The map, the route, the missing beacon, the cabin square, Alex under stones back at Second Camp: it had begun to gather around him. Will was not wrong. That was part of the cruelty.
+There was anger in him, but the larger thing was shame. Joel saw it and did not want to. Mike heard every correction now as proof that he had brought them here wrong. The map, the route, the missing beacon, the cabin square, Alex under stones back at Second Camp: it had begun to gather around him. Will was not wrong, and Will was trying to help. That was part of the cruelty.
 
 Joel put the notebook between them.
 
@@ -340,7 +340,7 @@ The living Mike stood in front of Joel, visible in profile, map case in one hand
 
 The false voice had come from the lower, wetter option, the one Mike had not yet chosen and the one Will had almost argued them away from.
 
-It had Mike's clipped certainty, the old impatience with hesitation, the practical shove toward motion. It did not sound malicious. That was what made Joel's legs want to obey it. It sounded, worst of all, useful.
+It had Mike's clipped certainty, the old impatience with hesitation, the practical shove toward motion. It did not sound malicious. That was what made Joel's legs want to obey it. It sounded, worst of all, useful. It sounded like relief arriving from the wrong ground.
 
 Will's good hand rose. Not to his ears this time. To his mouth.
 
@@ -398,7 +398,7 @@ They crossed a shallow ditch where a culvert had collapsed. Black water moved un
 
 The word came out before he caught it.
 
-It was not triumph. It was need, and it made him look younger for half a second: a man asking the world to acknowledge one thing he had read correctly.
+It was not triumph. It was need: a man asking the world to acknowledge one thing he had read correctly.
 
 Will opened his mouth.
 
@@ -428,7 +428,7 @@ The line was aimed at him. He knew it before he understood how he knew. It had A
 
 For an instant Joel was not on the old fire road. He was back on Day 1, with a canoe to unload and Alex turning impatience into theater, alive enough to be irritating, alive enough that Joel could resent him without consequence. That was the cruelty of the line. It returned Alex not as a ghost but as an inconvenience, the living man made whole for half a second by annoyance.
 
-The voice came again, closer by a few yards or seeming closer because grief moved distance.
+The voice came again, closer by a few yards, or seeming closer because grief moved distance.
 
 "You coming or writing a poem?"
 

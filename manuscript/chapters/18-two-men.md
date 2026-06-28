@@ -1,6 +1,6 @@
 # Chapter 18 - Two Men
 
-They spent the night in the cabin because leaving it in darkness would have been another way to die.
+They spent the night in the cabin because leaving in darkness would have been another way to die.
 
 Shelter was too generous a word. Rain came through the roof in three places Joel could count and several he could only hear. Wind entered around the door. Mice worked inside the walls with the confidence of owners. The table they had pushed against the door sat crooked, one leg shorter than the others or sunk into a soft place in the floor. Every time the wind leaned on the door the table clicked once against the boards, a dry sound that tried all night to become a buckle, a latch, a fingernail.
 
@@ -10,7 +10,7 @@ Neither slept.
 
 Sleep came near them a few times. It came as heat behind Joel's eyes, as the slow loosening of his hands, as the small fall of his chin toward his chest. Each time something corrected him. A drop struck the pot. A mouse shifted insulation inside the wall. Will's breath caught and stopped being regular. Outside, beyond the door, beyond the clearing, a branch moved in rain. Joel returned all at once to the floorboards, to the table leg under his heel, to the weight zipped against his chest.
 
-The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted it so badly that needing it had felt like betrayal. Now that he had it, the want did not leave. It hardened.
+The key was real. He checked it without looking down. Black plastic. Metal folded inside. Torn orange nylon still on the ring, and the bent zipper pull from Mike's PFD pocket. It sat in his inner jacket pocket, zipped against his chest. He had wanted it so badly that needing it had felt like betrayal. Now that he had it, the want did not leave. It hardened into another thing he had to guard.
 
 The Highlander was still miles away, if miles meant anything on a map that had already lied by omission. A key did not shorten a portage. It did not dry Will's hand or make the old road ahead passable. It proved only that some human system remained intact beyond the trees: a lock, an ignition, a vehicle waiting under spruce drip at North Road Bridge. That should have comforted him. Instead the hard little weight made his chest ache. The woods had not destroyed the thing they needed. It had given it back.
 
@@ -50,7 +50,7 @@ Two mouths.
 
 That was part of the inventory too, though Joel did not write it yet. Two men meant two bodies, two witnesses, and two remaining supplies of sound. It meant every useful sentence had to be weighed against the possibility that usefulness itself was what the thing wanted.
 
-The count did not save anything. It held the night in objects. Objects could still be looked at.
+The count did not save anything. It held the night in objects. Objects could still be looked at, and looking did not give the woods a voice.
 
 Near morning, Mike said, "Just keep moving."
 
@@ -76,9 +76,7 @@ NO ANSWER EVER?
 
 Joel read it and looked toward the door.
 
-The old rule, the first rule, had been too simple. Do not answer. It had worked when the voices came cleanly from places where no body stood. It had worked at the edge of camp, under rain, on water when sound crossed ahead of sight. But Mike had died inside a harder problem. A real man could be ten yards away and need help. A real key could lie at the threshold.
-
-That was the part the rule did not want to hold. False sounds were almost easy. They asked only to be refused. True things had a price.
+The old rule, the first rule, had been too simple. Do not answer. It had worked when voices came cleanly from places where no body stood, at the edge of camp, under rain, on water when sound crossed ahead of sight. But Mike had died inside a harder problem. A real man could be ten yards away and need help. A real key could lie at the threshold. False sounds were almost easy. They asked only to be refused. True things had a price.
 
 He wrote:
 
@@ -94,7 +92,7 @@ He took the pencil back.
 
 BODY IN SIGHT. SOURCE CONFIRMED.
 
-He almost added TRUST, then did not. Sight did not deserve that much. Sight had lost Mike when Joel turned his head for half a second. Sight was not faith. It was work that had to be done again and again until the body failed.
+He almost added TRUST, then did not. Sight did not deserve that much. Sight had lost Mike when Joel turned his head for half a second. Sight was not faith. It was work, and it had to be done again and again until the body failed.
 
 Will read it and shut his eyes.
 
@@ -140,7 +138,7 @@ Joel shifted the table back far enough to open the door a few inches. Cold air c
 
 The clearing was there.
 
-Grass flattened by rain. The roadbed rising shallowly through it. The old cans near the brush. The trees at the far side. No Mike. No orange PFD. No bear spray canister. No moving shape low in the alder. Only the place where he had last seen Mike, and the place where that seeing had failed.
+Grass flattened by rain. The roadbed rising shallowly through it. The old cans near the brush. The trees at the far side. No Mike. No orange PFD. No bear spray canister. No moving shape low in the alder. Only the place where he had last seen Mike, and the place where sight had failed.
 
 Joel opened the door wider.
 
@@ -158,7 +156,7 @@ He scanned from left to right the way Mike would have scanned a landing: close g
 
 In the mud below the wall was a mark.
 
-Not a footprint. Not enough of one. A long pressure in the wet soil and two deeper points beside it, as if weight had been set down and lifted without the courtesy of an animal pattern. A strand of orange thread lay near the deepest point, or else a pine needle had gone bright with wet. Joel looked at the mark until it became several things at once. Bear. Root. Dragged branch. Knee. A shape made by weight, not by any story he could use.
+Not a footprint. Not enough of one. A long pressure in the wet soil and two deeper points beside it, as if weight had been set down and lifted without the courtesy of an animal pattern. A strand of orange thread lay near the deepest point, or else a pine needle had gone bright with wet. Joel looked at the mark until it became several things at once. Bear. Root. Dragged branch. Knee. A fact made by weight, not by any story he could use.
 
 He made himself look away before the shape taught him anything he could not use.
 
@@ -374,7 +372,7 @@ That left the road trace forward and back to the canoes.
 
 The old road beyond the cabin might go somewhere human. It might become muskeg, vanish in second growth, cross private logging land, end at a washout, or loop toward a place no one had used in twenty years. Mike had needed it to mean exit. The map had needed nothing. It had carried an old mark forward until men mistook memory for promise.
 
-The canoes were known. Damaged, awkward, frightening, but known. The cache had a location on ground their own feet had crossed. The water beyond it connected to the route. The planned route connected, eventually, to North Road Bridge and the Highlander key in Joel's pocket. The river did not become safe because it was mapped, but all the remaining exits were attached to it.
+The canoes were known. Damaged, awkward, frightening, but known. The cache had a location on ground their own feet had crossed. The water beyond it connected to the route. The planned route connected, eventually, to North Road Bridge and the Highlander key in Joel's pocket. The river did not become safe because it was mapped. It was only the exit whose dangers they had already touched.
 
 Joel wrote:
 
@@ -466,7 +464,7 @@ NO HELP UNLESS BODY SEEN.
 
 WRITE WHEN POSSIBLE.
 
-IF VOICE FROM TREES, STOP.
+IF VOICE WITHOUT BODY, STOP.
 
 Will took the notebook and added:
 

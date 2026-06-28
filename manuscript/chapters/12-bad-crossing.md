@@ -2,7 +2,7 @@
 
 Morning gave them less wind and gave the fear edges.
 
-The camp looked almost innocent in gray light. The barrel hung shut. The canoes were still on the stones. The tents sagged and steamed a little where the rain had stopped. Joel's hammock straps made dark bands around wet trunks. Daylight laid every object back in its proper place and made the night's terror look like poor reasoning, as if fear had been a failure of visibility. Then Joel found himself counting anyway: barrel, canoes, paddles, packs, map case, Mike's bear spray, Alex's unused spray, notebook, men.
+The camp looked almost innocent in gray light. The barrel hung shut. The canoes were still on the stones. The tents sagged and steamed a little where the rain had stopped. Joel's hammock straps made dark bands around wet trunks. Daylight laid every object back in its proper place and made the night's terror look like poor reasoning, as if fear had been a failure of visibility. Then he counted anyway: barrel, canoes, paddles, packs, map case, Mike's bear spray, Alex's unused spray, notebook, men.
 
 Alex's groundsheet showed through the alder as a flat wrong color.
 
@@ -14,7 +14,7 @@ Will sat on a rock with the map case across his knees. The plastic had clouded i
 
 Joel stood at the shore and watched the lake measure itself in short black lines. Each line lifted, darkened, and fell apart before it reached the stones. The wind had not stopped; it had only lost some of its argument.
 
-It was not calm. Calm would have been a different world, and they were not in it. But the high white tearing of the day before had flattened. Wind still came from the west in uneven pushes, with spaces between them. The near shore was protected by the point, and beyond the point the main water showed dark, ribbed, manageable if they were clean and quick and lucky and did not have to look anywhere except forward. Joel could already feel the fraud inside that condition. Forward was where the water was. Forward was also where the wrong sound would come from if it wanted them to believe it.
+It was not calm. Calm would have been a different world, and they were not in it. But the high white tearing of the day before had flattened. Wind still came from the west in uneven pushes, with spaces between them. The near shore was protected by the point, and beyond it the main water showed dark, ribbed, manageable if they were clean and quick and lucky and did not have to look anywhere except forward. Joel could already feel the fraud inside that condition. Forward was where the water was. Forward was also where the wrong sound would come from if it wanted them to believe it.
 
 Those were too many conditions.
 
@@ -74,7 +74,7 @@ For a second the old rhythm tried to return. It flashed once under dark water an
 
 They broke camp without calling tasks across the site. That alone changed everything. On every other morning of the trip, leaving had been a noise: Mike telling someone to get the barrel down, Will asking where his filter cap went, Alex laughing from the wrong side of a job, Joel answering from a pack or a stove. Now they pointed, nodded, touched objects, made small hand motions like men working beside a sickbed. If one of them had to step behind a trunk, he raised a hand first and waited until the other two had seen him go. The rule made them slow and faintly ridiculous. It also kept them together.
 
-The silence did not make the work graceful. It made it stupid and slow. Every ordinary job had gained a second job: do the thing, and be seen doing it. Coil rope. Show hands. Reach for a buckle. Let two exhausted men register the reach before the buckle clicked. Their campsite had become a small country of permissions.
+The silence did not make the work graceful. It made it stupid and slow. Every ordinary job had gained a second job: do the thing, and be seen doing it. Coil rope. Show hands. Reach for a buckle. Let two exhausted men register the reach before the buckle clicked. A body had to become visible before its sound could be allowed to mean anything. Their campsite had become a small country of permissions.
 
 Mike lowered the food barrel while Joel watched the brush. The rope hissed over the branch, a normal sound so exact it made Joel's teeth touch. The barrel thudded against the trunk. Mike flinched and then angrily did not look toward the alder. Will packed the tarp with fingers that kept missing the fold. Twice he started to ask something and stopped himself with his mouth open, breath held around the unspent words. Joel handled the stove, the wet mugs, the fuel bottle, the small hard things that could be counted and made to fit.
 
@@ -84,7 +84,7 @@ Will found the carabiner clipped to the outside of a pack and held it up. The li
 
 Nobody claimed it.
 
-Will put it in the pack anyway and shut the buckle with great care, as if roughness would be heard as disrespect or invitation.
+Will put it in the pack anyway and shut the buckle with great care, as if roughness would be heard as disrespect or invitation. Joel watched the click happen under Will's thumb and still had to tell his body not to look toward the brush.
 
 They did not go back to Alex's body. Not fully. Mike walked to the edge of the alder and checked the orange tape from ten feet away. Joel went with him because letting Mike go alone would break their only rule before breakfast. Will came halfway and stopped behind them, arms wrapped around himself, map case under one elbow.
 
@@ -138,7 +138,7 @@ They went to the boats.
 
 Three men in two canoes made every old habit wrong. They had known this since Alex died, but knowing it on shore was different from loading it into moving water. One boat wanted a second body in front. The other wanted Alex's uneven strength, his complaints, his big shoulders blocking the low spray. Instead there were packs where men should have been and men where the dead had made room. Even the boats seemed to remember wrong: one front seat empty, one back seat overburdened, both hulls asking for the weight they no longer had.
 
-Mike took his canoe alone. Before he loaded, he touched the left pocket of his PFD without looking at it. The old gesture was so quick Joel almost missed it: the small yellow pouch, the Highlander key still there. North Road Bridge still waiting in the form of a small piece of metal sealed against Mike's ribs. He clipped Alex's unused spray beside his own nearly spent canister, then loaded the food barrel and the heaviest packs forward to keep the front down. He shoved Will's blue dry bag farther ahead with his foot until it wedged under the front seat. It was too much weight in the wrong place and still not enough. The empty back half made the canoe look false and unbalanced, a boat pretending to be ready.
+Mike took his canoe alone. Before he loaded, he touched the left pocket of his PFD without looking at it. The old gesture was so quick Joel almost missed it: the small yellow pouch, the Highlander key still there. North Road Bridge still waiting in the form of a small piece of metal sealed against Mike's ribs. He clipped Alex's unused spray beside his own nearly spent canister, then loaded the food barrel and the heaviest packs forward to keep the front down. He shoved Will's larger blue dry bag farther ahead with his foot until it wedged under the front seat. It was too much weight in the wrong place and still not enough. The empty half of the canoe made it look false and unbalanced, a boat pretending to be ready.
 
 "You need ballast behind you too," Will said.
 
@@ -204,7 +204,7 @@ Halfway to the rock hump, from somewhere ahead and left, near a dark cut that wa
 
 The sentence came clean across the water.
 
-It had Mike's working voice, not his argument voice. The practical tone he used at the mouth of a channel, at the start of a portage, when the route looked worse than he wanted to admit and he needed everyone to believe the next bend would justify the last one. It was not loud. It did not echo. It simply arrived in front of them, already useful and already wrong.
+It had Mike's working voice, not his argument voice. The practical tone he used at the mouth of a channel, at the start of a portage, when the route looked worse than he wanted to admit and he needed everyone to believe the next bend would justify the last one. It was not loud. It did not echo. It came without paddle slap, without hull scrape, without any living body to spend breath on it. It simply arrived in front of them, already useful and already wrong.
 
 Mike was behind them and to the right, head down, paddling.
 
@@ -260,7 +260,7 @@ Will did not turn. His head had lowered between his shoulders.
 
 "The living you is in the boat," Joel said. "Paddle."
 
-The sentence cut through. Joel saw it in the way Will's shoulders changed. Not comfort. Instruction. That was all they had. Will put the blade in and pulled. The far shore did not repeat him.
+The sentence cut through. Joel saw it in the way Will's shoulders changed. Not comfort. Instruction. That was all they had. Will put the blade in and pulled. The far shore did not repeat him. It had asked the kind of question old friends answered without thinking, and they had not answered. That felt less like success than like stopping a reflex.
 
 The rock hump did not protect them. It was too low, more of a black back just under the skin of the lake than an island. Wind broke around it and came at them in short confused slaps. Mike tried to come up on their right and lost ground. Joel saw his canoe turn broadside for two bad seconds, the food barrel lifting against its straps. Mike threw a hard draw stroke, cursed, and straightened out.
 
@@ -286,7 +286,7 @@ Joel understood it before he let himself say it. The intended landing lay farthe
 
 Will laughed once, not because it was funny. The laugh came out broken and stopped short. Joel hated that his mind counted it as material before it counted it as pain.
 
-The next gust pushed them toward a low, steep shore where spruce roots gripped rock like black fingers. No landing there. Joel bore left, saw nothing, then saw a shallow fan of pale stones below a dead cedar leaning over the water. It was not a campsite. It was barely a place. It was enough to stop moving.
+The next gust pushed them toward a low, steep shore where spruce roots gripped rock like black fingers. No landing there. Joel bore left, saw nothing, then saw a shallow fan of pale stones below a dead cedar leaning over the water. It was not a campsite. It was barely a place. It did not offer safety. It offered an end to being on the lake, and that was enough.
 
 He pointed with the paddle.
 
@@ -352,7 +352,7 @@ Mike looked up, furious. Not at Joel. Not exactly. At needing to be checked like
 
 Joel nodded. Sight before statement. Even for injury.
 
-They unloaded in pieces because pieces were all their hands could manage. Packs first. Barrel. Tent. Map case. Spare clothes. The blue dry bag from the front of Mike's boat had a dark wet seam along one side. Mike saw it and swore again, softer.
+They unloaded in pieces because pieces were all their hands could manage. Packs first. Barrel. Tent. Map case. Spare clothes. The larger blue dry bag from the front of Mike's boat had a dark wet seam along one side. Mike saw it and swore again, softer.
 
 "It wasn't clipped," Will said.
 
@@ -378,7 +378,7 @@ Mike looked back across the water. The place where the voice had come from was o
 
 No one argued. The denial came from his mouth, close enough for Joel to see the wet shine on his beard, and it still did not settle the voice that had crossed the water ahead of them. Mike seemed to hear the failure of it. His face closed, not in anger this time but in a kind of stunned privacy, as if even his own voice had stopped belonging wholly to him.
 
-Joel pulled their canoe above the stones and turned it sideways against the wind. His hands were numb. His mind felt too clear and not clear enough. He could see everything in front of him as separate facts. Two canoes. One cracked thwart. One cracked paddle. One wet blue dry bag. Three men. No Alex. No proper landing. No known camp. The yellow key pouch still in Mike's left PFD pocket. Mike's nearly spent spray. Alex's unused one. No one coming.
+Joel pulled their canoe above the stones and turned it sideways against the wind. His hands were numb. His mind felt too clear and not clear enough. He could see everything in front of him as separate facts. Two canoes. One cracked thwart. One cracked paddle. One wet larger blue dry bag. Three men. No Alex. No proper landing. No known camp. The yellow key pouch still in Mike's left PFD pocket. Mike's nearly spent spray. Alex's unused one. No one coming.
 
 "Inventory," he said.
 
@@ -452,7 +452,7 @@ Will swallowed. "There is a difference."
 
 He said it without irony, and no one mocked him for it.
 
-They sorted the wet bag under the cedar. It held Will's sleeping bag, a fleece, one pair of socks, and the spare fuel canister. The canister was fine. The fleece was wet along one arm. The socks were damp but salvageable. The sleeping bag had taken water along one side and into the footbox, not soaked through but bad enough that cold would own it by night if they gave it time.
+They sorted the larger blue dry bag under the cedar. It held Will's sleeping bag, a fleece, one pair of socks, and the spare fuel canister. The canister was fine. The fleece was wet along one arm. The socks were damp but salvageable. The sleeping bag had taken water along one side and into the footbox, not soaked through but bad enough that cold would own it by night if they gave it time.
 
 Will knelt over it with both hands spread on the fabric. His face went blank in a practical way that was almost worse than panic.
 
@@ -520,7 +520,7 @@ He hesitated, then under Alex:
 
 HOLD UP - SHORE - NOT ALEX
 
-The names made the denials look childish and necessary. Not Mike. Not me. Not Alex. The page was beginning to fill with refusals, which was different from answers and maybe all they could afford.
+The names made the denials look childish and necessary. Not Mike. Not me. Not Alex. The page was beginning to fill with refusals, which was different from answers and maybe all they could afford. It was not explaining the world. It was keeping each sound from becoming a person too quickly.
 
 Mike leaned in and read them. "Add the latch."
 
@@ -532,7 +532,7 @@ Will wrote:
 
 LATCH - DAYLIGHT/WATER - BARREL VISIBLE
 
-Then he stopped, pen hovering. His face had changed while he wrote. Not calmer. More exact. Joel had seen the look before when Will was sorting some trip problem no one else cared about: stove failure, wrong portage length, a fish ID, a bad knot blamed on the wrong person. Original source. Current source. Effect. The columns let him breathe. They also tempted him. A column made a pattern look like a handle.
+Then he stopped, pen hovering. His face had changed while he wrote. Not calmer. More exact. Joel had seen the look before when Will was sorting some trip problem no one else cared about: stove failure, wrong portage length, a fish ID, a bad knot blamed on the wrong person. Original source. Current source. Effect. The columns let him breathe. They also tempted him. A column made a pattern look like a handle, and Will had always been at his most dangerous when a problem offered him a handle.
 
 "Should we write what it wants?"
 
@@ -554,13 +554,13 @@ Mike said, "Dead is dead whether it wants it or not."
 
 Joel looked toward the lake. "Exactly."
 
-No one liked the exchange. Joel did not either. But it kept the thing smaller than a mind they could anger or trick or bargain with. The page did not need motive. The page needed what had happened and what had not. A latch with the barrel visible. Mike's old line from the wrong water. Will's question from the wrong shore. Alex's command from brush where Alex was not.
+No one liked the exchange. Joel did not either. But it kept the thing smaller than a mind they could anger or trick or bargain with. The page did not need motive. The page needed what had happened and what had not. A latch with the barrel visible. Mike's old line from the wrong water. Will's question from the wrong shore. Alex's command from brush where Alex was not. Facts were thinner than theories. They also weighed less.
 
 Will wrote at the bottom of the page:
 
 REPETITION, NOT INTENTION?
 
-He put a question mark after it and underlined nothing. Joel was grateful for the question mark. He did not trust any sentence about the thing that ended clean. He also saw, with a small private dread, that Will looked better after writing it. Not safer. Better. The page had given him a problem again.
+He put a question mark after it and underlined nothing. Joel was grateful for the question mark. He did not trust any sentence about the thing that ended clean. He also saw, with a small private dread, that Will looked better after writing it. Not safer. Better. The page had given him a problem again, and a problem was almost a place to stand.
 
 Mike unfolded the map on a dry bag and weighted one corner with the repair kit. The three of them crouched around it in the wind. Nobody put a finger down until everyone could see the hand that did it.
 
